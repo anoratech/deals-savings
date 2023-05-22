@@ -15,4 +15,10 @@
   
 [[plugins]]
   package = "netlify-plugin-cypress"
+  
+[[redirects]]
+  from = "/index.html"
+  to = "/post"
+  status = 301
+  force = true
 
