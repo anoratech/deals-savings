@@ -13,13 +13,12 @@
   framework = "hugo"
   targetPort = 3000
 
-
-  [plugins.inputs]
-    record = true
+[plugins.inputs]
+  record = true
+    
 [[redirects]]
-  from = "/"
+  from = "/*"
   to = "/post"
   status = 301
-  force = false
-  query = {path = ":path"}
-  conditions = {Language = ["en"], Country = ["US"], Role = ["admin"]}
+  force = true
+
