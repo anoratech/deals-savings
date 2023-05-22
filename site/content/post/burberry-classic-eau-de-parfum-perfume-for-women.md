@@ -1,5 +1,5 @@
 ---
-title: Burberry Classic Eau de Parfum, Perfume for Women Now $39.99was $98.00
+title: Burberry Classic Eau de Parfum, Perfume for Women Now $39.99 was $98.00
 date: 2023-05-22T05:16:00.865Z
 description: "Burberry Classic Eau de Parfum: Sophisticated scent for women,
   embodying timeless elegance "
