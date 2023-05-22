@@ -20,7 +20,7 @@
     record = true
 [[redirects]]
   from = "/"
-  to = "/blog"
+  to = "/post"
   status = 301
   force = false
   query = {path = ":path"}
