@@ -16,6 +16,9 @@
 [[plugins]]
   package = "netlify-plugin-cypress"
   
+[plugins.inputs]
+    record = true
+  
 [[redirects]]
   from = "/index.html"
   to = "/post"
