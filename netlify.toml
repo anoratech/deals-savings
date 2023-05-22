@@ -18,4 +18,7 @@
   to = "/post"
   status = 301
   force = true
+  
+[[plugins]]
+  package = "netlify-plugin-cypress"
 
