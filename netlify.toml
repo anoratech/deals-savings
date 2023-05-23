@@ -19,9 +19,5 @@
 [plugins.inputs]
     record = true
   
-[[redirects]]
-  from = "/*"
-  to = "/post"
-  status = 301
-  force = true
+
 
