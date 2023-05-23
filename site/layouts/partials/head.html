@@ -8,7 +8,12 @@
   {{ end }}
 	
 	{{ if (findRE "<pre" .Content 1) }}
-	    <script src="/site/_default/clipboard.js"></script>
+    	<link rel="stylesheet" href="clipboard.css">
+	{{ end }}
+
+	
+	{{ if (findRE "<pre" .Content 1) }}
+	    <script src="clipboard.js"></script>
 	{{ end }}
 		
 	<div class="highlight">
