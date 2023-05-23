@@ -20,7 +20,7 @@
     record = true
   
 [[redirects]]
-  from = "/index.html"
+  from = "/*"
   to = "/post"
   status = 301
   force = true
