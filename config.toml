@@ -1,6 +1,7 @@
 languageCode = "en-us"
 title = "My New Netlify Victor Hugo Site"
 [params]
+prism_syntax_highlighting = true
   [params.prism]
     languages = [
       "markup",
