@@ -16,7 +16,10 @@ prism_syntax_highlighting = true
       "toolbar",
       "copy-to-clipboard"
     ]
-
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true
 
 # RSS, categories and tags disabled for an easy start
 # See configuration options for more details: 
