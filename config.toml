@@ -1,2 +1,15 @@
 languageCode = "en-us"
 title = "My New Netlify Victor Hugo Site"
+[params]
+  [params.prism]
+    languages = [
+      "markup",
+      "css",
+      "clike",
+      "javascript"
+    ]
+    plugins = [
+      "normalize-whitespace",
+      "toolbar",
+      "copy-to-clipboard"
+    ]
