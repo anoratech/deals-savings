@@ -2,6 +2,20 @@ baseurl = "/"
 languageCode = "en-us"
 languageLang = "en"
 title = "Homepage"
+[params]
+  [params.prism]
+    languages = [
+      "markup",
+      "css",
+      "clike",
+      "javascript"
+    ]
+    plugins = [
+      "normalize-whitespace",
+      "toolbar",
+      "copy-to-clipboard"
+    ]
+
 
 # RSS, categories and tags disabled for an easy start
 # See configuration options for more details: 
