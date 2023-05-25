@@ -5,13 +5,11 @@ description: where do we see this ?
 image: img/icons-facebook.svg
 ---
 
-	<div class="highlight">
-	  <pre>
-	    <code>some code...</code>
-	  </pre>
 
-
-	</div>
+```
+<pre><code class="language-js" data-prismjs-copy="Copy">Copy Code ZCVDWD</code></pre>
 ```
 
+```
 r﻿eally ? whats going on
+```
