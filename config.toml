@@ -14,3 +14,7 @@ prism_syntax_highlighting = true
       "toolbar",
       "copy-to-clipboard"
     ]
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true
