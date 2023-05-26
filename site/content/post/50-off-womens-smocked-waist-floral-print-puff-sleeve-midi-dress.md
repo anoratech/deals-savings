@@ -1,12 +1,14 @@
 ---
 title: "50% off Women's Smocked Waist Floral Print Puff Sleeve Midi Dress "
 date: 2023-05-23T01:55:27.340Z
-description: >+
+description: >
   Women's Smocked Waist Floral Print Puff Sleeve Midi Dress: Effortlessly
   feminine and stylish, this dress features a smocked waist and charming puff
   sleeves, perfect for any occasion!
 ---
 50% OFF with code **54TPE9BE** 
+
+<pre><code class="language-js" data-prismjs-copy="Click to Copy">54TPE9BE</code></pre>
 https://amzn.to/3WspV5i
 (ad)
 
