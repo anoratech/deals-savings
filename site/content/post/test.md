@@ -9,20 +9,3 @@ image: ""
 </button>
 
 <div><pre><code class="language-js" data-prismjs-copy="Copy">Copy Code ZCVDWD</code></pre></div>
-
-<a href="/link.html" title="I am a link">
-    <img src="image.jpg" alt="An example image" />
-</a>
-
-```
-<a href="/link.html" title="I am a link">
-    <img src="image.jpg" alt="An example image" />
-</a>
-
-
-<div><pre><code class="language-js" data-prismjs-copy="Copy">Copy Code ZCVDWD</code></pre></div>
-```
-
-```
-r﻿eally ? whats going on
-```
