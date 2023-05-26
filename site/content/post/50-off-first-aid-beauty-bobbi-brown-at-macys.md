@@ -1,13 +1,13 @@
 ---
 title: 50% OFF FIRST AID BEAUTY & BOBBI BROWN AT MACY'S!!
 date: 2023-05-23T17:48:46.439Z
-description: >+
+description: >
   
   Macy's Today Only 10 Days of Glam deals are Nudestix, StriVectin, Buttah Skin, & more!!
 ---
- FREE Shipping with code GLAM10
+ FREE Shipping with code below, Click to copy to clipboard
 
-
+<pre><code class="language-js" data-prismjs-copy="Click to Copy">GLAM10</code></pre>
 
 **https://mavely.app.link/e/094s0fEB2zb**
 
