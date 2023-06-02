@@ -146,7 +146,11 @@ image: img/dns.jpg
 
   https://mavely.app.link/e/4JoihyTqjAb
 
-  AD
+  AD <!--StartFragment-->
+
+  ![May be an image of 2 people and text that says 'Real Good ΑΕ Ne(x)t Ne( Level Soft Knit High-Waisted Jegging Jogger $9.99 $59.95 Real Good ΑΕ Ripped Super High- Waisted Flare Jean $9.99 $59.95 Chat'](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/349079996_1299741030968054_4017642876937695830_n.jpg?stp=cp6_dst-jpg_p75x225&_nc_cat=107&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=vMlk75cX55kAX9vQYra&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfDauGevvC_8AuGglbKHBNkh1jFUOAj5b0bb8eBtuQkoNg&oe=647F63BC)
+
+  <!--EndFragment-->
 * 𝐆яά𝕓 ｎ∂ 𝓰𝐨 
 
   Gain Ultra Bleach Alternative Dishwashing Liquid Dish Soap, Honey Berry Hula, 21.6 fl oz
@@ -155,21 +159,33 @@ image: img/dns.jpg
 
   https://amzn.to/3OSV9kr
 
-  AD
+  AD <!--StartFragment-->
+
+  ![May be an image of bottle and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351180897_614618640629050_6673848538039873809_n.jpg?stp=dst-jpg_p75x225&_nc_cat=111&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=ry8toRi8Rp8AX8rQZRx&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfA1SmPgImTzwK1EhtlMR0W5boWCglmRkpPYdb30Sd51ng&oe=647F548E)
+
+  <!--EndFragment-->
 * Dyson Ball Multi Floor Origin Upright Vacuum Only 💲189.99 (reg. $299.99)
 
   Free Shipping
 
   https://mavely.app.link/e/MxtvoDlrjAb
 
-  AD
+  AD <!--StartFragment-->
+
+  ![May be an image of carpet, kitchen appliance and vacuum](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/350970907_1311855226093556_9132125037778161869_n.jpg?stp=cp6_dst-jpg_p168x128&_nc_cat=111&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=-mKPYq8dpnkAX-qsPRg&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfDzqDTODUlw_bg4heyQmJwpQxu-QKaffDu6yQn1X1ZwKg&oe=647FD69F)
+
+  <!--EndFragment-->
 * Dunkin' Original Blend Medium Roast Coffee, 60 Keurig K-Cup Pods
 
   price drop
 
   https://amzn.to/3oGW6l7
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of drink and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/350969008_794525598713178_4228094578881444060_n.jpg?stp=dst-jpg_p75x225&_nc_cat=108&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=OBN8p6GzniQAX9hoM3k&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfB6jN9i7T5E60oqzI0J0mvvFij4oK30MyLmg3LVsMLQYA&oe=647EC11F)
+
+  <!--EndFragment-->
 * ♗ 𝓰𝓻αβ 𝔫ᗪ 𝕘ᵒ ♟
 
   Just Play The Original Slinky® Brickz Sand and Snow Outdoor Play Toy
