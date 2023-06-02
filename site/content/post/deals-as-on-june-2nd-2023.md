@@ -42,7 +42,21 @@ image: img/dns.jpg
    [](<>)ad <!--StartFragment-->
 
    ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/350964831_196237216705191_6859573141709863846_n.jpg?stp=dst-jpg_p118x90&_nc_cat=107&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=aI-cFSEa8VIAX--OA9A&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBGSpGH7dVWOqaMQSbCJnAUUTdjKKiMm_UqDuD4QSkfgA&oe=647FA9B7)
-5.
-6.
+5. Baby Gate for Stairs and Door Ways
+
+   clip $10 coupon
+
+   https://amzn.to/3NaM8Sv
+
+   ad
+6. 𝑔𝓇𝒶𝒷 𝓃𝒹 𝑔❁ 
+
+   40% off at checkout
+
+   2 PCS CFQ Swedish Dishcloths Cellulose Sponge Cloth,
+
+   https://amzn.to/3C9hNNH
+
+   ad
 7.
 8.
