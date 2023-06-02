@@ -251,3 +251,28 @@ image: img/dns.jpg
   https://amzn.to/43A5FSd
 
   ad
+* CALLING ALL CRAFTERS
+
+  HALF OFF
+
+  Heat Press Mug Machine
+
+  Code at checkout JK8XH45I
+
+  [https://amzn.to/42pTzcG](https://amzn.to/42pTzcG?fbclid=IwAR1swtzEIxX0DiyAsFUkDDXNCszZyW_JuxZahijD3vssdhCIjzKMw1S1LKg)
+
+  AD
+* Pretty Plus Wrap Dresses
+
+  6O% off with c0de D3YODGG9 + coupon✂
+
+  https://amzn.to/3Cg2AdD
+
+  ad
+* Snapware 8-Pc Plastic Food Storage Container Set
+
+  price drop
+
+  https://amzn.to/3ISL2bk
+
+  ad
