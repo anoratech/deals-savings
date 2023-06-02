@@ -1,9 +1,10 @@
 ---
 title: Deals as on June 2nd 2023
 date: 2023-06-02T15:15:50.796Z
-description: |-
+description: |
   prices/codes can change anytime . 
   Join our group for more deals
+image: img/dns.jpg
 ---
 1. Blingle Bands DIY Gem Friendship Bracelet, 8 Band Deluxe Studio
 
@@ -11,4 +12,7 @@ description: |-
 
    https://amzn.to/43C7VrB
 
-   ad
+   ad <!--StartFragment-->
+
+   ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/350993174_798102848260117_7812778101914787292_n.jpg?stp=dst-jpg_p180x540&_nc_cat=107&ccb=1-7&_nc_sid=730e14&_nc_ohc=NEppwflQfyoAX-n9px2&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfA0qNSRZzKKqyROIT0gpIcgLJUzptHp07vlSvy85hxrvA&oe=647E6CD1)
+2.
