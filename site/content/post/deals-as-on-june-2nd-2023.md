@@ -290,3 +290,14 @@ image: img/dns.jpg
   https://amzn.to/3oMSMoE
 
   ad
+* Disney Encanto Doll Figures, The Madrigal Family 6-Pack
+
+  𝓖𝓡𝓐𝓑 𝓝𝓓 𝓖𝓞
+
+  https://amzn.to/3OPbfvn
+
+  ad
+* Plastic Chopping Board Set of 4\
+  price drop\
+  https://amzn.to/3C9nQlr\
+  ad
