@@ -98,7 +98,11 @@ image: img/dns.jpg
 
   https://amzn.to/3qpbyTq
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of 1 person, top, tanktop, halter top and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351143740_1496946114377077_7097460030227024651_n.jpg?stp=dst-jpg_p133x133&_nc_cat=101&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=vrihebUG8FgAX9lGKe1&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBXVzJ5p9951E9BSDyarzVuFgy1K6kaJAnYSUxK0qdGrA&oe=647E99ED)
+
+  <!--EndFragment-->
 * clip coupon in s&s [https://amzn.to/43EIUff](https://amzn.to/43EIUff?fbclid=IwAR0plUnb-V68w9xPj3-3QgoJlKXERdnN1gedqq0mwgNnr_B2DpygxF7Rsfo) ad
 * Adult Weighted Blanket Queen Size (15lbs 60"x80")\
   clip coupon\
