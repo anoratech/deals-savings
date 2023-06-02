@@ -221,7 +221,11 @@ image: img/dns.jpg
 
   https://amzn.to/3oKHilq
 
-  AD
+  AD<!--StartFragment-->
+
+  ![May be an image of doll](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351137771_186249574045203_708374284149159396_n.jpg?stp=dst-jpg_p130x130&_nc_cat=103&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=cLLYkdME72AAX_B3aSN&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfC-QSKPuQ3RwqE_KaM1nja3RmK_VgM-YMmfRYfScP7wDg&oe=64802F13)
+
+  <!--EndFragment-->
 * 2-30-LED Motion Sensor Under Cabinet Lights
 
   clip coupon
