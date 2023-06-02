@@ -48,7 +48,9 @@ image: img/dns.jpg
 
    https://amzn.to/3NaM8Sv
 
-   ad
+   ad <!--StartFragment-->
+
+   ![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/350780968_188970407444835_8234055798904696781_n.jpg?stp=dst-jpg_p75x225&_nc_cat=109&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=gaGMc_--KA4AX9q3RWD&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfDAWWm6HXcZEU9WrGCEFKYoWn7sEOXTuzbmxWuorJBetA&oe=647F5308)
 6. 𝑔𝓇𝒶𝒷 𝓃𝒹 𝑔❁ 
 
    40% off at checkout
@@ -57,20 +59,29 @@ image: img/dns.jpg
 
    https://amzn.to/3C9hNNH
 
-   ad
-7.  ﻿​🇬​​🇷​​🇦​​🇧​ ​🇳​​🇩​ ​🇬​​🇴​
+   ad <!--StartFragment-->
+
+   ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/349086269_637982944875244_1265910185865718846_n.jpg?stp=dst-jpg_p75x225&_nc_cat=107&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=57ozgITBlIAAX8_gp7O&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfA1SxB0CmOLfVRoy8KUM_-rSEWCisdaeh-4btnhwDV83A&oe=647F0067)
+7. ﻿​🇬​​🇷​​🇦​​🇧​ ​🇳​​🇩​ ​🇬​​🇴​
 
    50% off SEEKWAY Kids Water Shoes
 
-   Code 50XVX29X
+   Code 50XVX29X   <pre><code class="language-js" data-prismjs-copy="Click to Copy">50XVX29X </code></pre>
 
    https://amzn.to/3WJs8JP
 
-   ad
+   ad <!--StartFragment-->
+
+![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351004358_6253481924744973_4073861030754021265_n.jpg?stp=dst-jpg_p228x119&_nc_cat=109&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=56BsAXyJmBMAX-jKewy&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfDFfXknAbtrSHyqOUVwCsYBv3oimTZ_tAvDWByH5VXNqA&oe=647FB52A)
+
+<!--EndFragment-->
+
 8. 4-Story 11 Doll House Rooms with Doll Toy Figures, Furniture and Accessories,
 
    price drop
 
    https://amzn.to/3WLf1b4
 
-   ad
+   ad <!--StartFragment-->
+
+   ![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/349146703_825237398451956_895390655408922888_n.jpg?stp=dst-jpg_p75x225&_nc_cat=100&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=n1A5cTJCmecAX87QQd-&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfAYBr5wqLyVhfpzmXRjQdAGaN1jpn-xC9wKRtdVFq5mVA&oe=647EB7ED)
