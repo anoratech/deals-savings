@@ -228,14 +228,22 @@ image: img/dns.jpg
 
   https://amzn.to/43HjgGI
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of water heater, water filter, thermostat, refrigerator, microwave and text that says '2 Ways to Install Easy installation in seconds Non-ironwork Surface Pl”ase Clean the Surface before Sticking Step Stick the Metal Strip the Surface with Double-sided Tape Step 2: Attach the Light to Metal Strip Ironwork Surface Built-in Magnet, Simple to Attach to Any ironwork Surface 1.5 inch/ 3.9cm 8inch/22cm 0.35 inch/ T 0.9cm'](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/349105085_170453532663858_5991817736975282218_n.jpg?stp=dst-jpg_p228x119&_nc_cat=103&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=ILVw56RIaHkAX8F1EDG&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfCXhsZryN1dLXGAH7_EcabyINX8P3BqlXmh5OMh_F29iw&oe=647FEAC4)
+
+  <!--EndFragment-->
 * price drop + clip coupon 
 
   8Pack Solar Torch Light with Flickering Flame
 
   https://amzn.to/45HQBTT
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of hair brush, lighter, fire, tongs, comb, spatula and racket](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351325077_120444804393485_2053869488897641219_n.jpg?stp=dst-jpg_p75x225&_nc_cat=108&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=4QzDfqnUZYgAX9VwBKV&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBbRlAOMSUudTzDovHl7kQrsW9dr4lD1vsww2-drmcJKg&oe=6480501C)
+
+  <!--EndFragment-->
 * OLD NAVY High Waisted Variety Leggings 3 pack just $13.00 (reg $52)!!!
 
   code EXTRA
