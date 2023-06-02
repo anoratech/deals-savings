@@ -93,9 +93,7 @@ image: img/dns.jpg
 
   ad <!--StartFragment-->
 
-  ![May be an image of 1 person, towel, scarf, sarong, shawl and blanket](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351140338_802644234795387_3986058271420009747_n.jpg?stp=dst-jpg_p75x225&_nc_cat=108&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=Mj-GWeMurioAX8C5xaW&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCGFsYrqdzrPWwzQEbyVWZTljGrFsOAidMxO_UlFV1Zrg&oe=647FEDB8)
-
-  <!--EndFragment-->
+  ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351140338_802644234795387_3986058271420009747_n.jpg?stp=dst-jpg_p75x225&_nc_cat=108&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=Mj-GWeMurioAX8C5xaW&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCGFsYrqdzrPWwzQEbyVWZTljGrFsOAidMxO_UlFV1Zrg&oe=647FEDB8)
 * n0 c0de needed
 
   Womens Tank Tops Scoop Neck Lace Trim Casual Summer Sleeveless Tshirts
@@ -104,18 +102,20 @@ image: img/dns.jpg
 
   ad <!--StartFragment-->
 
-  ![May be an image of 1 person, top, tanktop, halter top and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351143740_1496946114377077_7097460030227024651_n.jpg?stp=dst-jpg_p133x133&_nc_cat=101&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=vrihebUG8FgAX9lGKe1&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBXVzJ5p9951E9BSDyarzVuFgy1K6kaJAnYSUxK0qdGrA&oe=647E99ED)
+  ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351143740_1496946114377077_7097460030227024651_n.jpg?stp=dst-jpg_p133x133&_nc_cat=101&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=vrihebUG8FgAX9lGKe1&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBXVzJ5p9951E9BSDyarzVuFgy1K6kaJAnYSUxK0qdGrA&oe=647E99ED)
+* clip coupon in s&s [https://amzn.to/43EIUff](https://amzn.to/43EIUff?fbclid=IwAR0plUnb-V68w9xPj3-3QgoJlKXERdnN1gedqq0mwgNnr_B2DpygxF7Rsfo) ad
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71wdK-VZFxL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
-* clip coupon in s&s [https://amzn.to/43EIUff](https://amzn.to/43EIUff?fbclid=IwAR0plUnb-V68w9xPj3-3QgoJlKXERdnN1gedqq0mwgNnr_B2DpygxF7Rsfo) ad
 * Adult Weighted Blanket Queen Size (15lbs 60"x80")\
   clip coupon\
   https://amzn.to/3OSft5a\
   ad <!--StartFragment-->
 
-  ![May be an image of mattress, blanket and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/348993097_625469269641103_5138949726849715694_n.jpg?stp=dst-jpg_s261x260&_nc_cat=110&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=FygPH1uj5SgAX-4RC_y&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfCl_Bd1N1C6shMtjUPU943isAJBqzu0h8A_K0ZcECspXA&oe=647EC5D6)
-
-  <!--EndFragment-->
+  ![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/348993097_625469269641103_5138949726849715694_n.jpg?stp=dst-jpg_s261x260&_nc_cat=110&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=FygPH1uj5SgAX-4RC_y&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfCl_Bd1N1C6shMtjUPU943isAJBqzu0h8A_K0ZcECspXA&oe=647EC5D6)
 * Stainless Steel Bento Box Adult Lunch Box
 
   𝕘𝕣𝕒𝕓 𝕟𝕕 𝕘𝕠
@@ -124,11 +124,7 @@ image: img/dns.jpg
 
   ad <!--StartFragment-->
 
-  ![May be an image of container and kitchenware](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351140895_1304210333806006_8025000013589069372_n.jpg?stp=dst-jpg_p75x225&_nc_cat=100&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=HfEt_fAkN5gAX-ZUMMf&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfDLjbP33_k6xsPcOQaFlTwmgQc-rEsc6aPfcEvtxjNIUA&oe=647F7AA2)
-
-  <!--EndFragment-->
-
-
+  ![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351140895_1304210333806006_8025000013589069372_n.jpg?stp=dst-jpg_p75x225&_nc_cat=100&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=HfEt_fAkN5gAX-ZUMMf&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfDLjbP33_k6xsPcOQaFlTwmgQc-rEsc6aPfcEvtxjNIUA&oe=647F7AA2)
 * O-Cedar Pet Pro Broom & Step-On Dustpan PowerCorner, Red
 
   price drop 
@@ -137,9 +133,7 @@ image: img/dns.jpg
 
   ad <!--StartFragment-->
 
-  ![May be an image of scraper, shovel, dustpan, brush and spatula](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351331353_793471305762423_4720698797361265005_n.jpg?stp=dst-jpg_p75x225&_nc_cat=107&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=V3odxo6GejUAX-nQkf2&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCLZE_2vbuq7b6fTvRl_RvxFp8dKV9ZvawlYWMjhD6Ucg&oe=647EBAD4)
-
-  <!--EndFragment-->
+  ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351331353_793471305762423_4720698797361265005_n.jpg?stp=dst-jpg_p75x225&_nc_cat=107&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=V3odxo6GejUAX-nQkf2&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCLZE_2vbuq7b6fTvRl_RvxFp8dKV9ZvawlYWMjhD6Ucg&oe=647EBAD4)
 * Smile Mart 5-Shelf Boltless & Adjustable Steel Storage Shelf Unit, Black, Holds up to 330 lb Per Shelf, 3 Pack
 
   Only $109.00 (reg. $149.00)
@@ -159,9 +153,7 @@ image: img/dns.jpg
 
   AD <!--StartFragment-->
 
-  ![May be an image of 1 person, doll, lego, sharpener, dollhouse and text that says '5+ -11-PIECES- DisnEy DOORABL'S HERE PEEL More Surprises This Way! 2 Unlock-et to Reveal! A WARNING: CHOKING HAZARD- Small parts. Not for children under years. LOCKETS'](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/349181382_1013954493107976_3174955164800093071_n.jpg?stp=dst-jpg_p75x225&_nc_cat=102&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=YQHxS_Rz3mUAX95PPic&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBGMQVcrpm7aZWwbv73tvyNx25w8jCCgCpFNqtHpQ2iOw&oe=647F76B2)
-
-  <!--EndFragment-->
+  ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/349181382_1013954493107976_3174955164800093071_n.jpg?stp=dst-jpg_p75x225&_nc_cat=102&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=YQHxS_Rz3mUAX95PPic&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBGMQVcrpm7aZWwbv73tvyNx25w8jCCgCpFNqtHpQ2iOw&oe=647F76B2)
 * GOOOOOO!
 
   American Eagle Jeans just $9.99!!
@@ -170,9 +162,7 @@ image: img/dns.jpg
 
   AD <!--StartFragment-->
 
-  ![May be an image of 2 people and text that says 'Real Good ΑΕ Ne(x)t Ne( Level Soft Knit High-Waisted Jegging Jogger $9.99 $59.95 Real Good ΑΕ Ripped Super High- Waisted Flare Jean $9.99 $59.95 Chat'](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/349079996_1299741030968054_4017642876937695830_n.jpg?stp=cp6_dst-jpg_p75x225&_nc_cat=107&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=vMlk75cX55kAX9vQYra&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfDauGevvC_8AuGglbKHBNkh1jFUOAj5b0bb8eBtuQkoNg&oe=647F63BC)
-
-  <!--EndFragment-->
+  ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/349079996_1299741030968054_4017642876937695830_n.jpg?stp=cp6_dst-jpg_p75x225&_nc_cat=107&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=vMlk75cX55kAX9vQYra&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfDauGevvC_8AuGglbKHBNkh1jFUOAj5b0bb8eBtuQkoNg&oe=647F63BC)
 * 𝐆яά𝕓 ｎ∂ 𝓰𝐨 
 
   Gain Ultra Bleach Alternative Dishwashing Liquid Dish Soap, Honey Berry Hula, 21.6 fl oz
@@ -183,9 +173,7 @@ image: img/dns.jpg
 
   AD <!--StartFragment-->
 
-  ![May be an image of bottle and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351180897_614618640629050_6673848538039873809_n.jpg?stp=dst-jpg_p75x225&_nc_cat=111&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=ry8toRi8Rp8AX8rQZRx&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfA1SmPgImTzwK1EhtlMR0W5boWCglmRkpPYdb30Sd51ng&oe=647F548E)
-
-  <!--EndFragment-->
+  ![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351180897_614618640629050_6673848538039873809_n.jpg?stp=dst-jpg_p75x225&_nc_cat=111&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=ry8toRi8Rp8AX8rQZRx&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfA1SmPgImTzwK1EhtlMR0W5boWCglmRkpPYdb30Sd51ng&oe=647F548E)
 * Dyson Ball Multi Floor Origin Upright Vacuum Only 💲189.99 (reg. $299.99)
 
   Free Shipping
@@ -194,9 +182,7 @@ image: img/dns.jpg
 
   AD <!--StartFragment-->
 
-  ![May be an image of carpet, kitchen appliance and vacuum](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/350970907_1311855226093556_9132125037778161869_n.jpg?stp=cp6_dst-jpg_p168x128&_nc_cat=111&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=-mKPYq8dpnkAX-qsPRg&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfDzqDTODUlw_bg4heyQmJwpQxu-QKaffDu6yQn1X1ZwKg&oe=647FD69F)
-
-  <!--EndFragment-->
+  ![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/350970907_1311855226093556_9132125037778161869_n.jpg?stp=cp6_dst-jpg_p168x128&_nc_cat=111&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=-mKPYq8dpnkAX-qsPRg&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfDzqDTODUlw_bg4heyQmJwpQxu-QKaffDu6yQn1X1ZwKg&oe=647FD69F)
 * Dunkin' Original Blend Medium Roast Coffee, 60 Keurig K-Cup Pods
 
   price drop
@@ -205,9 +191,7 @@ image: img/dns.jpg
 
   ad <!--StartFragment-->
 
-  ![May be an image of drink and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/350969008_794525598713178_4228094578881444060_n.jpg?stp=dst-jpg_p75x225&_nc_cat=108&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=OBN8p6GzniQAX9hoM3k&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfB6jN9i7T5E60oqzI0J0mvvFij4oK30MyLmg3LVsMLQYA&oe=647EC11F)
-
-  <!--EndFragment-->
+  ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/350969008_794525598713178_4228094578881444060_n.jpg?stp=dst-jpg_p75x225&_nc_cat=108&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=OBN8p6GzniQAX9hoM3k&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfB6jN9i7T5E60oqzI0J0mvvFij4oK30MyLmg3LVsMLQYA&oe=647EC11F)
 * ♗ 𝓰𝓻αβ 𝔫ᗪ 𝕘ᵒ ♟
 
   Just Play The Original Slinky® Brickz Sand and Snow Outdoor Play Toy
