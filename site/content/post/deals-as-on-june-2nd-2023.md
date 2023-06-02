@@ -111,17 +111,19 @@ image: img/dns.jpg
   https://amzn.to/3IPvmWb
 
   ad
-* O-Cedar Pet Pro Broom & Step-On Dustpan PowerCorner, Red\
-  price drop \
-  https://amzn.to/42fr3uk\
-  ad
+
+
 * O-Cedar Pet Pro Broom & Step-On Dustpan PowerCorner, Red
 
   price drop 
 
   [https://amzn.to/42fr3uk](https://amzn.to/42fr3uk?fbclid=IwAR25-LXBNv_4lgtTI7BlUjZSO5lb97XpTFz0R_GfBqPo96Wf0xWWe4GTKuk)
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of scraper, shovel, dustpan, brush and spatula](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351331353_793471305762423_4720698797361265005_n.jpg?stp=dst-jpg_p75x225&_nc_cat=107&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=V3odxo6GejUAX-nQkf2&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCLZE_2vbuq7b6fTvRl_RvxFp8dKV9ZvawlYWMjhD6Ucg&oe=647EBAD4)
+
+  <!--EndFragment-->
 * Smile Mart 5-Shelf Boltless & Adjustable Steel Storage Shelf Unit, Black, Holds up to 330 lb Per Shelf, 3 Pack
 
   Only $109.00 (reg. $149.00)
@@ -139,7 +141,11 @@ image: img/dns.jpg
 
   https://amzn.to/43xbqja
 
-  AD
+  AD <!--StartFragment-->
+
+  ![May be an image of 1 person, doll, lego, sharpener, dollhouse and text that says '5+ -11-PIECES- DisnEy DOORABL'S HERE PEEL More Surprises This Way! 2 Unlock-et to Reveal! A WARNING: CHOKING HAZARD- Small parts. Not for children under years. LOCKETS'](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/349181382_1013954493107976_3174955164800093071_n.jpg?stp=dst-jpg_p75x225&_nc_cat=102&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=YQHxS_Rz3mUAX95PPic&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBGMQVcrpm7aZWwbv73tvyNx25w8jCCgCpFNqtHpQ2iOw&oe=647F76B2)
+
+  <!--EndFragment-->
 * GOOOOOO!
 
   American Eagle Jeans just $9.99!!
