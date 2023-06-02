@@ -91,7 +91,11 @@ image: img/dns.jpg
 
   https://amzn.to/3qnEE5D
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of 1 person, towel, scarf, sarong, shawl and blanket](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351140338_802644234795387_3986058271420009747_n.jpg?stp=dst-jpg_p75x225&_nc_cat=108&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=Mj-GWeMurioAX8C5xaW&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCGFsYrqdzrPWwzQEbyVWZTljGrFsOAidMxO_UlFV1Zrg&oe=647FEDB8)
+
+  <!--EndFragment-->
 * n0 c0de needed
 
   Womens Tank Tops Scoop Neck Lace Trim Casual Summer Sleeveless Tshirts
