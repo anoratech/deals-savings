@@ -85,3 +85,17 @@ image: img/dns.jpg
    ad <!--StartFragment-->
 
    ![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/349146703_825237398451956_895390655408922888_n.jpg?stp=dst-jpg_p75x225&_nc_cat=100&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=n1A5cTJCmecAX87QQd-&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfAYBr5wqLyVhfpzmXRjQdAGaN1jpn-xC9wKRtdVFq5mVA&oe=647EB7ED)
+9. 31”x 70” Oversized Beach Blanket Quick Dry
+
+   ɢʀᴀʙ ɴᴅ ɢᴏ
+
+   https://amzn.to/3qnEE5D
+
+   ad
+10. n0 c0de needed
+
+    Womens Tank Tops Scoop Neck Lace Trim Casual Summer Sleeveless Tshirts
+
+    https://amzn.to/3qpbyTq
+
+    ad
