@@ -91,19 +91,27 @@ image: img/dns.jpg
 
   https://amzn.to/3qnEE5D
 
-  ad
+  ad <!--StartFragment-->
+
+  ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351140338_802644234795387_3986058271420009747_n.jpg?stp=dst-jpg_p75x225&_nc_cat=108&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=Mj-GWeMurioAX8C5xaW&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCGFsYrqdzrPWwzQEbyVWZTljGrFsOAidMxO_UlFV1Zrg&oe=647FEDB8)
 * n0 c0de needed
 
   Womens Tank Tops Scoop Neck Lace Trim Casual Summer Sleeveless Tshirts
 
   https://amzn.to/3qpbyTq
 
-  ad
-* clip coupon in s&s [https://amzn.to/43EIUff](https://amzn.to/43EIUff?fbclid=IwAR0plUnb-V68w9xPj3-3QgoJlKXERdnN1gedqq0mwgNnr_B2DpygxF7Rsfo) ad
+  ad <!--StartFragment-->
+
+  ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351143740_1496946114377077_7097460030227024651_n.jpg?stp=dst-jpg_p133x133&_nc_cat=101&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=vrihebUG8FgAX9lGKe1&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBXVzJ5p9951E9BSDyarzVuFgy1K6kaJAnYSUxK0qdGrA&oe=647E99ED)
+* clip coupon in s&s [https://amzn.to/43EIUff](https://amzn.to/43EIUff?fbclid=IwAR0plUnb-V68w9xPj3-3QgoJlKXERdnN1gedqq0mwgNnr_B2DpygxF7Rsfo) ad <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71wdK-VZFxL._AC_SL1500_.jpg)
 * Adult Weighted Blanket Queen Size (15lbs 60"x80")\
   clip coupon\
   https://amzn.to/3OSft5a\
-  ad
+  ad <!--StartFragment-->
+
+  ![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/348993097_625469269641103_5138949726849715694_n.jpg?stp=dst-jpg_s261x260&_nc_cat=110&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=FygPH1uj5SgAX-4RC_y&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfCl_Bd1N1C6shMtjUPU943isAJBqzu0h8A_K0ZcECspXA&oe=647EC5D6)
 * Stainless Steel Bento Box Adult Lunch Box
 
   𝕘𝕣𝕒𝕓 𝕟𝕕 𝕘𝕠
@@ -147,7 +155,7 @@ image: img/dns.jpg
   https://mavely.app.link/e/4JoihyTqjAb
 
   AD
-*  𝐆яά𝕓 ｎ∂ 𝓰𝐨 
+* 𝐆яά𝕓 ｎ∂ 𝓰𝐨 
 
   Gain Ultra Bleach Alternative Dishwashing Liquid Dish Soap, Honey Berry Hula, 21.6 fl oz
 
