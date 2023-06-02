@@ -192,14 +192,22 @@ image: img/dns.jpg
 
   https://amzn.to/3OSi0MI
 
-  AD
+  AD <!--StartFragment-->
+
+  ![May be an image of water heater, air conditioner, screen, water bottle, water filter, thermostat and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/349001790_206477712271254_815406570363853950_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=0t4YTvQk7DIAX_N4x79&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfCg7ybwNkI5PLOB9Zu0ggiJC0bJjE5gmDVFf47CfRtzKA&oe=647E7A78)
+
+  <!--EndFragment-->
 * Just Play National Geographic Kids Tub of Realistic Dinosaur Toy Figures
 
   https://amzn.to/43CUnMy
 
   ＧＲＡＢ ＮＤ ＧＯ
 
-  AD
+  AD <!--StartFragment-->
+
+  ![May be an image of lego, hamper and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351322715_1688907288221961_7234668922669499230_n.jpg?stp=dst-jpg_p75x225&_nc_cat=106&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=mr4aiz1VBLYAX98xTLI&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfD64uDcaEmqZPewpBk8jejBQupRgBO_cToPPe4KwRhrbw&oe=64801271)
+
+  <!--EndFragment-->
 * Barbie Dreamtopia Mermaid Doll with Purple Hair, Blue & Purple Ombre Tail & Tiara Accessory
 
   𝔾ℝ𝔸𝔹 ℕ𝔻 𝔾𝕆
