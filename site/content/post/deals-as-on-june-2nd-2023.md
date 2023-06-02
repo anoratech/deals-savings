@@ -99,3 +99,67 @@ image: img/dns.jpg
     https://amzn.to/3qpbyTq
 
     ad
+11. clip coupon in s&s [https://amzn.to/43EIUff](https://amzn.to/43EIUff?fbclid=IwAR0plUnb-V68w9xPj3-3QgoJlKXERdnN1gedqq0mwgNnr_B2DpygxF7Rsfo) ad
+12. Adult Weighted Blanket Queen Size (15lbs 60"x80")\
+    clip coupon\
+    https://amzn.to/3OSft5a\
+    ad
+13. Stainless Steel Bento Box Adult Lunch Box
+
+    𝕘𝕣𝕒𝕓 𝕟𝕕 𝕘𝕠
+
+    https://amzn.to/3IPvmWb
+
+    ad
+14. O-Cedar Pet Pro Broom & Step-On Dustpan PowerCorner, Red\
+    price drop \
+    https://amzn.to/42fr3uk\
+    ad
+15. O-Cedar Pet Pro Broom & Step-On Dustpan PowerCorner, Red
+
+    price drop 
+
+    [https://amzn.to/42fr3uk](https://amzn.to/42fr3uk?fbclid=IwAR25-LXBNv_4lgtTI7BlUjZSO5lb97XpTFz0R_GfBqPo96Wf0xWWe4GTKuk)
+
+    ad
+16. Smile Mart 5-Shelf Boltless & Adjustable Steel Storage Shelf Unit, Black, Holds up to 330 lb Per Shelf, 3 Pack
+
+    Only $109.00 (reg. $149.00)
+
+    FREE SHIPPING
+
+    https://mavely.app.link/e/0ZidVoAqjAb
+
+    AD
+17. RUNNNN 
+
+    𝓰𝓻𝓪𝓫 𝓷𝓭 𝓰𝓸
+
+    Just Play Disney Doorables Deluxe Lockets, Includes Character Charms, Mix and Max Jewelry for Kids
+
+    https://amzn.to/43xbqja
+
+    AD
+18. GOOOOOO!
+
+    American Eagle Jeans just $9.99!!
+
+    https://mavely.app.link/e/4JoihyTqjAb
+
+    AD
+19.  𝐆яά𝕓 ｎ∂ 𝓰𝐨 
+
+    Gain Ultra Bleach Alternative Dishwashing Liquid Dish Soap, Honey Berry Hula, 21.6 fl oz
+
+    N0 C0DE
+
+    https://amzn.to/3OSV9kr
+
+    AD
+20. Dyson Ball Multi Floor Origin Upright Vacuum Only 💲189.99 (reg. $299.99)
+
+    Free Shipping
+
+    https://mavely.app.link/e/MxtvoDlrjAb
+
+    AD
