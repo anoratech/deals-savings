@@ -35,7 +35,7 @@ image: img/dns.jpg
    ad <!--StartFragment-->
 
    ![](https://m.media-amazon.com/images/I/41ZYypqcaZL._SR400,400_.jpg)
-4. Floral Smocked Dresses (S-2X)- 5O% off with c0de DXIZSBKY
+4. Floral Smocked Dresses (S-2X)- 5O% off with c0de DXIZSBKY  <pre><code class="language-js" data-prismjs-copy="Click to Copy">DXIZSBKY</code></pre>
 
    [https://amzn.to/3oDbuz1](https://amzn.to/3oDbuz1?fbclid=IwAR2Od6E9S1DStXQSdx-cRV09ya-2wWRQe2lepttwtdhuBFX7Z0LM0WmeUKM)
 
