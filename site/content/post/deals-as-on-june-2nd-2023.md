@@ -185,7 +185,11 @@ image: img/dns.jpg
 
   https://amzn.to/3qpSEfd
 
-  AD
+  AD <!--StartFragment-->
+
+  ![May be an image of dollhouse, doll, playpen and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351142886_779180000315611_7611090170694467206_n.jpg?stp=dst-jpg_p228x119&_nc_cat=105&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=9TnzgwSAdbMAX_qMDOR&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCaRu9YWJIRm667RAAtRIlt2cikKuLb3_1rUaqYD9jAOw&oe=64800CFB)
+
+  <!--EndFragment-->
 * Cricut Premium Vinyl Removable for All Cricut Cutting Machines
 
   𝔾ℝ𝔸𝔹 ℕ𝔻 𝔾𝕆
