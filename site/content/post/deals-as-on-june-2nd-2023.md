@@ -58,5 +58,13 @@ image: img/dns.jpg
    https://amzn.to/3C9hNNH
 
    ad
-7.
+7.  ﻿​🇬​​🇷​​🇦​​🇧​ ​🇳​​🇩​ ​🇬​​🇴​
+
+   50% off SEEKWAY Kids Water Shoes
+
+   Code 50XVX29X
+
+   https://amzn.to/3WJs8JP
+
+   ad
 8.
