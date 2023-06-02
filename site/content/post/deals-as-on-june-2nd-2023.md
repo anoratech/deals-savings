@@ -147,7 +147,7 @@ image: img/dns.jpg
   https://mavely.app.link/e/4JoihyTqjAb
 
   AD
-*  𝐆яά𝕓 ｎ∂ 𝓰𝐨 
+* 𝐆яά𝕓 ｎ∂ 𝓰𝐨 
 
   Gain Ultra Bleach Alternative Dishwashing Liquid Dish Soap, Honey Berry Hula, 21.6 fl oz
 
@@ -156,6 +156,7 @@ image: img/dns.jpg
   https://amzn.to/3OSV9kr
 
   AD
+
 * Dyson Ball Multi Floor Origin Upright Vacuum Only 💲189.99 (reg. $299.99)
 
   Free Shipping
@@ -241,7 +242,11 @@ image: img/dns.jpg
 
   https://mavely.app.link/e/BLHLu0qujAb
 
-  ad
+  ad<!--StartFragment-->
+
+  ![May be an image of 1 person, activewear, sweatpants, sportswear and tights](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351352931_649947446542231_5761844451571561698_n.jpg?stp=cp6_dst-jpg_p173x172&_nc_cat=105&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=GcPY94iZJ4EAX8JP6mE&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCvwmBFKmXB1bZ-Ng4U6sRED4bxjQhuxHGv8zL1mMIo_A&oe=647EB927)
+
+  <!--EndFragment-->
 * ＧＲＡＢ ＮＤ ＧＯ
 
   HEADBANDS FOR WOMEN
@@ -250,89 +255,154 @@ image: img/dns.jpg
 
   https://amzn.to/43A5FSd
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of 1 person and headband](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/350996097_214999224669864_506757248241058684_n.jpg?stp=dst-jpg_p75x225&_nc_cat=111&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=hvH12s2HXmcAX8B7INB&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfDKiyxpsmncYK3PrmXiYW_n8MCtok2HcSBh2bce2dI1vA&oe=64803AC0)
+
+  <!--EndFragment-->
 * CALLING ALL CRAFTERS
 
   HALF OFF
 
   Heat Press Mug Machine
 
-  Code at checkout JK8XH45I
+  Code at checkout JK8XH45I <pre><code class="language-js" data-prismjs-copy="Click to Copy">JK8XH45I</code></pre>
 
   [https://amzn.to/42pTzcG](https://amzn.to/42pTzcG?fbclid=IwAR1swtzEIxX0DiyAsFUkDDXNCszZyW_JuxZahijD3vssdhCIjzKMw1S1LKg)
 
-  AD
+  AD<!--StartFragment-->
+
+  ![May be an image of coffee maker, rack, water bottle, padlock, mug, portable cassette player, can opener, sharpener and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/350983934_1971259569885832_1384880597529877552_n.jpg?stp=dst-jpg_p75x225&_nc_cat=110&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=K7OCgHJ5uckAX_IAXhv&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfDctSAvjGTEw7KKAknphGRSo-8vXKOgsAYykQOgzubtoA&oe=64800959)
+
+  <!--EndFragment-->
 * Pretty Plus Wrap Dresses
 
-  6O% off with c0de D3YODGG9 + coupon✂
+  6O% off with c0de D3YODGG9 + coupon✂ Code at checkout JK8XH45I <pre><code class="language-js" data-prismjs-copy="Click to Copy">D3YODGG9</code></pre>
 
-  https://amzn.to/3Cg2AdD
+  https://amzn.to/3Cg2AdD 
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of 1 person, dress, sundress and skirt](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/349189708_275713411638538_1200497506234215071_n.jpg?stp=dst-jpg_p118x90&_nc_cat=100&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=xav8hy_dFyoAX8CNGaY&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfD2moTutxdj_h6cJq-R0xPCJOExNGhsmVyFhXnRG0v68A&oe=647F2D40)
+
+  <!--EndFragment-->
 * Snapware 8-Pc Plastic Food Storage Container Set
 
   price drop
 
   https://amzn.to/3ISL2bk
 
-  ad
+  ad<!--StartFragment-->
+
+  ![May be an image of petfood, box, bucket, cooler, container and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/349071140_1478505729350543_6710470775340018536_n.jpg?stp=dst-jpg_s261x260&_nc_cat=111&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=V96nlKHLmv4AX9RQ4IK&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfCKdJoPvrgaNttDWaAwAKU0L6OGVwC7uNEScp_1OZmzbg&oe=64800E4C)
+
+  <!--EndFragment-->
 * Nugget Ice Makers Countertop
 
   ‼PRICE DROP & CLIP 
 
   https://amzn.to/42pUv0G
 
-  AD
+  AD<!--StartFragment-->
+
+  ![May be an image of dishwasher, refrigerator, water bottle, water filter, carafe, cooler and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/350990225_798169321624183_2994053080132691073_n.jpg?stp=dst-jpg_p173x172&_nc_cat=103&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=yiFb8gjpqfcAX9oziGd&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfBl5hCcLT-1_wkwXj7Ou9N9taSJToj-11XXX_Njw295Jw&oe=647E9331)
+
+  <!--EndFragment-->
 * Play-Doh Kitchen Creations Pizza Oven Playset
 
   𝔾ℝ𝔸𝔹 ℕ𝔻 𝔾𝕆
 
   https://amzn.to/3oMSMoE
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of lego, sharpener, measuring cups and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/348986364_194343796480210_6127195383146361170_n.jpg?stp=dst-jpg_s261x260&_nc_cat=104&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=wITTuXxKhMEAX9QoJg8&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfChA34RBMqnPwScKwQSBueo249pfzl6ByrblnxKvaT62Q&oe=647F4D9A)
+
+  <!--EndFragment-->
 * Disney Encanto Doll Figures, The Madrigal Family 6-Pack
 
   𝓖𝓡𝓐𝓑 𝓝𝓓 𝓖𝓞
 
   https://amzn.to/3OPbfvn
 
-  ad
+  ad<!--StartFragment-->
+
+  ![May be a doodle of costume, doll and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/348992906_266212582593136_4537795291125173078_n.jpg?stp=dst-jpg_p173x172&_nc_cat=108&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=ZKWGs3Og7gIAX8WG5Ix&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCS_provirMv3CoYEEDAtQnOk5qvQi_5cKV80JTYePQOw&oe=647E978D)
+
+  <!--EndFragment-->
 * Plastic Chopping Board Set of 4\
   price drop\
   https://amzn.to/3C9nQlr\
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of water filter, water bottle, jug and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/350957966_2541476439334407_685406244355869127_n.jpg?stp=dst-jpg_p160x160&_nc_cat=100&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=Mk4pQ_m9g5gAX8LM2Xm&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfAt9OnNo6iUlpAe6dpjLYKb7jQFY8OiQIr9WZ3uPfdmBA&oe=647EF807)
+
+  <!--EndFragment-->
 * Deviled Egg Platter Charcuterie Board
 
   𝑔𝓇𝒶𝒷 𝓃𝒹 𝑔❁ 
 
   [https://amzn.to/45GASV9](https://amzn.to/45GASV9?fbclid=IwAR1-k88qj5nUcw9zzVQBIAgej4mMBeogL633PREAE-TeXSKwT2_uy1hOkHQ)
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of boiled egg, measuring cups and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/350990213_1185682062109412_1233239126373243521_n.jpg?stp=dst-jpg_p228x119&_nc_cat=106&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=X2jjoON0qN4AX9QuqSE&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBMmmZ7Wueb7roJ0AEvIEnvQHnCDQQqLg21EcdwsaL4_g&oe=647FC838)
+
+  <!--EndFragment-->
 * Hot Wheels Toy Car Track Set Massive Loop Mayhem, 28-in Tall Loop, Powered by Motorized Booster, 1:64 Scale Car
 
   price drop
 
   https://amzn.to/43ioVn5
 
-  ad
+  ad <!--StartFragment-->
+
+  ![May be an image of toy, roller coaster and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351044011_930270024696278_8707468481183636391_n.jpg?stp=dst-jpg_s261x260&_nc_cat=107&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=RtGyMyN8bBEAX-b9XWR&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfApy1iXV8cgBaMt5DXC-Qr0rSksHu_2EK_gBKmiMFcJFg&oe=647E964F)
+
+  <!--EndFragment-->
 * Disney Junior Doc McStuffins Pet Rescue 8.5 Inch Doc Doll and Accessories, by Just Play
 
   𝔾ℝ𝔸𝔹 ℕ𝔻 𝔾𝕆
 
   https://amzn.to/3OTNPF5
 
-  ad
+  ad<!--StartFragment-->
+
+  ![May be an image of doll, stethoscope and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351161833_1421845155026289_8116505814867647868_n.jpg?stp=dst-jpg_p75x225&_nc_cat=110&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=Qt_2nGFx0V4AX-DGPm7&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfDswyewzO7RjoxeO88KqgQ9LOKDSO7EcuS7Gu0AoKDUrw&oe=647FCB13)
+
+  <!--EndFragment-->
 * CRAFTSMAN Small Screwdiver Set, 6-Piece Jewelers Set
 
   🄶🅁🄰🄱 🄽🄳 🄶🄾
 
   https://amzn.to/43Heb14
 
-  ad
+  ad<!--StartFragment-->
+
+  ![May be an image of thermometer, screwdriver, capacitor, skewer and text](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/348250143_2581282368714809_5804451786371767903_n.jpg?stp=dst-jpg_s261x260&_nc_cat=106&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=KmZSl0f7yW0AX8YzONu&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfCca5X3-Ddz6Ej4ym77fcSmWYuZZSdDgC3wL0PquVxxOw&oe=64804CDC)
+
+  <!--EndFragment-->
 * 48 double tip markers after code L6Y2YN7P
 
-  HALF OFF
+  HALF OFF <pre><code class="language-js" data-prismjs-copy="Click to Copy">L6Y2YN7P</code></pre>
 
   https://amzn.to/3WKn4EZ
 
-  AD
+  AD <!--StartFragment-->
+
+  ![May be an image of pen, pencil, marker, pencil case, sharpener and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351337391_3360840317462021_3808584906470353980_n.jpg?stp=dst-jpg_p228x119&_nc_cat=109&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=gK_SyoS-tywAX8gnlrv&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfA49NQDQl_Xc7ZyLChwLTfSDueGuNG8k8sHnafX8KAmyg&oe=647ED71C)
+
+  <!--EndFragment-->
+* Crocs Unisex-Adult Baya Ii Flip Flops
+
+  PRICE DROP
+
+  [https://amzn.to/3qnvQg0](https://amzn.to/3qnvQg0?fbclid=IwAR3DNzVB42HrBwJDzcYFnoJD-vl2gWBa8UZkJYbaJdlMFDJjZ2xvoW4vm3E)
+
+  [](<>)AD
+
+  <!--StartFragment-->
+
+  ![May be an image of sandals and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/350980429_998994114801356_2805988501502912661_n.jpg?stp=dst-jpg_s261x260&_nc_cat=110&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=0X1lw5CnWY0AX-emIur&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfBue9vtDQUHBBxpXvpT4p5lel-yW8sBD2YcopJSe78-Bg&oe=64805E66)
+
+  <!--EndFragment-->
