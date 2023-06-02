@@ -208,9 +208,7 @@ image: img/dns.jpg
 
   AD <!--StartFragment-->
 
-  ![May be an image of 1 person, doll, costume and text](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351341810_1343630162890179_3604794999485889317_n.jpg?stp=dst-jpg_s75x225&_nc_cat=103&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=KRsAO9yBBLsAX-n231T&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfC-jJRxu30y6ABMbTD5k-P7PCR73LHsIIvajClEiUt8zw&oe=647F1DC3)
-
-  <!--EndFragment-->
+  ![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351341810_1343630162890179_3604794999485889317_n.jpg?stp=dst-jpg_s75x225&_nc_cat=103&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=KRsAO9yBBLsAX-n231T&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfC-jJRxu30y6ABMbTD5k-P7PCR73LHsIIvajClEiUt8zw&oe=647F1DC3)
 * Intex, 43234-2327 3 Pack 59220EP - Animal Head Split Ring Pool Floats Bundle Includes Frog, Duck, Penguin, Giraffe, Frog, Penguin
 
   ＧＲＡＢ ＮＤ ＧＯ
@@ -219,9 +217,7 @@ image: img/dns.jpg
 
   AD <!--StartFragment-->
 
-  ![May be an image of swan, flamingo, penguin, duck, duckling, raft and beach ball](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351140338_283400097453545_1436743559328518557_n.jpg?stp=dst-jpg_s261x260&_nc_cat=111&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=9xgoulmEtJQAX-id48S&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfCptO0DWuKLeUKGeCLQqTFDOVhuCjtKecN_0w6wGmnBxw&oe=647EA0C2)
-
-  <!--EndFragment-->
+  ![](https://scontent.ffcm1-1.fna.fbcdn.net/v/t39.30808-6/351140338_283400097453545_1436743559328518557_n.jpg?stp=dst-jpg_s261x260&_nc_cat=111&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=9xgoulmEtJQAX-id48S&_nc_ht=scontent.ffcm1-1.fna&oh=00_AfCptO0DWuKLeUKGeCLQqTFDOVhuCjtKecN_0w6wGmnBxw&oe=647EA0C2)
 * 𝔾ℝ𝔸𝔹 ℕ𝔻 𝔾𝕆
 
   Barbie Extra Mini Minis Doll with Blue Hair
