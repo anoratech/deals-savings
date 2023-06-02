@@ -322,3 +322,17 @@ image: img/dns.jpg
   https://amzn.to/3OTNPF5
 
   ad
+* CRAFTSMAN Small Screwdiver Set, 6-Piece Jewelers Set
+
+  🄶🅁🄰🄱 🄽🄳 🄶🄾
+
+  https://amzn.to/43Heb14
+
+  ad
+* 48 double tip markers after code L6Y2YN7P
+
+  HALF OFF
+
+  https://amzn.to/3WKn4EZ
+
+  AD
