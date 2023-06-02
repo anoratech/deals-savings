@@ -186,3 +186,24 @@ image: img/dns.jpg
   https://amzn.to/3qpSEfd
 
   AD
+* Cricut Premium Vinyl Removable for All Cricut Cutting Machines
+
+  𝔾ℝ𝔸𝔹 ℕ𝔻 𝔾𝕆
+
+  https://amzn.to/3OSi0MI
+
+  AD
+* Just Play National Geographic Kids Tub of Realistic Dinosaur Toy Figures
+
+  https://amzn.to/43CUnMy
+
+  ＧＲＡＢ ＮＤ ＧＯ
+
+  AD
+* Barbie Dreamtopia Mermaid Doll with Purple Hair, Blue & Purple Ombre Tail & Tiara Accessory
+
+  𝔾ℝ𝔸𝔹 ℕ𝔻 𝔾𝕆
+
+  https://amzn.to/3WPVfva
+
+  AD
