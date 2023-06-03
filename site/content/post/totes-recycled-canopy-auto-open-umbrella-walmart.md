@@ -1,7 +1,7 @@
 ---
-title: Totes Recycled Canopy Auto Open Umbrella  Walmart
+title: Totes Recycled Canopy Auto Open Umbrella  Walmart Now $3.00
 date: 2023-06-03T15:49:03.141Z
-tags: "Walmart deals "
+tags: "Walmart "
 description: |-
   Now $3.00
 
