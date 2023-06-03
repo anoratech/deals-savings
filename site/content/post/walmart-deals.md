@@ -20,3 +20,11 @@ description: PRICES/CODES CAN CHANGE ANYTIME
     **https://mavely.app.link/e/74lznUENjAb** ad <!--StartFragment-->
 
     ![](https://i5.walmartimages.com/asr/03669ba3-a64d-4767-84c8-95bc1c1531dc.cdf2c3e68d393e2fc3ea31d15b88a307.jpeg)
+
+    * Frigidaire Countertop Ice Maker for $88 (reg $108)
+
+      **https://mavely.app.link/e/Dhu449XNjAb** ad <!--StartFragment-->
+
+      ![Frigidaire 26 lb. Countertop Ice Maker EFIC117-SS, Stainless Steel](https://i5.walmartimages.com/asr/799de7a5-15c6-4c86-9e3a-bf6e403fc65a.87dac384bb4286473492cff275155bbd.png)
+
+      <!--EndFragment-->
