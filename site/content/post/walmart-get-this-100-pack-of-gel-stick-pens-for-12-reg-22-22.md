@@ -1,6 +1,7 @@
 ---
 title: Walmart Get this 100 Pack of Gel Stick Pens for $12 (reg $22.22).
 date: 2023-06-03T05:06:03.721Z
+tags: Walmart
 description: 100 Pack of Gel Stick Pens
 image: img/b2d230b2-6114-40b0-9f26-5f5f69eab321.jpeg
 ---
