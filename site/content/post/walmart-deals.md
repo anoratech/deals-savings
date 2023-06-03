@@ -14,3 +14,9 @@ description: PRICES/CODES CAN CHANGE ANYTIME
 * Dyson Big Ball Multi Floor Canister Vacuum for $220 (reg $350) **https://mavely.app.link/e/0Yr3l3pNjAb** ad <!--StartFragment-->
 
   ![](https://i5.walmartimages.com/asr/27958293-eb22-4468-b493-a3e8babfb704.44fddc0b68d6aaff07b785c59ea9dd3f.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+  * 100 Pack of Gel Stick Pens for $12 (reg $22.22)
+
+    **https://mavely.app.link/e/74lznUENjAb** ad <!--StartFragment-->
+
+    ![](https://i5.walmartimages.com/asr/03669ba3-a64d-4767-84c8-95bc1c1531dc.cdf2c3e68d393e2fc3ea31d15b88a307.jpeg)
