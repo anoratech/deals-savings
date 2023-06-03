@@ -25,6 +25,4 @@ description: PRICES/CODES CAN CHANGE ANYTIME
 
       **https://mavely.app.link/e/Dhu449XNjAb** ad <!--StartFragment-->
 
-      ![Frigidaire 26 lb. Countertop Ice Maker EFIC117-SS, Stainless Steel](https://i5.walmartimages.com/asr/799de7a5-15c6-4c86-9e3a-bf6e403fc65a.87dac384bb4286473492cff275155bbd.png)
-
-      <!--EndFragment-->
+      ![](https://i5.walmartimages.com/asr/799de7a5-15c6-4c86-9e3a-bf6e403fc65a.87dac384bb4286473492cff275155bbd.png)
