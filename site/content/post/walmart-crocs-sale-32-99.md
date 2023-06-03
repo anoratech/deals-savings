@@ -1,6 +1,7 @@
 ---
 title: "#WALMART Crocs SALE $32.99 "
 date: 2023-06-02T19:58:04.152Z
+tags: Walmart
 description: "Crocs Unisex Crocband Clog FREE SHIPPING "
 image: https://mavely.app.link/e/ZJsCPZFkjAb
 ---
