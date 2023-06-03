@@ -2,6 +2,7 @@
 title: 3-Tier Turn-N-Tube End Table / Side Table / Night Stand / Bedside Table
   with Plastic Poles, 1-Pack
 date: 2023-05-22T14:27:57.040Z
+tags: Amazon
 description: "75% off - 3-Tier Turn-N-Tube End Table: Stylish and convenient
   multi-purpose table, ideal for use as a side table, nightstand, or bedside
   table, featuring durable plastic poles "
