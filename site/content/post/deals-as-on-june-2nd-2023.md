@@ -1,6 +1,7 @@
 ---
 title: Deals as on June 2nd 2023
 date: 2023-06-02T15:15:50.796Z
+tags: Amazon
 description: |
   prices/codes can change anytime . 
   Join our group for more deals
@@ -105,11 +106,7 @@ image: img/dns.jpg
   ![](https://scontent.ffcm1-2.fna.fbcdn.net/v/t39.30808-6/351143740_1496946114377077_7097460030227024651_n.jpg?stp=dst-jpg_p133x133&_nc_cat=101&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=vrihebUG8FgAX9lGKe1&_nc_ht=scontent.ffcm1-2.fna&oh=00_AfBXVzJ5p9951E9BSDyarzVuFgy1K6kaJAnYSUxK0qdGrA&oe=647E99ED)
 * clip coupon in s&s [https://amzn.to/43EIUff](https://amzn.to/43EIUff?fbclid=IwAR0plUnb-V68w9xPj3-3QgoJlKXERdnN1gedqq0mwgNnr_B2DpygxF7Rsfo) ad
 
-  <!--StartFragment-->
-
   ![](https://m.media-amazon.com/images/I/71wdK-VZFxL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Adult Weighted Blanket Queen Size (15lbs 60"x80")\
   clip coupon\
   https://amzn.to/3OSft5a\
