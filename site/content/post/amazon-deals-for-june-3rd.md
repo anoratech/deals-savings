@@ -6,7 +6,7 @@ description: All our deals posted in our group in one thread!
 ---
 ![](img/0d93fa28-619c-4c32-8ff1-6755c1ed2a63.jpeg "10-inch Doll & Accessories with DIY Craft Painting Project  75% off Grab & go")
 
-75% off 
+* 75% off 
 
 Grab & go 
 
@@ -14,9 +14,7 @@ Grab & go 
 
 Ad
 
-*
-
-Collagen Powder Purely Inspired Collagen Peptides Powder
+* Collagen Powder Purely Inspired Collagen Peptides Powder
 
 add 2 to cart
 
