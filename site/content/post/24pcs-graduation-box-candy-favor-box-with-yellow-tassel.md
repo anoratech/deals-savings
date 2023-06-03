@@ -1,7 +1,7 @@
 ---
 title: 24pcs Graduation Box Candy Favor Box with Yellow Tassel
 date: 2023-05-29T03:03:25.461Z
-tag: Amazon
+tags: Amazon
 description: >
   24pcs Graduation Box Candy Favor Box with Yellow Tassel: Celebrate the
   graduate in style with these delightful candy favor boxes, adorned with a
