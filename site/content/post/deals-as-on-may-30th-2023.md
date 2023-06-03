@@ -1,6 +1,7 @@
 ---
 title: Deals as on May 30th 2023
 date: 2023-05-30T15:06:33.008Z
+tags: Amazon
 description: >-
   Slicksavers are a participant in the Amazon LLC Associates Program, an
   affiliate advertising program designed to provide a means for sites to earn
