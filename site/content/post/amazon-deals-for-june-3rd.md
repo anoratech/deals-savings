@@ -37,7 +37,7 @@ ad
 
   PRICE DROP 
 
-  https://amzn.to/42lkG90
+  **https://amzn.to/42lkG90**
 
   AD
 * 𝔾ℝ𝔸𝔹 & 𝔾𝕆
@@ -46,7 +46,7 @@ ad
 
   60% OFF AT CHECKOUT
 
-  https://amzn.to/3qrv6GR
+  **https://amzn.to/3qrv6GR**
 
   AD
 * 50% off 7,8,9, or 10 Tiers Shoe Rack
@@ -55,21 +55,21 @@ ad
 
   The code will auto-apply if not use: 50GZ9VSK
 
-  https://amzn.to/3Nazdjf
+  **https://amzn.to/3Nazdjf**
 
   ad
 * Happy Belly Cream of Chicken Soup 10.5 Ounce
 
   LOWW PRICE
 
-  https://amzn.to/43GVGtL
+  **https://amzn.to/43GVGtL**
 
   AD
 * 24- Irish Spring Icy Blast Bar Soap
 
   ‼ PRICE DROP ‼
 
-  https://amzn.to/42nAvf6
+  **https://amzn.to/42nAvf6**
 
   AD
 * 40 COUNT AAA BATTERIES!
@@ -78,27 +78,27 @@ ad
 
   40% off with code 40QOAXJC
 
-  https://amzn.to/3ITlgnr
+  **https://amzn.to/3ITlgnr**
 
   ad
 * Mini Heat Press Machine for Pressing Small Objects
 
   50% off with code SOMB4L7S
 
-  https://amzn.to/42omvlw
+  **https://amzn.to/42omvlw**
 
   ad
 * License Toddler & Girls Fisherman Jelly Sandals
 
   𝔾ℝ𝔸𝔹 & 𝔾𝕆
 
-  https://mavely.app.link/e/JjpdDu9olAb
+  **https://mavely.app.link/e/JjpdDu9olAb**
 
   ad
 * 10-Piece Kitchen Oven Baking Pans
 
   ‼ price drop
 
-  https://amzn.to/3Cd1JKM
+  **https://amzn.to/3Cd1JKM**
 
   ad
