@@ -3,6 +3,7 @@ title: Amazon deals for June 3rd
 date: 2023-06-03T15:03:57.250Z
 tags: Amazon
 description: All our deals posted in our group in one thread!
+image: img/0d93fa28-619c-4c32-8ff1-6755c1ed2a63.jpeg
 ---
 ![](img/0d93fa28-619c-4c32-8ff1-6755c1ed2a63.jpeg "10-inch Doll & Accessories with DIY Craft Painting Project  75% off Grab & go")
 
