@@ -102,3 +102,6 @@ ad
   **https://amzn.to/3Cd1JKM**
 
   ad
+* Self Adhesive Dots, 108 Pairs  50% clip coupon  Grab & go  https://amzn.to/3qndX0S    \
+   ad 
+*
