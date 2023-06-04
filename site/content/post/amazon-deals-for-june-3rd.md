@@ -40,3 +40,21 @@ ad
   https://amzn.to/42lkG90
 
   AD
+* 𝔾ℝ𝔸𝔹 & 𝔾𝕆
+
+  16-MAKEUP REMOVER CLOTHES
+
+  60% OFF AT CHECKOUT
+
+  https://amzn.to/3qrv6GR
+
+  AD
+* 50% off 7,8,9, or 10 Tiers Shoe Rack
+
+  Discount should auto deduct at checkout
+
+  The code will auto-apply if not use: 50GZ9VSK
+
+  https://amzn.to/3Nazdjf
+
+  ad
