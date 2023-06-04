@@ -72,3 +72,19 @@ ad
   https://amzn.to/42nAvf6
 
   AD
+* 40 COUNT AAA BATTERIES!
+
+  𝒢𝑅𝒜𝐵 & 𝒢0
+
+  40% off with code 40QOAXJC
+
+  https://amzn.to/3ITlgnr
+
+  ad
+* Mini Heat Press Machine for Pressing Small Objects
+
+  50% off with code SOMB4L7S
+
+  https://amzn.to/42omvlw
+
+  ad
