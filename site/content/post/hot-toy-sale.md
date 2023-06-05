@@ -138,6 +138,12 @@ image: img/hot-sale.png
 * National Geographic Kids Activity Journal Set With Realistic Animal Toy Figures >> **https://amzn.to/3WT3yGj** ad 
 * ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> **https://amzn.to/3qmeUGJ** ad
 * Learning Resources Holiday Preschool Puzzle Pack - Self-Correcting Puzzles >> ad **https://amzn.to/43ZR7uX**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81eXPaCppFL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Melissa & Doug Deluxe Happy Handle Stamp Set With 10 Stamps >> **https://amzn.to/43GblcH** ad
 * Dino Attack Claw Hunter (24 Darts + 4 Shooting Targets) >> **https://amzn.to/43EQiHF** ad
 * Hot Wheels RC Red Ford F-150, Full-Function Remote-Control Toy Truck >> **https://amzn.to/3OVtmQq** ad
