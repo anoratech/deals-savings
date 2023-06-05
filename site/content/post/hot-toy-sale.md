@@ -37,6 +37,7 @@ image: img/hot-sale.png
 * 2 Pack LCD Writing Tablet with 4 Stylus >> ad **https://amzn.to/45MJYzB**
 * Barbie Chelsea Can Be Playset with Brunette Chelsea Rockstar Doll (6-in) >> ad **https://amzn.to/42phhGb**
 * My Squishy Little Marshmallow – Interactive Doll Collectible with Accessories – Mel (White) >> **https://amzn.to/45XYqoG** ad
+* Erupting Volcano Science Kit for Kids -15 Experiments! >> ad **https://amzn.to/3MR15Yp**
 * Learning Resources STEM Explorers Geomakers - 58 Pieces >> **https://amzn.to/3IUO4fc** ad 
 * X-Shot Dino Attack Extinct Foam Dart Blaster 4 Pack (4 Blasters, 24 Darts, 4 Egg Targets >> **https://amzn.to/3quJUEo** ad
 * Play-Doh Slime Dino Crew Lava Bones Island Volcano Playset with HydroGlitz Eggs and Mix-ins >> **https://amzn.to/45J87XQ** ad
