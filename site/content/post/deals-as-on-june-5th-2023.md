@@ -14,6 +14,13 @@ image: img/hello-may-1-.png
   𝓖ℛ𝓐ℬ 𝓝𝓓 𝓖𝓞\
   https://amzn.to/45OYl6o\
   ad
+* Elmer's Disappearing Purple School Glue Sticks, Washable, 7 Grams, 30 Count
+
+  𝒢𝑅𝒜𝐵 𝒩𝒟 𝒢0
+
+  https://amzn.to/42ivS68
+
+  ad
 
 ![]()
 
