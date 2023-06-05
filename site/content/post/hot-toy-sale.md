@@ -64,6 +64,12 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Barbie Deluxe Hair Chalk Salon Set, >> ad **https://amzn.to/45Ot83i**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91RSEXaESCS._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Disney Encanto, House of Charms Cute Easy Family Board Game with Magic Tokens Based on The Movie >> ad **https://amzn.to/3WNxcwO**
 * CoComelon Veggie Time Surprise >> ad **https://amzn.to/3qv0Sm1** ad 
 * Disney Encanto Isabela Fashion Doll with Dress, Shoes & Hair Pin >> ad **https://amzn.to/3ORnCXN**
