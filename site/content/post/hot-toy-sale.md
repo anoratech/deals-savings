@@ -154,7 +154,19 @@ image: img/hot-sale.png
 * Learning Resources STEM Explorers Geomakers - 58 Pieces >> **https://amzn.to/3IUO4fc** ad 
 * X-Shot Dino Attack Extinct Foam Dart Blaster 4 Pack (4 Blasters, 24 Darts, 4 Egg Targets >> **https://amzn.to/3quJUEo** ad
 * Paw Patrol: The Movie Marshall Play & Say Interactive Puppet – Hand Puppet With Sounds >> ad **https://amzn.to/43nkrLU**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71Ps7WfeN5L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Play-Doh Slime Dino Crew Lava Bones Island Volcano Playset with HydroGlitz Eggs and Mix-ins >> **https://amzn.to/45J87XQ** ad
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/816iMhvbyBL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Disney Junior Doc McStuffins Pet Rescue 8.5 Inch Doc Doll and Accessories >> ad **https://amzn.to/3N9TRjE**
 
   <!--StartFragment-->
