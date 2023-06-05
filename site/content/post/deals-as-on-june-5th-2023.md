@@ -15,7 +15,11 @@ image: img/hello-may-1-.png
 
 ![](https://amzn.to/3qy5Xdi )
 
-![]()
+![](https://amzn.to/3qy5Xdi)
+
+\*﻿Under Armour Women's Charged Pursuit 3 Running Shoe (ad) 
+
+[https://amzn.to/3qy5Xdi](https://amzn.to/3qy5Xdi?fbclid=IwAR0qH9zKC3li8A6m4l_I0YjXVSzZhBa-tXprELNig3qgdRZ9solAnYLrwmU)
 
 
 
