@@ -165,6 +165,12 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Green Toys Tractor - CB , Orange >> **https://amzn.to/3IXEVm2** ad 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71gfgQ+zWyL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * 12 Pcs Hair Scrunchies Velvet Elastic Hair Bands >> ad **https://amzn.to/3CuAYC1** 
 
   <!--StartFragment-->
