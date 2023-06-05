@@ -7,7 +7,17 @@ description: |-
   Join our group for more deals
 image: img/hello-may-1-.png
 ---
-* Crocs Women's Kadie II Flip Flops (ad) <!--StartFragment-->
+* ![]()
+
+
+
+  * **Nivea Men Cool Body Wash with Icy Menthol, 3 Pack of 16.9 Fl Oz Bottles (ad)** [https://amzn.to/3IUiz4Q](https://amzn.to/3IUiz4Q?fbclid=IwAR11XuDMf14QqWNiG0o83x6MENgnV3kjammDzDvWY29IonFl0fIpq8vdHvE)
+
+
+
+  ![]()
+
+  Crocs Women's Kadie II Flip Flops (ad) <!--StartFragment-->
 
   [https://amzn.to/43K36MH](https://amzn.to/43K36MH?fbclid=IwAR07cd2EIO6j78Ce-E2jfvy2Skams5HzUYNx6nOpkCyCyqrXAQzQoN2KX9I)
 * The Pink Stuff - The Miracle All Purpose Cleaning Paste\
