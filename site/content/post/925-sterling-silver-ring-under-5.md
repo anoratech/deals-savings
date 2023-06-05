@@ -7,7 +7,17 @@ description: |
   50% off 
   clip coupon 
   Grab & go 
-image: img/80790bc3-24db-4962-a661-6700636362ef.jpeg
+image: ""
 ---
-https://amzn.to/3oDJ0Fn 
+
+
+<https://amzn.to/3oDJ0Fn> ad
+
+
+
+<!--StartFragment-->
+
+![GULICX 925 Sterling Silver Ring for Women, Adjustable Solid Vintage Silver Thumb Ring, Unisex Resizable Celtic Knot Open Finger Ring, Silver Knuckle Toe Rings for Men Ladies Girls, Gift for Christmas](https://m.media-amazon.com/images/I/61S63R21xhL._AC_UX575_.jpg)
+
+<!--EndFragment-->
 ad
