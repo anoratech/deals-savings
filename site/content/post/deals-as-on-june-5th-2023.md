@@ -7,11 +7,11 @@ description: |-
   Join our group for more deals
 image: img/hello-may-1-.png
 ---
-![](https://amzn.to/43K36MH "* Crocs Women's Kadie II Flip Flops (ad) ")
+* Crocs Women's Kadie II Flip Flops (ad) <!--StartFragment-->
 
-![]()
+  ![Crocs Women Kadie II Flip Flops](https://m.media-amazon.com/images/I/71vQGwPH4VL._AC_UX695_.jpg)
 
-![]()
+![](https://amzn.to/43K36MH)
 
 ![](https://amzn.to/43JHMXI  "✴️ 𝗗𝗼𝗴 𝗣𝘂𝘇𝘇𝗹𝗲 𝗧𝗼𝘆𝘀 (AD) ")
 
