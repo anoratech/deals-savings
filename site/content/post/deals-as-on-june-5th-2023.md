@@ -10,30 +10,32 @@ image: img/hello-may-1-.png
 * Crocs Women's Kadie II Flip Flops (ad) <!--StartFragment-->
 
   [https://amzn.to/43K36MH](https://amzn.to/43K36MH?fbclid=IwAR07cd2EIO6j78Ce-E2jfvy2Skams5HzUYNx6nOpkCyCyqrXAQzQoN2KX9I)
+* The Pink Stuff - The Miracle All Purpose Cleaning Paste\
+  𝓖ℛ𝓐ℬ 𝓝𝓓 𝓖𝓞\
+  https://amzn.to/45OYl6o\
+  ad
 
-  ![](https://amzn.to/43K36MH)
+![]()
 
-![](https://amzn.to/3NeOOi2)
 
-<!--StartFragment-->
 
 * **NYX PROFESSIONAL MAKEUP Soft Matte Lip Cream, Lightweight Liquid Lipstick (AD)**
 
 [https://amzn.to/3NeOOi2](https://amzn.to/3NeOOi2?fbclid=IwAR3KxREGJIzo07XyOBLHB9omLWTfmnaSK8ha2xHForJoCzCZXWZ9DcH2R2I)
 
-![](https://amzn.to/3qy5Xdi)
+![]()
 
 * ﻿Under Armour Women's Charged Pursuit 3 Running Shoe (ad) 
 
 [https://amzn.to/3qy5Xdi](https://amzn.to/3qy5Xdi?fbclid=IwAR0qH9zKC3li8A6m4l_I0YjXVSzZhBa-tXprELNig3qgdRZ9solAnYLrwmU)
 
-![](https://amzn.to/43JHMXI )
-
-![](https://amzn.to/3OVMayD )
+![]()
 
 ![]()
 
-<!--EndFragment-->
+![]()
+
+
 
 * ɢʀᴀʙ ɴᴅ ɢᴏ
 
