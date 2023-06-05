@@ -160,6 +160,12 @@ image: img/hot-sale.png
 * Educational Insights Playfoam Pizza Parlor, With 5 Colors Of Playfoam >> ad **https://amzn.to/3OXZy5s**
 * Green Toys Tractor - CB , Orange >> **https://amzn.to/3IXEVm2** ad 
 * 12 Pcs Hair Scrunchies Velvet Elastic Hair Bands >> ad **https://amzn.to/3CuAYC1** 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81F6+qDLY4L._SL1500_.jpg)
+
+  <!--EndFragment-->
 * L.O.L. Surprise! 707 Neon QT Doll with 7 Surprises in Paper Ball >> ad **https://amzn.to/3CdXPRS**
 
   <!--StartFragment-->
@@ -167,7 +173,8 @@ image: img/hot-sale.png
   ![](https://m.media-amazon.com/images/I/71Bv3MZeyNL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
-* Nerf Elite 2.0 Commander RD-6 Dart Blaster >> **https://amzn.to/43ZR7uX** ad 
+
+
 * Kindi Kids Scented Sisters 6.5" Doll and 2 Accessories - Teenie Tiara >> ad **https://amzn.to/43tywHO**
 
   <!--StartFragment-->
