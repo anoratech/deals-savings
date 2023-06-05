@@ -9,7 +9,7 @@ description: |+
   #walmart
   Now $9.00
   was $16.47 
-  https://shopstyle.it/l/bW6HJ
+  >> https://shopstyle.it/l/bW6HJ
 
 
 image: img/204d8a91-a093-4831-8a03-0b55b0467d9d.jpeg
