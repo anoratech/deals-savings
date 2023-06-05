@@ -7,7 +7,9 @@ image: img/hot-sale.png
 ---
 * Pictionary Air Kids vs Grown-Ups >>  **https://amzn.to/3oMM024** ad 
 * Disney Encanto Doll Figures >> ad **https://amzn.to/3C86IN3** ad 
+* Melissa & Doug Bread and Butter Toaster Set (9 pcs) - Wooden Play Food and Kitchen Accessories >> ad https://amzn.to/3IXGGj8
 * Chuggington - Pop and Transform Chuggers – Wilson - 5" Transforming Train Toy >> ad **https://amzn.to/3MS3h1I**
+* MGA'S Glitter BABYZ Solana Sunburst Baby Doll with 3 Magical Color Changes >> ad **https://amzn.to/3WQNpRF**
 * Barbie Deluxe Hair Chalk Salon Set, >> ad **https://amzn.to/45Ot83i**
 * Disney Encanto, House of Charms Cute Easy Family Board Game with Magic Tokens Based on The Movie >> ad **https://amzn.to/3WNxcwO**
 * CoComelon Veggie Time Surprise >> ad **https://amzn.to/3qv0Sm1** ad 
