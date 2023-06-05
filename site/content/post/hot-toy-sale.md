@@ -153,6 +153,12 @@ image: img/hot-sale.png
 * Erupting Volcano Science Kit for Kids -15 Experiments! >> ad **https://amzn.to/3MR15Yp**
 * Learning Resources STEM Explorers Geomakers - 58 Pieces >> **https://amzn.to/3IUO4fc** ad 
 * X-Shot Dino Attack Extinct Foam Dart Blaster 4 Pack (4 Blasters, 24 Darts, 4 Egg Targets >> **https://amzn.to/3quJUEo** ad
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91OWh+nQoVL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Paw Patrol: The Movie Marshall Play & Say Interactive Puppet – Hand Puppet With Sounds >> ad **https://amzn.to/43nkrLU**
 
   <!--StartFragment-->
