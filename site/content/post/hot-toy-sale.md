@@ -30,7 +30,19 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * My Squishy Little Snack Packs Multipack - Snack-Sized Collectible Toy  ad>> **https://amzn.to/45OblZY**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81-4PY67hTL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * RYAN'S WORLD - Amazon Exclusive – Ultimate Accessory for Your Secret Agent >> ad **https://amzn.to/42Dc91n**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81l6KXCBgQL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Orbeez Water Beads, Sensation Station, The One and Only, 2000 >> ad **https://amzn.to/45PDsrN**
 * Teenage Mutant Ninja Turtles boys Short Sleeve Graphic T-shirt >> ad **https://amzn.to/3OVauRd**
 * Melissa & Doug Flip to Win Travel Memory Game - Wooden Game Board >> ad **https://amzn.to/3WR7TKe**
