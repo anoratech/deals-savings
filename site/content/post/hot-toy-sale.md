@@ -11,11 +11,13 @@ image: img/hot-sale.png
 * Soundiculous - Moose Games: The Hilarious Pocketsize Party Game of Ridiculous Sounds >> ad **https://amzn.to/3Cd3nfA**
 * Super Monkey Ball Banana Mania: Standard Edition - Xbox Series X >> ad **https://amzn.to/3WQZq9H**
 * Mattel Disney and Pixar the Incredibles Mr. Incredible Action Figure, Posable Character in Signature Look, Collectible Toy >> **https://amzn.to/43GdzJ9** ad
+* Polly Pocket Travel Toy >> **https://amzn.to/3NaqsEX** ad
 * Barbie Loves the Ocean Doll with Brown Hair >> ad **https://amzn.to/43JbKLM** 
 * Green Toys Mickey Mouse Submarine - Dark Blue Top >> **https://amzn.to/3oJ4wbH** ad 
 * Disney Encanto Antonio's Tree House Playset with Antonio Doll Figure & Animal Friends >> **https://amzn.to/43LsguJ** ad
 * Kindi Kids Electronic 6.5" Doll and 2 Accessories - Bonni Bubbles Bubble 'N' Sing >> **https://amzn.to/3oEdNBX** ad 
 * ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> ad **https://amzn.to/3MS1VUG**
+* Barbie Extra Mini Minis Doll with Blue Hair, Sporty Outfit, Roller Skates & Accessories & Stand >> ad **https://amzn.to/3X4KFk5**
 * Educational Insights Playfoam Cupcake Cafe Set, With 5 Colors Of Playfoam >> **https://amzn.to/3oKmHh1  ad** 
 * National Geographic Kids Activity Journal Set With Realistic Animal Toy Figures >> **https://amzn.to/3WT3yGj** ad 
 * ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> **https://amzn.to/3qmeUGJ** ad
@@ -30,4 +32,5 @@ image: img/hot-sale.png
 * Educational Insights Playfoam Pizza Parlor, With 5 Colors Of Playfoam >> ad **https://amzn.to/3OXZy5s**
 * Green Toys Tractor - CB , Orange >> **https://amzn.to/3IXEVm2** ad 
 * L.O.L. Surprise! 707 Neon QT Doll with 7 Surprises in Paper Ball >> ad **https://amzn.to/3CdXPRS**
-* Nerf Elite 2.0 Commander RD-6 Dart Blaster >> **https://amzn.to/43ZR7uX** ad
+* Nerf Elite 2.0 Commander RD-6 Dart Blaster >> **https://amzn.to/43ZR7uX** ad 
+* Kindi Kids Scented Sisters 6.5" Doll and 2 Accessories - Teenie Tiara >> ad **https://amzn.to/43tywHO**
