@@ -36,9 +36,33 @@ image: img/hot-sale.png
 
   ![](https://m.media-amazon.com/images/I/81nS6zhi9nL._AC_UX679_.jpg)
 * Disney Encanto Doll Figures >> ad **https://amzn.to/3C86IN3** ad 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71I5Fgi0NnL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Melissa & Doug Bread and Butter Toaster Set (9 pcs) - Wooden Play Food and Kitchen Accessories >> ad https://amzn.to/3IXGGj8
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/717stxDsnkL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Chuggington - Pop and Transform Chuggers – Wilson - 5" Transforming Train Toy >> ad **https://amzn.to/3MS3h1I**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71rS0GquZwL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * MGA'S Glitter BABYZ Solana Sunburst Baby Doll with 3 Magical Color Changes >> ad **https://amzn.to/3WQNpRF**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81f1vYa-NPL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Barbie Deluxe Hair Chalk Salon Set, >> ad **https://amzn.to/45Ot83i**
 * Disney Encanto, House of Charms Cute Easy Family Board Game with Magic Tokens Based on The Movie >> ad **https://amzn.to/3WNxcwO**
 * CoComelon Veggie Time Surprise >> ad **https://amzn.to/3qv0Sm1** ad 
