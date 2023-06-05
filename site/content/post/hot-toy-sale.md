@@ -178,7 +178,19 @@ image: img/hot-sale.png
   <!--EndFragment-->
 * Green Toys Mickey Mouse Submarine - Dark Blue Top >> **https://amzn.to/3oJ4wbH** ad 
 * Disney Encanto Antonio's Tree House Playset with Antonio Doll Figure & Animal Friends >> **https://amzn.to/43LsguJ** ad
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/8102dymWb0L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Kindi Kids Electronic 6.5" Doll and 2 Accessories - Bonni Bubbles Bubble 'N' Sing >> **https://amzn.to/3oEdNBX** ad 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81lEBgau4qS._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Play-Doh Kitchen Creations Pizza Oven Playset >> ad **https://amzn.to/3OT55ds**
 * ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> ad **https://amzn.to/3MS1VUG**
 * Barbie Extra Mini Minis Doll with Blue Hair, Sporty Outfit, Roller Skates & Accessories & Stand >> ad **https://amzn.to/3X4KFk5**
