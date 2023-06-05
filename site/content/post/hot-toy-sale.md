@@ -71,6 +71,12 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Disney Encanto, House of Charms Cute Easy Family Board Game with Magic Tokens Based on The Movie >> ad **https://amzn.to/3WNxcwO**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91oWRh-rlfL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * CoComelon Veggie Time Surprise >> ad **https://amzn.to/3qv0Sm1** ad 
 * Disney Encanto Isabela Fashion Doll with Dress, Shoes & Hair Pin >> ad **https://amzn.to/3ORnCXN**
 * Monster Jam Mini Freestyle Flip Arena Playset and Storage with 2 Mini Monster Jam Trucks >> ad **https://amzn.to/3NdafQw**
