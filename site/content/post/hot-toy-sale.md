@@ -28,4 +28,5 @@ image: img/hot-sale.png
 * Play-Doh Slime Dino Crew Lava Bones Island Volcano Playset with HydroGlitz Eggs and Mix-ins >> **https://amzn.to/45J87XQ** ad
 * Educational Insights Playfoam Pizza Parlor, With 5 Colors Of Playfoam >> ad **https://amzn.to/3OXZy5s**
 * Green Toys Tractor - CB , Orange >> **https://amzn.to/3IXEVm2** ad 
-* L.O.L. Surprise! 707 Neon QT Doll with 7 Surprises in Paper Ball >> ad https://amzn.to/3CdXPRS
+* L.O.L. Surprise! 707 Neon QT Doll with 7 Surprises in Paper Ball >> ad **https://amzn.to/3CdXPRS**
+* Nerf Elite 2.0 Commander RD-6 Dart Blaster >> **https://amzn.to/43ZR7uX** ad
