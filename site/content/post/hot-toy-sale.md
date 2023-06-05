@@ -6,6 +6,7 @@ description: Snag these cool toys at low price!
 image: img/hot-sale.png
 ---
 * Pictionary Air Kids vs Grown-Ups >>  **https://amzn.to/3oMM024** ad 
+* Wizarding World Harry Potter, 8-inch Harry Potter Doll Gift Set with Invisibility Cloak and 5 Doll Accessories >> **https://amzn.to/3CgzbA0** ad 
 * Soggy Doggy, The Showering Shaking Wet Dog Award-Winning Kids Game Board Game >> **https://amzn.to/3oKBLey** ad 
 * NERF DinoSquad Raptor-Slash Dart Blaster, 6-Dart >> **https://amzn.to/45XZVTQ** ad 
 * PlayMonster Science4you — Coding Lab — 10 Experiments to Learn How to Code >> **https://amzn.to/43s4ion** ad 
@@ -34,6 +35,7 @@ image: img/hot-sale.png
 * Play-Doh Slime Dino Crew Lava Bones Island Volcano Playset with HydroGlitz Eggs and Mix-ins >> **https://amzn.to/45J87XQ** ad
 * Educational Insights Playfoam Pizza Parlor, With 5 Colors Of Playfoam >> ad **https://amzn.to/3OXZy5s**
 * Green Toys Tractor - CB , Orange >> **https://amzn.to/3IXEVm2** ad 
+* 12 Pcs Hair Scrunchies Velvet Elastic Hair Bands >> ad **https://amzn.to/3CuAYC1** 
 * L.O.L. Surprise! 707 Neon QT Doll with 7 Surprises in Paper Ball >> ad **https://amzn.to/3CdXPRS**
 * Nerf Elite 2.0 Commander RD-6 Dart Blaster >> **https://amzn.to/43ZR7uX** ad 
 * Kindi Kids Scented Sisters 6.5" Doll and 2 Accessories - Teenie Tiara >> ad **https://amzn.to/43tywHO**
