@@ -78,6 +78,8 @@ image: img/hello-may-1-.png
       <https://amzn.to/3OUiyBM>
     * Huggies Nourish Baby Diaper Wipes, Scented Baby Wipes, 6 Push Button Packs (336 Wipes Total) (AD)\
       <https://amzn.to/42jAedn>
+    * OGX Extra Strength Hydrate & Repair + Argan Oil of Morocco Shampoo (AD)\
+      <https://amzn.to/43KueLU>
 
 
   *
