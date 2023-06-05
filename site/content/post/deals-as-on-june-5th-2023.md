@@ -81,6 +81,10 @@ image: img/hello-may-1-.png
 
       * Amazon Fire HD 8 Kids tablet, 8" HD display (AD)\
         <https://amzn.to/3OWzEip>
+      * 12 Pcs Hair Scrunchies Velvet Elastic Hair Bands Scrunchy Hair Ties (AD)\
+        <https://amzn.to/3NbMWFB>
+
+
 
 
   *
