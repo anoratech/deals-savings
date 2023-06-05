@@ -11,9 +11,7 @@ image: img/hello-may-1-.png
 
   [https://amzn.to/43K36MH](https://amzn.to/43K36MH?fbclid=IwAR07cd2EIO6j78Ce-E2jfvy2Skams5HzUYNx6nOpkCyCyqrXAQzQoN2KX9I)
 
-  <!--EndFragment-->
-
-  ![Crocs Women Kadie II Flip Flops](https://m.media-amazon.com/images/I/71vQGwPH4VL._AC_UX695_.jpg)
+  ![Crocs Women Kadie II Flip Flops](https://amzn.to/43K36MH)
 
 ![](https://amzn.to/3qy5Xdi )
 
