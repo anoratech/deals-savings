@@ -31,18 +31,10 @@ image: img/hot-sale.png
   ![](https://m.media-amazon.com/images/I/612X7OSxpHS._AC_UX679_.jpg)
 * Melissa & Doug Flip to Win Travel Memory Game - Wooden Game Board >> ad **https://amzn.to/3WR7TKe**
 
-  <!--StartFragment-->
-
   ![](https://m.media-amazon.com/images/I/81+Pa2gzKRL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Nautica Boys' Long Sleeve Fleece Full Zip Jacket >> ad **https://amzn.to/3IX6kob**
 
-  <!--StartFragment-->
-
-  ![Nautica Boys\&#39; Long Sleeve Fleece Full Zip Jacket](https://m.media-amazon.com/images/I/81nS6zhi9nL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
+  ![](https://m.media-amazon.com/images/I/81nS6zhi9nL._AC_UX679_.jpg)
 * Disney Encanto Doll Figures >> ad **https://amzn.to/3C86IN3** ad 
 * Melissa & Doug Bread and Butter Toaster Set (9 pcs) - Wooden Play Food and Kitchen Accessories >> ad https://amzn.to/3IXGGj8
 * Chuggington - Pop and Transform Chuggers – Wilson - 5" Transforming Train Toy >> ad **https://amzn.to/3MS3h1I**
