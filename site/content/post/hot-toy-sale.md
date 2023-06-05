@@ -6,10 +6,12 @@ description: Snag these cool toys at low price!
 image: img/hot-sale.png
 ---
 * Pictionary Air Kids vs Grown-Ups >>  **https://amzn.to/3oMM024** ad 
+* Barbie Deluxe Hair Chalk Salon Set, >> ad **https://amzn.to/45Ot83i**
 * Disney Encanto, House of Charms Cute Easy Family Board Game with Magic Tokens Based on The Movie >> ad **https://amzn.to/3WNxcwO**
 * CoComelon Veggie Time Surprise >> ad **https://amzn.to/3qv0Sm1** ad 
 * Disney Encanto Isabela Fashion Doll with Dress, Shoes & Hair Pin >> ad **https://amzn.to/3ORnCXN**
 * Monster Jam Mini Freestyle Flip Arena Playset and Storage with 2 Mini Monster Jam Trucks >> ad **https://amzn.to/3NdafQw**
+* Disney Junior Mickey Mouse Helping Hands Dress Up Trunk >> ad **https://amzn.to/45JZYm1**
 * Wizarding World Harry Potter, 8-inch Harry Potter Doll Gift Set with Invisibility Cloak and 5 Doll Accessories >> **https://amzn.to/3CgzbA0** ad 
 * Soggy Doggy, The Showering Shaking Wet Dog Award-Winning Kids Game Board Game >> **https://amzn.to/3oKBLey** ad 
 * NERF DinoSquad Raptor-Slash Dart Blaster, 6-Dart >> **https://amzn.to/45XZVTQ** ad 
