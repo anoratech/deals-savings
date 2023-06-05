@@ -25,12 +25,10 @@ image: img/hot-sale.png
   ![](https://m.media-amazon.com/images/I/81l6KXCBgQL._AC_SL1500_.jpg)
 * Orbeez Water Beads, Sensation Station, The One and Only, 2000 >> ad **https://amzn.to/45PDsrN**
 
-  <!--StartFragment-->
-
   ![](https://m.media-amazon.com/images/I/91xVU-VM9HL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Teenage Mutant Ninja Turtles boys Short Sleeve Graphic T-shirt >> ad **https://amzn.to/3OVauRd**
+
+  ![](https://m.media-amazon.com/images/I/612X7OSxpHS._AC_UX679_.jpg)
 * Melissa & Doug Flip to Win Travel Memory Game - Wooden Game Board >> ad **https://amzn.to/3WR7TKe**
 * Nautica Boys' Long Sleeve Fleece Full Zip Jacket >> ad **https://amzn.to/3IX6kob**
 * Disney Encanto Doll Figures >> ad **https://amzn.to/3C86IN3** ad 
