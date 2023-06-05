@@ -11,7 +11,7 @@ image: img/hello-may-1-.png
 
   ![]()
 
-  * **Nivea Men Cool Body Wash with Icy Menthol, 3 Pack of 16.9 Fl Oz Bottles (ad)** [https://amzn.to/3IUiz4Q](https://amzn.to/3IUiz4Q?fbclid=IwAR11XuDMf14QqWNiG0o83x6MENgnV3kjammDzDvWY29IonFl0fIpq8vdHvE)
+
 
   ![]()
 
@@ -29,6 +29,7 @@ image: img/hello-may-1-.png
   https://amzn.to/3CbnNp9
 
   ad
+* **Nivea Men Cool Body Wash with Icy Menthol, 3 Pack of 16.9 Fl Oz Bottles (ad)** [https://amzn.to/3IUiz4Q](https://amzn.to/3IUiz4Q?fbclid=IwAR11XuDMf14QqWNiG0o83x6MENgnV3kjammDzDvWY29IonFl0fIpq8vdHvE)
 * Area Rugs for Living Room
 
   price drop
@@ -63,31 +64,24 @@ image: img/hello-may-1-.png
   \>https://amzn.to/3qiDKHq
 
   ad
+* Disney Minnie Mouse My Own Creativity Set (ad)
 
-  * Disney Minnie Mouse My Own Creativity Set (ad)
+  ﻿https://amzn.to/3oDX0io 
+* Banana Boat Light As Air Faces, Broad Spectrum Sunscreen Lotion, SPF 50, 3oz. (ad)
 
-    ﻿https://amzn.to/3oDX0io 
-
-    * Banana Boat Light As Air Faces, Broad Spectrum Sunscreen Lotion, SPF 50, 3oz. (ad)
-
-    https://amzn.to/3CaI1Q3
-
-    * Permanent Markers 24 Count (AD)\
-      <https://amzn.to/43FyY5e>
-    * Na Na Na Surprise Sweetest Gems™ Marina Tealstone 7.5" Fashion Doll (AD)\
-      <https://amzn.to/3OUiyBM>
-    * Huggies Nourish Baby Diaper Wipes, Scented Baby Wipes, 6 Push Button Packs (336 Wipes Total) (AD)\
-      <https://amzn.to/42jAedn>
-
-      * Amazon Fire HD 8 Kids tablet, 8" HD display (AD)\
-        <https://amzn.to/3OWzEip>
-      * 12 Pcs Hair Scrunchies Velvet Elastic Hair Bands Scrunchy Hair Ties (AD)\
-        [https://amzn.to/3NbMWF](https://amzn.to/3NbMWFB)
-
-
-
-
-  *
+  https://amzn.to/3CaI1Q3
+* Permanent Markers 24 Count (AD)\
+  <https://amzn.to/43FyY5e>
+* Na Na Na Surprise Sweetest Gems™ Marina Tealstone 7.5" Fashion Doll (AD)\
+  <https://amzn.to/3OUiyBM>
+* Huggies Nourish Baby Diaper Wipes, Scented Baby Wipes, 6 Push Button Packs (336 Wipes Total) (AD)\
+  <https://amzn.to/42jAedn>
+* Amazon Fire HD 8 Kids tablet, 8" HD display (AD)\
+  <https://amzn.to/3OWzEip>
+* 12 Pcs Hair Scrunchies Velvet Elastic Hair Bands Scrunchy Hair Ties (AD)\
+  [https://amzn.to/3NbMWF](https://amzn.to/3NbMWFB)
+*
+*
 
 ![]()
 
@@ -112,8 +106,6 @@ image: img/hello-may-1-.png
 * Disney Minnie Mouse My Own Creativity Set [https://amzn.to/3oDX0io](https://l.facebook.com/l.php?u=https%3A%2F%2Famzn.to%2F3oDX0io%3Ffbclid%3DIwAR0npMclj420aYMbuZBJcW3yg3chE-6jTVnldDNh8BnSd90joNrfPp8h52w&h=AT28hT8YjpT6UUp70eRFtKqvJDAi3nH3GM3ArIz5OzAy887m2G5IwIKgum2d9hbU7ruIaQ2XcLh1MeNOpHFJAcJ_EoJsV-DaNDatts7-rXmRfHBBWVSYTYcgniUgHrP_eClw-G_UYYgXw8B7LrlK&__tn__=R]-R&c[0]=AT1AuyopnbxpeMdfEZ9jQoJYC6p4kiAMCJZvmU7OCnEzN461rBdrpbLPPkJCd8XrQLgC9Pjq14rIRT0TeEXah2hk6kPeMq9yxnZMNs0mXHSCMdTrD4PrYbMRb0R16wQgDf_LepTbfSxFmyinQ4y2aEII9iP8DRXY7IiEgWo)
 
 (AD) 
-
-
 
 * OGX Extra Strength Hydrate & Repair + Argan Oil of Morocco Shampoo (AD)\
   <https://amzn.to/43KueLU>
