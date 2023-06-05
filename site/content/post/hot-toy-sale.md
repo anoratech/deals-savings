@@ -244,8 +244,18 @@ image: img/hot-sale.png
   <!--EndFragment-->
 * Dino Attack Claw Hunter (24 Darts + 4 Shooting Targets) >> **https://amzn.to/43EQiHF** ad
 
+  <!--StartFragment-->
 
+  ![](https://m.media-amazon.com/images/I/81mBgEjbepL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Hot Wheels RC Red Ford F-150, Full-Function Remote-Control Toy Truck >> **https://amzn.to/3OVtmQq** ad
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71CGa6eVpzL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * 2 Pack LCD Writing Tablet with 4 Stylus >> ad **https://amzn.to/45MJYzB**
 
   <!--StartFragment-->
@@ -256,7 +266,19 @@ image: img/hot-sale.png
 * Barbie Chelsea Can Be Playset with Brunette Chelsea Rockstar Doll (6-in) >> ad **https://amzn.to/42phhGb**
 * My Squishy Little Marshmallow – Interactive Doll Collectible with Accessories – Mel (White) >> **https://amzn.to/45XYqoG** ad
 * Erupting Volcano Science Kit for Kids -15 Experiments! >> ad **https://amzn.to/3MR15Yp**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81IGjYS3fNL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Learning Resources STEM Explorers Geomakers - 58 Pieces >> **https://amzn.to/3IUO4fc** ad 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71iylLDNYAL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * X-Shot Dino Attack Extinct Foam Dart Blaster 4 Pack (4 Blasters, 24 Darts, 4 Egg Targets >> **https://amzn.to/3quJUEo** ad
 
   <!--StartFragment-->
