@@ -6,6 +6,7 @@ description: Snag these cool toys at low price!
 image: img/hot-sale.png
 ---
 * Pictionary Air Kids vs Grown-Ups >>  **https://amzn.to/3oMM024** ad 
+* Nautica Boys' Long Sleeve Fleece Full Zip Jacket >> ad **https://amzn.to/3IX6kob**
 * Disney Encanto Doll Figures >> ad **https://amzn.to/3C86IN3** ad 
 * Melissa & Doug Bread and Butter Toaster Set (9 pcs) - Wooden Play Food and Kitchen Accessories >> ad https://amzn.to/3IXGGj8
 * Chuggington - Pop and Transform Chuggers – Wilson - 5" Transforming Train Toy >> ad **https://amzn.to/3MS3h1I**
@@ -47,6 +48,7 @@ image: img/hot-sale.png
 * Learning Resources STEM Explorers Geomakers - 58 Pieces >> **https://amzn.to/3IUO4fc** ad 
 * X-Shot Dino Attack Extinct Foam Dart Blaster 4 Pack (4 Blasters, 24 Darts, 4 Egg Targets >> **https://amzn.to/3quJUEo** ad
 * Play-Doh Slime Dino Crew Lava Bones Island Volcano Playset with HydroGlitz Eggs and Mix-ins >> **https://amzn.to/45J87XQ** ad
+* Disney Junior Doc McStuffins Pet Rescue 8.5 Inch Doc Doll and Accessories >> ad **https://amzn.to/3N9TRjE**
 * Funko Disney Mickey and The Beanstalk Game >> ad **https://amzn.to/42oxtY0**
 * Educational Insights Playfoam Pizza Parlor, With 5 Colors Of Playfoam >> ad **https://amzn.to/3OXZy5s**
 * Green Toys Tractor - CB , Orange >> **https://amzn.to/3IXEVm2** ad 
