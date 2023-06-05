@@ -1,5 +1,5 @@
 ---
-title: HOT toy sale!
+title: HOT toy sale under $10!
 date: 2023-06-05T02:27:18.104Z
 tags: amazon
 description: Snag these cool toys at low price!
