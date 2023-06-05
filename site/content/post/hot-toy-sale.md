@@ -213,6 +213,12 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Educational Insights Playfoam Cupcake Cafe Set, With 5 Colors Of Playfoam >> **https://amzn.to/3oKmHh1  ad** 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81W0RmO9UHL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * National Geographic Kids Activity Journal Set With Realistic Animal Toy Figures >> **https://amzn.to/3WT3yGj** ad 
 * ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> **https://amzn.to/3qmeUGJ** ad
 * Learning Resources Holiday Preschool Puzzle Pack - Self-Correcting Puzzles >> ad **https://amzn.to/43ZR7uX**
