@@ -156,6 +156,12 @@ image: img/hot-sale.png
 * Paw Patrol: The Movie Marshall Play & Say Interactive Puppet – Hand Puppet With Sounds >> ad **https://amzn.to/43nkrLU**
 * Play-Doh Slime Dino Crew Lava Bones Island Volcano Playset with HydroGlitz Eggs and Mix-ins >> **https://amzn.to/45J87XQ** ad
 * Disney Junior Doc McStuffins Pet Rescue 8.5 Inch Doc Doll and Accessories >> ad **https://amzn.to/3N9TRjE**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81maV5DVy6L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Funko Disney Mickey and The Beanstalk Game >> ad **https://amzn.to/42oxtY0**
 
   <!--StartFragment-->
