@@ -74,8 +74,10 @@ image: img/hello-may-1-.png
 
     * Permanent Markers 24 Count (AD)\
       <https://amzn.to/43FyY5e>
+    * Na Na Na Surprise Sweetest Gems™ Marina Tealstone 7.5" Fashion Doll (AD)\
+      <https://amzn.to/3OUiyBM>
 
-    ﻿
+
   *
 
 ![]()
