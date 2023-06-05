@@ -78,10 +78,34 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * CoComelon Veggie Time Surprise >> ad **https://amzn.to/3qv0Sm1** ad 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71MbPhxwjVL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Disney Encanto Isabela Fashion Doll with Dress, Shoes & Hair Pin >> ad **https://amzn.to/3ORnCXN**
 * Monster Jam Mini Freestyle Flip Arena Playset and Storage with 2 Mini Monster Jam Trucks >> ad **https://amzn.to/3NdafQw**
-* Disney Junior Mickey Mouse Helping Hands Dress Up Trunk >> ad **https://amzn.to/45JZYm1**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71iep0nQXVL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* Disney Junior Mickey Mouse Helping Hands Dress Up Trunk >> ad **https://amzn.to/45JZYm**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81ukYSaWU9S._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Wizarding World Harry Potter, 8-inch Harry Potter Doll Gift Set with Invisibility Cloak and 5 Doll Accessories >> **https://amzn.to/3CgzbA0** ad 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81K0-Gp3NDL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Soggy Doggy, The Showering Shaking Wet Dog Award-Winning Kids Game Board Game >> **https://amzn.to/3oKBLey** ad 
 * NERF DinoSquad Raptor-Slash Dart Blaster, 6-Dart >> **https://amzn.to/45XZVTQ** ad 
 * PlayMonster Science4you — Coding Lab — 10 Experiments to Learn How to Code >> **https://amzn.to/43s4ion** ad 
