@@ -9,11 +9,21 @@ image: img/hello-may-1-.png
 ---
 * Crocs Women's Kadie II Flip Flops (ad) <!--StartFragment-->
 
+  [https://amzn.to/43K36MH](https://amzn.to/43K36MH?fbclid=IwAR07cd2EIO6j78Ce-E2jfvy2Skams5HzUYNx6nOpkCyCyqrXAQzQoN2KX9I)
+
+  <!--EndFragment-->
+
   ![Crocs Women Kadie II Flip Flops](https://m.media-amazon.com/images/I/71vQGwPH4VL._AC_UX695_.jpg)
 
-![](https://amzn.to/43K36MH)
+![](https://amzn.to/3qy5Xdi )
 
-![](https://amzn.to/43JHMXI  "✴️ 𝗗𝗼𝗴 𝗣𝘂𝘇𝘇𝗹𝗲 𝗧𝗼𝘆𝘀 (AD) ")
+![Under Armour Women\&#39;s Charged Pursuit 3 Running Shoe](https://m.media-amazon.com/images/I/81Ax50BDGoL._AC_UX500_.jpg)
+
+<!--EndFragment--> <!--StartFragment-->
+
+Under Armour Women's Charged Pursuit 3 Running Shoe (AD) 
+
+![](https://amzn.to/43JHMXI )
 
 ![](https://amzn.to/3OVMayD )
 
