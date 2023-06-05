@@ -142,6 +142,12 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Soundiculous - Moose Games: The Hilarious Pocketsize Party Game of Ridiculous Sounds >> ad **https://amzn.to/3Cd3nfA**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71BLZrMlKUL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Super Monkey Ball Banana Mania: Standard Edition - Xbox Series X >> ad **https://amzn.to/3WQZq9H**
 
   <!--StartFragment-->
