@@ -9,6 +9,10 @@ image: img/hello-may-1-.png
 ---
 ![](https://amzn.to/43K36MH "* Crocs Women's Kadie II Flip Flops (ad) ")
 
+![🎀Under Armour Women's Charged Pursuit 3 Running Shoe (AD) ](https://amzn.to/3qy5Xdi )
+
+![]()
+
 ![](https://amzn.to/43JHMXI  "✴️ 𝗗𝗼𝗴 𝗣𝘂𝘇𝘇𝗹𝗲 𝗧𝗼𝘆𝘀 (AD) ")
 
 ![]()
