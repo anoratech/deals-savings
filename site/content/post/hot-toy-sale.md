@@ -163,7 +163,19 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Polly Pocket Travel Toy >> **https://amzn.to/3NaqsEX** ad
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71TY8jJDCKL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Barbie Loves the Ocean Doll with Brown Hair >> ad **https://amzn.to/43JbKLM** 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61TBwO6rAxL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Green Toys Mickey Mouse Submarine - Dark Blue Top >> **https://amzn.to/3oJ4wbH** ad 
 * Disney Encanto Antonio's Tree House Playset with Antonio Doll Figure & Animal Friends >> **https://amzn.to/43LsguJ** ad
 * Kindi Kids Electronic 6.5" Doll and 2 Accessories - Bonni Bubbles Bubble 'N' Sing >> **https://amzn.to/3oEdNBX** ad 
