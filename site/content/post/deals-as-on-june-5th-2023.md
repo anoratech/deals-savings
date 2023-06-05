@@ -7,7 +7,7 @@ description: |-
   Join our group for more deals
 image: img/hello-may-1-.png
 ---
-![]( "Crocs Women's Kadie II Flip Flops https://amzn.to/43K36MH (ad) ")
+![](https://amzn.to/43K36MH "* Crocs Women's Kadie II Flip Flops (ad) ")
 
 ![]()
 
