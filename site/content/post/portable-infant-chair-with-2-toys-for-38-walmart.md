@@ -14,7 +14,9 @@ description: >
   was $49.99
 
   Price when purchased online 
+
+  >> https://shopstyle.it/l/bW6GM
 image: img/3c22a0ed-2777-49d5-a31f-975951a4a972.jpeg
 ---
-https://shopstyle.it/l/bW6GM 
+
 ad
