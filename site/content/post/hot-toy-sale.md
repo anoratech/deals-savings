@@ -128,9 +128,27 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Disney/Pixar Luca Little Golden Book (Disney/Pixar Luca) >> **https://amzn.to/3C96Yey** ad 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/P/B08LPDV1Y9.01._SCLZZZZZZZ_SX500_.jpg)
+
+  <!--EndFragment-->
 * Disney Junior Mickey Mouse Funhouse On the Go Doctor Bag, 8 Piece Pretend Play Set with Lights and Sounds Stethoscope >> **https://amzn.to/42ocvIZ** ad
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81wEc42k5YL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Soundiculous - Moose Games: The Hilarious Pocketsize Party Game of Ridiculous Sounds >> ad **https://amzn.to/3Cd3nfA**
 * Super Monkey Ball Banana Mania: Standard Edition - Xbox Series X >> ad **https://amzn.to/3WQZq9H**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81bW3pvJbrL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * Mattel Disney and Pixar the Incredibles Mr. Incredible Action Figure, Posable Character in Signature Look, Collectible Toy >> **https://amzn.to/43GdzJ9** ad
 * Polly Pocket Travel Toy >> **https://amzn.to/3NaqsEX** ad
 * Barbie Loves the Ocean Doll with Brown Hair >> ad **https://amzn.to/43JbKLM** 
