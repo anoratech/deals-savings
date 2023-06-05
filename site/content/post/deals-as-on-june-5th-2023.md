@@ -27,6 +27,7 @@ image: img/hello-may-1-.png
   https://amzn.to/3WREWh5
 
   ad
+* t﻿oys under $10 https://slicksavers.com/post/hot-toy-sale/
 * Elmer's Disappearing Purple School Glue Sticks, Washable, 7 Grams, 30 Count
 
   𝒢𝑅𝒜𝐵 𝒩𝒟 𝒢0
