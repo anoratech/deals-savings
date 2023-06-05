@@ -32,6 +32,8 @@ image: img/hot-sale.png
 * Melissa & Doug Deluxe Happy Handle Stamp Set With 10 Stamps >> **https://amzn.to/43GblcH** ad
 * Dino Attack Claw Hunter (24 Darts + 4 Shooting Targets) >> **https://amzn.to/43EQiHF** ad
 * Hot Wheels RC Red Ford F-150, Full-Function Remote-Control Toy Truck >> **https://amzn.to/3OVtmQq** ad
+* 2 Pack LCD Writing Tablet with 4 Stylus >> ad **https://amzn.to/45MJYzB**
+* Barbie Chelsea Can Be Playset with Brunette Chelsea Rockstar Doll (6-in) >> ad **https://amzn.to/42phhGb**
 * My Squishy Little Marshmallow – Interactive Doll Collectible with Accessories – Mel (White) >> **https://amzn.to/45XYqoG** ad
 * Learning Resources STEM Explorers Geomakers - 58 Pieces >> **https://amzn.to/3IUO4fc** ad 
 * X-Shot Dino Attack Extinct Foam Dart Blaster 4 Pack (4 Blasters, 24 Darts, 4 Egg Targets >> **https://amzn.to/3quJUEo** ad
