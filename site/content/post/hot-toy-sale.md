@@ -6,6 +6,8 @@ description: Snag these cool toys at low price!
 image: img/hot-sale.png
 ---
 * Melissa & Doug USA Map Floor Puzzle (51 pcs, 2 x 3 feet), Multi >> ad **https://amzn.to/42vUada**
+
+  ![](https://m.media-amazon.com/images/I/71pcWf3RsPL._AC_SL1500_.jpg)
 * Pictionary Air Kids vs Grown-Ups >>  **https://amzn.to/3oMM024** ad 
 * Goliath Donut Dash Game w/ 24pc Puzzle >> ad **https://amzn.to/3qnMvA6**
 * Creative Roots Mosaic Turtle Stepping Stone, Includes 8.25" Ceramic Stepping Stone >> ad **https://amzn.to/3WNxELw**
