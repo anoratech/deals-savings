@@ -192,8 +192,26 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Play-Doh Kitchen Creations Pizza Oven Playset >> ad **https://amzn.to/3OT55ds**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61gDNYa7GRL._AC_SL1000_.jpg)
+
+  <!--EndFragment-->
 * ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> ad **https://amzn.to/3MS1VUG**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81PeqEiTehL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Barbie Extra Mini Minis Doll with Blue Hair, Sporty Outfit, Roller Skates & Accessories & Stand >> ad **https://amzn.to/3X4KFk5**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/714Gy9xfm6L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Educational Insights Playfoam Cupcake Cafe Set, With 5 Colors Of Playfoam >> **https://amzn.to/3oKmHh1  ad** 
 * National Geographic Kids Activity Journal Set With Realistic Animal Toy Figures >> **https://amzn.to/3WT3yGj** ad 
 * ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> **https://amzn.to/3qmeUGJ** ad
