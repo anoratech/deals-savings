@@ -226,7 +226,8 @@ image: img/hot-sale.png
   ![](https://m.media-amazon.com/images/I/91kQUPYSfmL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
-* ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> **https://amzn.to/3qmeUGJ** ad
+
+
 * Learning Resources Holiday Preschool Puzzle Pack - Self-Correcting Puzzles >> ad **https://amzn.to/43ZR7uX**
 
   <!--StartFragment-->
