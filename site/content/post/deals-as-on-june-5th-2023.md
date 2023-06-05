@@ -7,8 +7,10 @@ description: |-
   Join our group for more deals
 image: img/hello-may-1-.png
 ---
+![]( "Crocs Women's Kadie II Flip Flops https://amzn.to/43K36MH (ad) ")
 
+![]()
 
-![](blob:https://slicksavers.com/0dd5ea1e-c277-4fd4-a835-21c6bb8f5286)
+![]()
 
 <!--EndFragment-->
