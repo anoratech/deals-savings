@@ -76,6 +76,12 @@ image: img/hello-may-1-.png
 
 ![]()
 
+
+
+* BIC Soleil Escape Women's Disposable Razors(ad) https://amzn.to/45HiCuV
+
+
+
 ![]()
 
 ![]()
