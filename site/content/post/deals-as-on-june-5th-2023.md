@@ -9,11 +9,7 @@ image: img/hello-may-1-.png
 ---
 * ![]()
 
-
-
   * **Nivea Men Cool Body Wash with Icy Menthol, 3 Pack of 16.9 Fl Oz Bottles (ad)** [https://amzn.to/3IUiz4Q](https://amzn.to/3IUiz4Q?fbclid=IwAR11XuDMf14QqWNiG0o83x6MENgnV3kjammDzDvWY29IonFl0fIpq8vdHvE)
-
-
 
   ![]()
 
@@ -29,6 +25,13 @@ image: img/hello-may-1-.png
   𝒢𝑅𝒜𝐵 𝒩𝒟 𝒢0
 
   https://amzn.to/42ivS68
+
+  ad
+* Hydro Flask Standard Mouth Bottle with Flex Cap
+
+  ‼ price drop ‼
+
+  https://amzn.to/45L2JU8
 
   ad
 * L0ts of coupons in Advil today!✂✂
