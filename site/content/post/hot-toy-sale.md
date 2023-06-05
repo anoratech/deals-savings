@@ -16,7 +16,19 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Goliath Donut Dash Game w/ 24pc Puzzle >> ad **https://amzn.to/3qnMvA6**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71N54yyvA6L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Creative Roots Mosaic Turtle Stepping Stone, Includes 8.25" Ceramic Stepping Stone >> ad **https://amzn.to/3WNxELw**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81bPXl+xCKL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * My Squishy Little Snack Packs Multipack - Snack-Sized Collectible Toy  ad>> **https://amzn.to/45OblZY**
 * RYAN'S WORLD - Amazon Exclusive – Ultimate Accessory for Your Secret Agent >> ad **https://amzn.to/42Dc91n**
 * Orbeez Water Beads, Sensation Station, The One and Only, 2000 >> ad **https://amzn.to/45PDsrN**
