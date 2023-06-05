@@ -107,7 +107,19 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Soggy Doggy, The Showering Shaking Wet Dog Award-Winning Kids Game Board Game >> **https://amzn.to/3oKBLey** ad 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91N3LXBhMJL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * NERF DinoSquad Raptor-Slash Dart Blaster, 6-Dart >> **https://amzn.to/45XZVTQ** ad 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81yfFH2ZdOL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * PlayMonster Science4you — Coding Lab — 10 Experiments to Learn How to Code >> **https://amzn.to/43s4ion** ad 
 * Disney/Pixar Luca Little Golden Book (Disney/Pixar Luca) >> **https://amzn.to/3C96Yey** ad 
 * Disney Junior Mickey Mouse Funhouse On the Go Doctor Bag, 8 Piece Pretend Play Set with Lights and Sounds Stethoscope >> **https://amzn.to/42ocvIZ** ad
