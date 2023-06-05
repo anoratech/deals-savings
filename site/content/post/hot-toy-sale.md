@@ -6,6 +6,8 @@ description: Snag these cool toys at low price!
 image: img/hot-sale.png
 ---
 * Pictionary Air Kids vs Grown-Ups >>  **https://amzn.to/3oMM024** ad 
+* Teenage Mutant Ninja Turtles boys Short Sleeve Graphic T-shirt >> ad **https://amzn.to/3OVauRd**
+* Melissa & Doug Flip to Win Travel Memory Game - Wooden Game Board >> ad **https://amzn.to/3WR7TKe**
 * Nautica Boys' Long Sleeve Fleece Full Zip Jacket >> ad **https://amzn.to/3IX6kob**
 * Disney Encanto Doll Figures >> ad **https://amzn.to/3C86IN3** ad 
 * Melissa & Doug Bread and Butter Toaster Set (9 pcs) - Wooden Play Food and Kitchen Accessories >> ad https://amzn.to/3IXGGj8
