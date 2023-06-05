@@ -9,9 +9,13 @@ image: img/hot-sale.png
 * PlayMonster Science4you — Coding Lab — 10 Experiments to Learn How to Code >> https://amzn.to/43s4ion ad 
 * Disney Junior Mickey Mouse Funhouse On the Go Doctor Bag, 8 Piece Pretend Play Set with Lights and Sounds Stethoscope >> **https://amzn.to/42ocvIZ** ad
 * Soundiculous - Moose Games: The Hilarious Pocketsize Party Game of Ridiculous Sounds >> ad **https://amzn.to/3Cd3nfA**
+* Super Monkey Ball Banana Mania: Standard Edition - Xbox Series X >> ad **https://amzn.to/3WQZq9H**
 * Mattel Disney and Pixar the Incredibles Mr. Incredible Action Figure, Posable Character in Signature Look, Collectible Toy >> **https://amzn.to/43GdzJ9** ad
 * Green Toys Mickey Mouse Submarine - Dark Blue Top >> **https://amzn.to/3oJ4wbH** ad 
 * Disney Encanto Antonio's Tree House Playset with Antonio Doll Figure & Animal Friends >> **https://amzn.to/43LsguJ** ad
+* Kindi Kids Electronic 6.5" Doll and 2 Accessories - Bonni Bubbles Bubble 'N' Sing >> **https://amzn.to/3oEdNBX** ad 
+* National Geographic Kids Activity Journal Set With Realistic Animal Toy Figures >> **https://amzn.to/3WT3yGj** ad 
+* ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> **https://amzn.to/3qmeUGJ** ad
 * Melissa & Doug Deluxe Happy Handle Stamp Set With 10 Stamps >> **https://amzn.to/43GblcH** ad
 * Dino Attack Claw Hunter (24 Darts + 4 Shooting Targets) >> **https://amzn.to/43EQiHF** ad
 * Hot Wheels RC Red Ford F-150, Full-Function Remote-Control Toy Truck >> **https://amzn.to/3OVtmQq** ad
