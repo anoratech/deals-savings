@@ -156,6 +156,12 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * Mattel Disney and Pixar the Incredibles Mr. Incredible Action Figure, Posable Character in Signature Look, Collectible Toy >> **https://amzn.to/43GdzJ9** ad
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61yl7wqj3OL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Polly Pocket Travel Toy >> **https://amzn.to/3NaqsEX** ad
 * Barbie Loves the Ocean Doll with Brown Hair >> ad **https://amzn.to/43JbKLM** 
 * Green Toys Mickey Mouse Submarine - Dark Blue Top >> **https://amzn.to/3oJ4wbH** ad 
