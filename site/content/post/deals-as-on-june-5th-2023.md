@@ -37,6 +37,13 @@ image: img/hello-may-1-.png
   https://amzn.to/3WREWh5
 
   ad
+* Goliath Donut Dash Game w/ 24pc Puzzle
+
+  ‼ PRICE DROP
+
+  https://amzn.to/43L14Mi
+
+  AD
 * t﻿oys under $10 https://slicksavers.com/post/hot-toy-sale/
 * Elmer's Disappearing Purple School Glue Sticks, Washable, 7 Grams, 30 Count
 
