@@ -14,6 +14,8 @@ image: img/hot-sale.png
 * Green Toys Mickey Mouse Submarine - Dark Blue Top >> **https://amzn.to/3oJ4wbH** ad 
 * Disney Encanto Antonio's Tree House Playset with Antonio Doll Figure & Animal Friends >> **https://amzn.to/43LsguJ** ad
 * Kindi Kids Electronic 6.5" Doll and 2 Accessories - Bonni Bubbles Bubble 'N' Sing >> **https://amzn.to/3oEdNBX** ad 
+* ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> ad **https://amzn.to/3MS1VUG**
+* Educational Insights Playfoam Cupcake Cafe Set, With 5 Colors Of Playfoam >> **https://amzn.to/3oKmHh1  ad** 
 * National Geographic Kids Activity Journal Set With Realistic Animal Toy Figures >> **https://amzn.to/3WT3yGj** ad 
 * ART SQUAD Vannah 10-inch Doll & Accessories with DIY Craft Painting Project >> **https://amzn.to/3qmeUGJ** ad
 * Melissa & Doug Deluxe Happy Handle Stamp Set With 10 Stamps >> **https://amzn.to/43GblcH** ad
