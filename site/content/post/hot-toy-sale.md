@@ -55,6 +55,7 @@ image: img/hot-sale.png
 * Erupting Volcano Science Kit for Kids -15 Experiments! >> ad **https://amzn.to/3MR15Yp**
 * Learning Resources STEM Explorers Geomakers - 58 Pieces >> **https://amzn.to/3IUO4fc** ad 
 * X-Shot Dino Attack Extinct Foam Dart Blaster 4 Pack (4 Blasters, 24 Darts, 4 Egg Targets >> **https://amzn.to/3quJUEo** ad
+* Paw Patrol: The Movie Marshall Play & Say Interactive Puppet – Hand Puppet With Sounds >> ad **https://amzn.to/43nkrLU**
 * Play-Doh Slime Dino Crew Lava Bones Island Volcano Playset with HydroGlitz Eggs and Mix-ins >> **https://amzn.to/45J87XQ** ad
 * Disney Junior Doc McStuffins Pet Rescue 8.5 Inch Doc Doll and Accessories >> ad **https://amzn.to/3N9TRjE**
 * Funko Disney Mickey and The Beanstalk Game >> ad **https://amzn.to/42oxtY0**
