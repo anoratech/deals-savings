@@ -158,6 +158,12 @@ image: img/hot-sale.png
 * Disney Junior Doc McStuffins Pet Rescue 8.5 Inch Doc Doll and Accessories >> ad **https://amzn.to/3N9TRjE**
 * Funko Disney Mickey and The Beanstalk Game >> ad **https://amzn.to/42oxtY0**
 * Educational Insights Playfoam Pizza Parlor, With 5 Colors Of Playfoam >> ad **https://amzn.to/3OXZy5s**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/819h7RI7k3L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Green Toys Tractor - CB , Orange >> **https://amzn.to/3IXEVm2** ad 
 * 12 Pcs Hair Scrunchies Velvet Elastic Hair Bands >> ad **https://amzn.to/3CuAYC1** 
 
