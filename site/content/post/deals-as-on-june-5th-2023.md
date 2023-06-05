@@ -66,9 +66,14 @@ image: img/hello-may-1-.png
 
   * Disney Minnie Mouse My Own Creativity Set (ad)
 
-    [https://amzn.to/3oDX0io](https://amzn.to/3oDX0io?fbclid=IwAR3U-m8PvBJ6ohCgMGaqWHw9mSFpifpHD-xYxygB8bfjXv1CE2D4x12YQ8s)
+    ﻿https://amzn.to/3oDX0io 
 
+    * Banana Boat Light As Air Faces, Broad Spectrum Sunscreen Lotion, SPF 50, 3oz. (ad)
 
+    https://amzn.to/3CaI1Q3
+
+    ﻿
+  *
 
 ![]()
 
@@ -87,8 +92,6 @@ image: img/hello-may-1-.png
 * BIC Soleil Escape Women's Disposable Razors(ad) https://amzn.to/45HiCuV
 
 ![]()
-
-
 
 ![]()
 
