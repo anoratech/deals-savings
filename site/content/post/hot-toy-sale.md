@@ -121,6 +121,12 @@ image: img/hot-sale.png
 
   <!--EndFragment-->
 * PlayMonster Science4you — Coding Lab — 10 Experiments to Learn How to Code >> **https://amzn.to/43s4ion** ad 
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71Ih9jr3ExL._AC_SL1000_.jpg)
+
+  <!--EndFragment-->
 * Disney/Pixar Luca Little Golden Book (Disney/Pixar Luca) >> **https://amzn.to/3C96Yey** ad 
 * Disney Junior Mickey Mouse Funhouse On the Go Doctor Bag, 8 Piece Pretend Play Set with Lights and Sounds Stethoscope >> **https://amzn.to/42ocvIZ** ad
 * Soundiculous - Moose Games: The Hilarious Pocketsize Party Game of Ridiculous Sounds >> ad **https://amzn.to/3Cd3nfA**
