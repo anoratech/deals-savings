@@ -6,6 +6,7 @@ description: Snag these cool toys at low price!
 image: img/hot-sale.png
 ---
 * Pictionary Air Kids vs Grown-Ups >>  **https://amzn.to/3oMM024** ad 
+* Chuggington - Pop and Transform Chuggers – Wilson - 5" Transforming Train Toy >> ad **https://amzn.to/3MS3h1I**
 * Barbie Deluxe Hair Chalk Salon Set, >> ad **https://amzn.to/45Ot83i**
 * Disney Encanto, House of Charms Cute Easy Family Board Game with Magic Tokens Based on The Movie >> ad **https://amzn.to/3WNxcwO**
 * CoComelon Veggie Time Surprise >> ad **https://amzn.to/3qv0Sm1** ad 
