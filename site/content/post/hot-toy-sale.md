@@ -157,6 +157,12 @@ image: img/hot-sale.png
 * Play-Doh Slime Dino Crew Lava Bones Island Volcano Playset with HydroGlitz Eggs and Mix-ins >> **https://amzn.to/45J87XQ** ad
 * Disney Junior Doc McStuffins Pet Rescue 8.5 Inch Doc Doll and Accessories >> ad **https://amzn.to/3N9TRjE**
 * Funko Disney Mickey and The Beanstalk Game >> ad **https://amzn.to/42oxtY0**
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71OWIFet+IL._AC_SL1092_.jpg)
+
+  <!--EndFragment-->
 * Educational Insights Playfoam Pizza Parlor, With 5 Colors Of Playfoam >> ad **https://amzn.to/3OXZy5s**
 
   <!--StartFragment-->
