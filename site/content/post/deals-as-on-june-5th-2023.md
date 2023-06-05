@@ -82,7 +82,7 @@ image: img/hello-may-1-.png
       * Amazon Fire HD 8 Kids tablet, 8" HD display (AD)\
         <https://amzn.to/3OWzEip>
       * 12 Pcs Hair Scrunchies Velvet Elastic Hair Bands Scrunchy Hair Ties (AD)\
-        <https://amzn.to/3NbMWFB>
+        [https://amzn.to/3NbMWF](https://amzn.to/3NbMWFB)
 
 
 
@@ -117,3 +117,10 @@ image: img/hello-may-1-.png
 
 * OGX Extra Strength Hydrate & Repair + Argan Oil of Morocco Shampoo (AD)\
   <https://amzn.to/43KueLU>
+*
+
+<!---->
+
+* Dawn Platinum Powerwash Dish Spray, Dish Soap, Apple Scent, 16oz (ad)\
+  ‼️ քʀɨƈɛ ɖʀօք ‼️\
+  <https://amzn.to/3X66YG5>
