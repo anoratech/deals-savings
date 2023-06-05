@@ -78,7 +78,11 @@ image: img/hello-may-1-.png
       <https://amzn.to/3OUiyBM>
     * Huggies Nourish Baby Diaper Wipes, Scented Baby Wipes, 6 Push Button Packs (336 Wipes Total) (AD)\
       <https://amzn.to/42jAedn>
-    *
+
+      * Amazon Fire HD 8 Kids tablet, 8" HD display (AD)\
+        <https://amzn.to/3OWzEip>
+
+
   *
 
 ![]()
