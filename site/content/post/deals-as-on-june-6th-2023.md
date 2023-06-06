@@ -15,3 +15,5 @@ image: img/9ead10a8-1d45-4201-ad3b-45bab1f4b70c.jpg
 * Polly Pocket Playset\
   CODE: TELE20AB \
   <https://amzn.to/3WTiPaf> (AD)
+* OGX Extra Strength Hydrate & Repair + Argan Oil of Morocco Shampoo (ad)\
+  <https://amzn.to/3NhEqGk>
