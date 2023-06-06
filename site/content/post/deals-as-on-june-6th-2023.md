@@ -52,3 +52,14 @@ image: img/9ead10a8-1d45-4201-ad3b-45bab1f4b70c.jpg
   [https://amzn.to/3CxdxrL](https://amzn.to/3CxdxrL?fbclid=IwAR3ffBgALMaI8L1AWDVrhBYebKacV7jXO1Op0OPwdXQkXdQfIViNW6VyIDw)
 
   AD
+* Dove Cucumber and Green Tea Bar Soap.
+
+  PRICE DROP
+
+  [https://amzn.to/3WVF4fQ](https://amzn.to/3WVF4fQ?fbclid=IwAR29i8WVogYhR5lZMluuXobAPtym3iok6DQR7gDgal_uW5U9eyJzt55zSi4)
+
+  AD
+
+
+*
+*
