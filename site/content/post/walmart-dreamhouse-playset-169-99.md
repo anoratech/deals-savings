@@ -1,5 +1,5 @@
 ---
-title: "#WALMART DreamHouse Playset  $169.99 "
+title: "WALMART DreamHouse Playset  $169.99 "
 date: 2023-06-06T14:45:16.551Z
 tags: "WALMART "
 description: "Barbie Deluxe Special Edition 60th DreamHouse Playset with 2
