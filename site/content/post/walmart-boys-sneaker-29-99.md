@@ -1,5 +1,5 @@
 ---
-title: "#WALMART BOYS Sneaker $29.99 "
+title: "WALMART BOYS Sneaker $29.99 "
 date: 2023-06-02T17:10:15.129Z
 tags: Walmart
 description: "PRICE DROP , Skechers Kids Boys Thermoflux 2.0 - Kodron Sneaker "
