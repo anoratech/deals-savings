@@ -1,6 +1,7 @@
 ---
-title: "#WALMART Swim Trunks $11.98 "
+title: "WALMART Swim Trunks $11.98 "
 date: 2023-06-02T14:28:19.866Z
+tags: walmart
 description: |-
   Men's Merica Camo Swim Trunks, Sizes S-3XL 
   FREE SHIPPING 
