@@ -8,3 +8,4 @@ image: img/05d1cbfc-d537-4c84-814d-2e7d219194ca.jpeg
 * https://amzn.to/3WUJovS Ad 
 * https://amzn.to/3OWmj9S Ad 
 * https://amzn.to/3CbNGVU ad
+* 50% off on checkout https://amzn.to/3OXXYQZ ad
