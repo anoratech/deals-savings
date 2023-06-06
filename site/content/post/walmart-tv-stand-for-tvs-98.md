@@ -1,7 +1,7 @@
 ---
-title: "#WALMART TV Stand For TVs  $98 "
+title: "WALMART TV Stand For TVs  $98 "
 date: 2023-06-05T20:49:11.904Z
-tags: "#WALMART "
+tags: "WALMART "
 description: >
   FREE SHIPPING , Better Homes & Gardens Herringbone TV Stand For TVs up to 55”,
   Gray 
