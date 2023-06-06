@@ -1,6 +1,7 @@
 ---
-title: "#WALMART Crocs  SALE $29.99 "
+title: "WALMART Crocs  SALE $29.99 "
 date: 2023-06-02T19:14:01.156Z
+tags: Walmart
 description: "Crocs Unisex Baya Tie Dye Clog Sandal FREE SHIPPING "
 image: https://mavely.app.link/e/rhARjFLhjAb
 ---
