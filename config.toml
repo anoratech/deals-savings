@@ -17,4 +17,4 @@ prism_syntax_highlighting = true
 [markup]
   [markup.goldmark]
     [markup.goldmark.renderer]
-      unsafe = false
+      unsafe = true
