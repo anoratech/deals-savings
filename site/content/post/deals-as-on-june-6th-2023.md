@@ -59,7 +59,3 @@ image: img/9ead10a8-1d45-4201-ad3b-45bab1f4b70c.jpg
   [https://amzn.to/3WVF4fQ](https://amzn.to/3WVF4fQ?fbclid=IwAR29i8WVogYhR5lZMluuXobAPtym3iok6DQR7gDgal_uW5U9eyJzt55zSi4)
 
   AD
-
-
-*
-*
