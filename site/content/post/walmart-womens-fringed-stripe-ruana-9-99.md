@@ -1,6 +1,7 @@
 ---
-title: "#WALMART Women's Fringed Stripe Ruana $9.99 "
+title: "WALMART Women's Fringed Stripe Ruana $9.99 "
 date: 2023-06-02T14:58:03.750Z
+tags: walmart
 description: |-
   Time and Tru Women's Fringed Stripe Ruana 
   FREE SHIPPING 
