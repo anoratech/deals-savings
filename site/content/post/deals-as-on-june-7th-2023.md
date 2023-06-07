@@ -11,6 +11,9 @@ GRAB & GO (AD)
 
 **[https://amzn.to/3OYg2dO](https://amzn.to/3OYg2dO?fbclid=IwAR3srHVCx6YQUHxPIY1I5HsMdd55L7SswQImM8eWbSb7LMK6IYU1B76YMDc)**
 
+* 2 Sonic Electric Toothbrush  Code 50NCI9X5 **<https://amzn.to/3P0neWL>**
+
+  A﻿D <pre><code class="language-js" data-prismjs-copy="Click to Copy">50NCI9X5</code></pre>
 * HURRRYYYYY!!!
 
   ADD 3 TO CART -CHOOSE &S TO SAVE MORE
