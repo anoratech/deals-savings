@@ -1,5 +1,5 @@
 ---
-title: Clog Sandal   Now $24.99
+title: "Clog Sandal   Now $24.99 Walmart "
 date: 2023-06-07T14:22:39.498Z
 tags: walmart
 description: |-
