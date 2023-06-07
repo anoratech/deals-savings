@@ -1,7 +1,7 @@
 ---
 title: " Koala Toddler Girls Knit Sneaker, Sizes 5-10"
 date: 2023-06-07T14:20:16.641Z
-tags: "#shopping #kids #deals"
+tags: walmart
 description: "#Walmart🌟 $9.22 (REG $16.99)"
 image: ""
 ---
