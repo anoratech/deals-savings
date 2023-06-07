@@ -43,4 +43,18 @@ ad
   ad
 
   <!--EndFragment-->
-*
+* <!--StartFragment-->
+
+  Water Shoes 35% Off 
+
+  https://amzn.to/3X0HDgE
+
+  Price Drop + code <pre><code class="language-js" data-prismjs-copy="Click to Copy"><!--StartFragment-->
+
+  35GO4TDD
+
+  <!--EndFragment--></code></pre>
+
+  ad
+
+  <!--EndFragment-->
