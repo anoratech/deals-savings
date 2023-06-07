@@ -74,16 +74,11 @@ PRICE DROP (AD)
 
 [https://amzn.to/43L14Mi](https://amzn.to/43L14Mi?fbclid=IwAR0R9-4fwZ6rLoysSc519VfRdXHuqJh-q7yRdO_CKC6bnnIdaufApPqEPGU)
 
-* PRICE DROP
-  https://amzn.to/42uWv7Q
-  Snack Pack Chocolate Pudding Cups, 4 Count, 12 Pack
-  AD
-* PRICE DROP
-  https://amzn.to/43LOMDv
-  adidas Women's Superlite Relaxed Fit Performance Hat
-  AD
-* PRICE DROP
-  https://amzn.to/45RKTif
-  Super Charades for Kids Board Game - The 'No Reading Required' Family Game by Pressman
-  AD
-*
+* PRICE DROP (ad) Snack Pack Chocolate Pudding Cups, 4 Count, 12 Pack
+  **https://amzn.to/42uWv7Q**
+
+* PRICE DROP -adidas Women's Superlite Relaxed Fit Performance Hat 
+  **https://amzn.to/43LOMDv** 
+
+* PRICE DROP- Super Charades for Kids Board Game - The 'No Reading Required' Family Game by Pressman  (ad)
+  **https://amzn.to/45RKTif**
