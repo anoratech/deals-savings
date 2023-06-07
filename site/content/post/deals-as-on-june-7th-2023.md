@@ -117,4 +117,8 @@ PRICE DROP (AD)
   use the code L2JB5Z6M + CLIP COUPON (AD)
 
   **https://amzn.to/3OYhnRQ**
-*
+* OGX Extra Strength Refreshing Scalp + Teatree Mint
+
+  PRICE DROP + CLIP (AD)
+
+  **https://amzn.to/3ChC1F2**
