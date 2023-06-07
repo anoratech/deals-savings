@@ -20,6 +20,9 @@ GRAB & GO (AD)
   Code 6PJEW8IA <pre><code class="language-js" data-prismjs-copy="Click to Copy">6PJEW8IA</code></pre>
 
   **https://amzn.to/3MUcYNo**
+* 50% off diamond painting kit (AD)
+
+  https://amzn.to/3J0uw9t
 * nintendo switch game **https://amzn.to/42wOL5k** ad
 * Sugar-Free Berry Variety Naturally Flavored Liquid Water Enhancer 4 Count -PRICE DROP >> **https://amzn.to/42sO4Kj** AD
 * Women's Summer Tank Top Lace Sleeveless V Neck T Shirts with Side Split under 10 
