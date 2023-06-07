@@ -5,7 +5,7 @@ tags: "amazon "
 description: Price can change at anytime
 image: img/dns.jpg
 ---
-Hug a Sloth Kit (book with plush)
+* Hug a Sloth Kit (book with plush)
 
 GRAB & GO
 
@@ -15,7 +15,7 @@ ad
 
 <!--EndFragment--> 
 
-<!--StartFragment-->
+* <!--StartFragment-->
 
 nintendo switch game
 
