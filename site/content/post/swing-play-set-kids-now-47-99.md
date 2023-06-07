@@ -1,5 +1,5 @@
 ---
-title: Swing Play Set Kids  Now $47.99
+title: Swing Play Set Kids  Now $47.99 walmart
 date: 2023-06-07T14:38:33.181Z
 tags: walmart
 description: >-
