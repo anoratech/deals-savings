@@ -2,10 +2,11 @@
 title: Kids Outdoor Toys
 date: 2023-06-07T17:20:28.512Z
 tags: "Walmart "
-description: Now $19.99 was $29.99
+description: |-
+  Now $19.99 was $29.99
+  https://shopstyle.it/l/bXdYe
+  AD
 ---
-
-
 
 
 ![](img/screenshot_20230607-142446__01__01.jpg)
