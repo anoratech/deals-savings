@@ -25,6 +25,13 @@ GRAB & GO (AD)
 
 **https://amzn.to/3ChiIf2 ad**
 
+* TODAY ONLY 6/7
+
+  $19.99 Swimsuit
+
+  https://go.shopyourlikes.com/pi/69a2a643ec05443c7cf2c772e32b109171c619e1?afId=725843&afCreativeId=2996
+
+  ad
 * Highly Pigmented Eye Makeup Palette
 
   ‼ price drop
