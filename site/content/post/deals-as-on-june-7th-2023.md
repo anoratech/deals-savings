@@ -30,8 +30,9 @@ GRAB & GO (AD)
 * Womens V Neck T Shirts Short Sleeve Causal Summer Lace Tee Tops under 10 (aD)
 
   **https://amzn.to/3IZMYii** 
-*
-*
+* RUNNNN LAST DAY!!$49 Kate Spade Crossbody bags
+
+  https://shopstyle.it/l/bXeF6 (AD)
 * Large Capacity Egg Holder for Refrigerator,
 
 PRICE DROP (AD )
