@@ -90,9 +90,19 @@ PRICE DROP (AD)
 
 * PRICE DROP (ad) Snack Pack Chocolate Pudding Cups, 4 Count, 12 Pack
   **https://amzn.to/42uWv7Q**
-
 * PRICE DROP -adidas Women's Superlite Relaxed Fit Performance Hat 
   **https://amzn.to/43LOMDv** 
-
 * PRICE DROP- Super Charades for Kids Board Game - The 'No Reading Required' Family Game by Pressman  (ad)
   **https://amzn.to/45RKTif**
+* UNDER 10
+
+  Girls Long Sleeve Ballet Leotards
+
+  LOTS OF OPTIONS
+
+  use the code L2JB5Z6M + CLIP COUPON (AD)
+
+  **https://amzn.to/3OYhnRQ**
+
+
+*
