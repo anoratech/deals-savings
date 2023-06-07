@@ -5,8 +5,6 @@ tags: "amazon "
 description: Price can change at anytime
 image: img/dns.jpg
 ---
-* <!--StartFragment-->
-
 Hug a Sloth Kit (book with plush)
 
 GRAB & GO
@@ -17,55 +15,10 @@ ad
 
 <!--EndFragment--> 
 
-* <!--StartFragment-->
+<!--StartFragment-->
 
-  Angel Soft Toilet Paper, 16 Mega Rolls
+nintendo switch game
 
-  Price Drop
+https://amzn.to/42wOL5k ad
 
-  Grab & go
-
-  https://amzn.to/3IY4dAs
-
-  ad
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  Coleman Pine Scented Citronella Candle with Wooden Crackle Wick - 6 oz Tin
-
-  44% Off
-
-  https://amzn.to/43J2vLo
-
-  Grab & go
-
-  ad
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  Water Shoes 35% Off 
-
-  https://amzn.to/3X0HDgE
-
-  Price Drop + code <pre><code class="language-js" data-prismjs-copy="Click to Copy"><!--StartFragment-->
-
-  35GO4TDD
-
-  <!--EndFragment--></code></pre>
-
-  ad
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  Sesame Street Potty Training Rewards Kit
-
-  Grab & go
-
-  https://amzn.to/3oP57Zk
-
-  ad
-
-  <!--EndFragment-->
+<!--EndFragment-->
