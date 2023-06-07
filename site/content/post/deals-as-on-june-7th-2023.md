@@ -108,7 +108,11 @@ PRICE DROP (AD)
   **https://amzn.to/43LOMDv** 
 * PRICE DROP- Super Charades for Kids Board Game - The 'No Reading Required' Family Game by Pressman  (ad)
   **https://amzn.to/45RKTif**
-*
+* 65% off at checkout
+
+  CLAW HAIR CLIPS
+
+  **https://amzn.to/3MX03dh**
 *
 *
 * UNDER 10
