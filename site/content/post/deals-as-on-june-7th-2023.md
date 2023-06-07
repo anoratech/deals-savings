@@ -25,6 +25,13 @@ GRAB & GO (AD)
 
 **https://amzn.to/3ChiIf2 ad**
 
+* Highly Pigmented Eye Makeup Palette
+
+  ‼ price drop
+
+  **https://amzn.to/3qndsDW**
+
+  ad
 * rush over to shien today
 
   LOTS OF ITEMS IN SALE‼ AD
