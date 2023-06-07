@@ -25,6 +25,11 @@ GRAB & GO (AD)
 
 **https://amzn.to/3ChiIf2 ad**
 
+* 40 oz tumbler
+
+  50% off at checkout
+
+  **https://amzn.to/3MThxHO**
 * TODAY ONLY 6/7
 
   $19.99 Swimsuit
