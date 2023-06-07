@@ -1,5 +1,5 @@
 ---
-title: " Wet/Dry Vacuum with Bonus Car Cleaning Kit   Now $49.00"
+title: " Wet/Dry Vacuum with Bonus Car Cleaning Kit   Now $49.00 Walmart "
 date: 2023-06-07T13:20:46.518Z
 tags: "walmart "
 description: |-
