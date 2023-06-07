@@ -30,6 +30,13 @@ GRAB & GO (AD)
 * Women's Summer Tank Top Lace Sleeveless V Neck T Shirts with Side Split under 10 
 
   https://amzn.to/45Lq2gJ (AD)
+* Chapstick Party Favor Lip Balm Gift Pack Toast to Love 10 Sticks
+
+  𝓖ℛ𝓐ℬ 𝓝𝓓 𝓖𝓞
+
+  save more with s&s (AD)
+
+  https://amzn.to/464eJAr
 * STOCK UP!! 
 
   BUY 1 GET 2 FREE OR 3/$2.79 Freezer bags (AD)
