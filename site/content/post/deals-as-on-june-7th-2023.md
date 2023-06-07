@@ -30,6 +30,11 @@ GRAB & GO (AD)
 * Women's Summer Tank Top Lace Sleeveless V Neck T Shirts with Side Split under 10 
 
   https://amzn.to/45Lq2gJ (AD)
+* STOCK UP!! 
+
+  BUY 1 GET 2 FREE OR 3/$2.79 Freezer bags (AD)
+
+  **https://mavely.app.link/e/aLdvsOXnrAb**
 * Womens V Neck T Shirts Short Sleeve Causal Summer Lace Tee Tops under 10 (aD)
 
   **https://amzn.to/3IZMYii** 
