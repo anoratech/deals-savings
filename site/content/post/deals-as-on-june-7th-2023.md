@@ -5,7 +5,7 @@ tags: "amazon "
 description: Price can change at anytime
 image: img/dns.jpg
 ---
-<!--StartFragment-->
+* <!--StartFragment-->
 
 Hug a Sloth Kit (book with plush)
 
@@ -15,4 +15,18 @@ GRAB & GO
 
 ad
 
-<!--EndFragment-->
+<!--EndFragment--> 
+
+* <!--StartFragment-->
+
+  Angel Soft Toilet Paper, 16 Mega Rolls
+
+  Price Drop
+
+  Grab & go
+
+  https://amzn.to/3IY4dAs
+
+  ad
+
+  <!--EndFragment-->
