@@ -2,7 +2,10 @@
 title: Now $74.99 was $119.99 Pamo Babe Unisex Portable walmart
 date: 2023-06-07T17:42:25.730Z
 tags: "Walmart "
-description: Now $74.99 was $119.99
+description: |-
+  Now $74.99 was $119.99
+  https://shopstyle.it/l/bXdYg
+  AD
 ---
 
 
