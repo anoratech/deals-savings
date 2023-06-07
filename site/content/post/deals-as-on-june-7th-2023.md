@@ -44,6 +44,13 @@ GRAB & GO (AD)
   **https://amzn.to/3qndsDW**
 
   ad
+* GOOO!
+
+  80% off at checkout
+
+  WiFi Extender Signal Booster
+
+  **https://amzn.to/3WT6ItA**
 * rush over to shien today
 
   LOTS OF ITEMS IN SALE‼ AD
