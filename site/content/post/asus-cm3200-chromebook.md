@@ -2,7 +2,10 @@
 title: ASUS CM3200 Chromebook
 date: 2023-06-07T17:07:05.333Z
 tags: "WALMART "
-description: Now $249.00 was $299.00
+description: |-
+  Now $249.00 was $299.00
+  https://shopstyle.it/l/bXdXf
+  AD
 image: null
 ---
 
