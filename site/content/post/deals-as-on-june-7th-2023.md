@@ -22,7 +22,16 @@ GRAB & GO (AD)
   **https://amzn.to/3MUcYNo**
 * 50% off diamond painting kit (AD)
 
-  https://amzn.to/3J0uw9t
+  **https://amzn.to/3J0uw9t**
+* RUNNNNN 
+
+  $29 reg $67
+
+  Create new chewy account then enter code NEWCHEWY
+
+  Add any small extra item to reach $49 before tax. (AD)
+
+  **https://shopstyle.it/l/bXeJx**
 * nintendo switch game **https://amzn.to/42wOL5k** ad
 * Sugar-Free Berry Variety Naturally Flavored Liquid Water Enhancer 4 Count -PRICE DROP >> **https://amzn.to/42sO4Kj** AD
 * Women's Summer Tank Top Lace Sleeveless V Neck T Shirts with Side Split under 10 
