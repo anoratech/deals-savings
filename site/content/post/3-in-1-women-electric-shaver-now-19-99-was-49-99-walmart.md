@@ -2,7 +2,10 @@
 title: "3 IN 1 Women Electric Shaver, Now $19.99 was $49.99 walmart "
 date: 2023-06-07T17:32:10.317Z
 tags: "Walmart "
-description: Now $19.99 was $49.99
+description: |-
+  Now $19.99 was $49.99
+  https://shopstyle.it/l/bXdXg
+  AD
 ---
 
 
