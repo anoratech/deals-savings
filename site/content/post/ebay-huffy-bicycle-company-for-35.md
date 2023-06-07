@@ -10,6 +10,8 @@ description: |
   LINK BELOW
 image: img/s-l500.jpg
 ---
-a﻿d
 
- https://shopstyle.it/l/bXeWF
+
+ **https://shopstyle.it/l/bXeWF**
+
+**A﻿D**
