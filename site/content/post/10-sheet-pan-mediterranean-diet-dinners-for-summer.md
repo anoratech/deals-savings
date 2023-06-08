@@ -19,4 +19,7 @@ description: Indulge in the refreshing flavors of the Mediterranean with our
 3. # Sheet Pan Chicken Thighs with Peppers and Onions
 
    https://www.mediterraneanliving.com/7-mediterranean-sheet-pan-meals/
-4.
+4. # Sheet Pan Salmon and Bell Pepper Dinner
+
+   https://www.allrecipes.com/recipe/262162/sheet-pan-salmon-and-bell-pepper-dinner/
+5.
