@@ -158,6 +158,13 @@ image: img/img-20230608-wa0045.jpg
 * PRICE DROP\
   Welcome Sign Front Door Decoration (AD)\
   **<https://amzn.to/3Pahwlc>**
+* Mama Bear Gentle Touch Diapers, Hypoallergenic, Size 5, 132 Count (4 packs of 33)
+
+  CLIP COUPON IN S&S
+
+  **https://amzn.to/45PUeXP**
+
+  AD
 * Straw Tip Covers, Dust-Proof Straw Cap Toppers 
 
   40%OFF
