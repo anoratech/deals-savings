@@ -61,6 +61,17 @@ image: img/img-20230608-wa0045.jpg
   **[https://amzn.to/3J4NNXb](https://amzn.to/3J4NNXb?fbclid=IwAR0Gt0VB8IycZsaFEA6PV3RWQcjcOZ4kdOfNAE7HwDJuQRjt9RX3VAMtjSc)**
 
   <pre><code class="language-js" data-prismjs-copy="Click to Copy">50L98CKC</code></pre>
+* SUNMORY Modern Arc Floor Lamp with Remote Control and Stepless Dimmer, Black
+
+  **Now $45.99**
+
+  was $59.99
+
+  Price when purchased online
+
+  **[https://shopstyle.it/l/bXhv4](https://shopstyle.it/l/bXhv4?fbclid=IwAR0L7VEpRhT4xwzIv9FzuVxGzVi_tgG1WZheoWk3Aga7T9o64CEZrMbUDEk)**
+
+
 * Marvel Battleworld: Series 2 Treachery at Twilight Battle Ball
 
   price drop (AD)
