@@ -28,4 +28,6 @@ description: Indulge in the refreshing flavors of the Mediterranean with our
 6. # Mediterranean Sheet Pan Chicken Dinner
 
    https://thecafesucrefarine.com/mediterranean-sheet-pan-chicken-dinner/#wprm-recipe-container-36549
-7.
+7. # Sheet Pan Mediterranean Shrimp
+
+   https://gardeninthekitchen.com/sheet-pan-mediterranean-shrimp/
