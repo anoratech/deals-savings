@@ -77,6 +77,12 @@ image: img/download-1-.jpeg
 8. # Mediterranean Chicken and Farro Bake
 
    https://livelytable.com/mediterranean-chicken-and-farro-bake/
+
+
+
+   ![overhead view of white oval baking dish with mozzarella covered chicken, tomatoes, and basil on top of farro.](https://livelytable.com/wp-content/uploads/2020/07/chicken-tomato-farro-bake-7-700x988.jpg)
+
+
 9. # Mediterranean Sheet Pan Chicken and Sweet Potatoes
 
    https://www.sidechef.com/recipes/61371/mediterranean_sheet_pan_chicken_and_sweet_potatoes/
