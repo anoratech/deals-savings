@@ -8,6 +8,13 @@ image: img/img-20230608-wa0045.jpg
 * Amazon Fire 7 Kids Tablet 45% Off 
 
   **https://amzn.to/43L4MFV** ad
+* OMG!!!!
+
+  $9.98 for 92 PC Food storage
+
+  **https://go.shopyourlikes.com/pi/b1d4728c92daa36ea63c8a3ab5f538b73c027021?afId=725843&afCreativeId=2996**
+
+
 * 𝗧𝗵𝗲 𝗖𝗵𝗶𝗹𝗱𝗿𝗲𝗻'𝘀 𝗣𝗹𝗮𝗰𝗲 𝗚𝗶𝗿𝗹𝘀' 𝗗𝗲𝗻𝗶𝗺 𝗠𝗶𝗱𝗶 𝗦𝗵𝗼𝗿𝘁𝘀 (AD)\
   \
   **<https://amzn.to/45VJc3i>**
