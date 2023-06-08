@@ -119,11 +119,11 @@ ad
   Price when purchased online
 
   ad
-* Novashion 5ft x 8ft Shaggy Area Rugs \
-   walmart\
+*  5ft x 8ft Shaggy Area Rugs \
+  #walmart\
   Now $36.99\
   was $56.99\
-  https://shopstyle.it/l/bXhvI\
+  [https://shopstyle.it/l/bXhvI](https://l.facebook.com/l.php?u=https%3A%2F%2Fshopstyle.it%2Fl%2FbXhvI%3Ffbclid%3DIwAR0EHltJS94vvxrLNlVRazYJOMzRGg3-8WdXY9ovCuYUhvP_QHD4EEP2BHs&h=AT3kULzzjVC0fQYvmTWDk2ikWUDecIdY9HhsGRcAPLnoIvks_UsCIZFcbj_Jt6DaylIKFfJr-Z3Ei-ciCsYwRkit8xG7gmRKEoiwvwbqSEujsB4P2s2AHanm1IWPao6rtEripfcWew&__tn__=R]-R&c[0]=AT1aOz6yzpLQnCJW9KeK6C7V6Cy8X73SKre3_PeDI6YjSK3x07SoqvZsY-0vgkyvm4vZxP0tevdZ8yo1Q4zAQM5ZU3vedOHJVg4fzr6baf8cwZ2dkApzBWFc41bnHDkXrugb4z_yggFZ4Yn8qRnlh-thEUz1GZd-_z_MvIo)\
   \
   Price when purchased online\
   Ad
