@@ -192,6 +192,13 @@ image: img/img-20230608-wa0045.jpg
   PRICE DROP
 
   **https://amzn.to/3OZ0h6n**
+* 60%Pampas Grass, LUOHE Natural Dried Pampas Grass  
+
+  Code: 6YHZ8B95 + CLIP
+
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">6YHZ8B95</code></pre>
+
+  **[https://amzn.to/42zgGl8](https://amzn.to/42zgGl8?fbclid=IwAR2hMbz3iNz4l4a_PbpdwskD1B4B0xNqrYaNih7KBNevpJ8gLCfBGOg8l2s)**
 * HURRY!!!
 
   TOWELS FOR .87 CENTS
