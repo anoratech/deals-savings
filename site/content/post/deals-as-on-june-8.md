@@ -14,3 +14,6 @@ description: Prices quoted can change at any time, and supplies may be limited.
   <https://amzn.to/45VJc3i>
 * First Grade, Here I Come! Paperback – Picture Book (AD)\
   <https://amzn.to/42tRCfs>
+* PRICE DROP\
+  Welcome Sign Front Door Decoration (AD)\
+  <https://amzn.to/3Pahwlc>
