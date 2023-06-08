@@ -34,3 +34,6 @@ description: Indulge in the refreshing flavors of the Mediterranean with our
 8. # Mediterranean Chicken and Farro Bake
 
    https://livelytable.com/mediterranean-chicken-and-farro-bake/
+9. # Mediterranean Sheet Pan Chicken and Sweet Potatoes
+
+   https://www.sidechef.com/recipes/61371/mediterranean_sheet_pan_chicken_and_sweet_potatoes/
