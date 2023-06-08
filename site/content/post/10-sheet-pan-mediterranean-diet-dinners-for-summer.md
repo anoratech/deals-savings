@@ -31,3 +31,6 @@ description: Indulge in the refreshing flavors of the Mediterranean with our
 7. # Sheet Pan Mediterranean Shrimp
 
    https://gardeninthekitchen.com/sheet-pan-mediterranean-shrimp/
+8. # Mediterranean Chicken and Farro Bake
+
+   https://livelytable.com/mediterranean-chicken-and-farro-bake/
