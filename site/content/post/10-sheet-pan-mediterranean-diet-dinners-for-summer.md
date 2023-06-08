@@ -50,6 +50,12 @@ image: img/download-1-.jpeg
 5. # Chakchouka (Shakshouka)
 
    https://www.allrecipes.com/recipe/213717/chakchouka-shakshouka/
+
+
+
+   ![](https://imagesvc.meredithcorp.io/v3/mm/image?url=https%3A%2F%2Fpublic-assets.meredithcorp.io%2F9293edf7137c7d97a881ce10eeec2d63%2F1681589303181844086CC-1808-44C7-8D8F-DD3AA33627A0.jpeg&q=60&c=sc&orient=true&poi=auto&h=512)
+
+
 6. # Mediterranean Sheet Pan Chicken Dinner
 
    https://thecafesucrefarine.com/mediterranean-sheet-pan-chicken-dinner/#wprm-recipe-container-36549
