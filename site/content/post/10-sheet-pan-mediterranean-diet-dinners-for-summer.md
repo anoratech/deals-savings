@@ -22,4 +22,10 @@ description: Indulge in the refreshing flavors of the Mediterranean with our
 4. # Sheet Pan Salmon and Bell Pepper Dinner
 
    https://www.allrecipes.com/recipe/262162/sheet-pan-salmon-and-bell-pepper-dinner/
-5.
+5. # Chakchouka (Shakshouka)
+
+   https://www.allrecipes.com/recipe/213717/chakchouka-shakshouka/
+6. # Mediterranean Sheet Pan Chicken Dinner
+
+   https://thecafesucrefarine.com/mediterranean-sheet-pan-chicken-dinner/#wprm-recipe-container-36549
+7.
