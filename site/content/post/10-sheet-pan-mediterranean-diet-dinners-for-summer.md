@@ -95,3 +95,7 @@ image: img/download-1-.jpeg
 10. # MEDITERRANEAN DIET SHEET PAN FAJITAS
 
     https://foodwineandlove.com/mediterranean-diet-sheet-pan-fajitas/
+
+
+
+    ![Mediterranean Diet Sheet Pan Fajitas, a simple one sheet pan recipe for a delicious healthy meal with chicken and vegetables. ](https://foodwineandlove.com/wp-content/uploads/2022/12/sheet-wide-1.jpg "Mediterranean Diet Sheet Pan Fajitas, a simple one sheet pan recipe for a delicious healthy meal with chicken and vegetables. ")
