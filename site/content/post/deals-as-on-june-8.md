@@ -25,6 +25,13 @@ image: img/img-20230608-wa0045.jpg
   was $19.99
 
   **[https://shopstyle.it/l/bXgmD](https://shopstyle.it/l/bXgmD?fbclid=IwAR3pvctlqdGsNBaed5OiUFVTkEaXzB-PASydWu_aTPdyULXUWyVhUY7jSX4)**
+* Persian Traditional Area Rugs 8x10 [\#walmart](https://www.facebook.com/hashtag/walmart?__eep__=6&__cft__[0]=AZXRjEYywGMblfMnmCUvU8iMGLhqQiahu3R_O_7J_uib_ONC2ktqz4Z6FJcZ__Wt_waLyAQ4XL4JlCMbMxe-sm531n9Q0oU8GO5DCl5SH2K-fCNqrWoFyWqgoN0EzJq50-KEsaRnHZa7A4OljUA38C7D&__tn__=R]-R)
+
+  Now $140.99
+
+  [](<>)was $164.99
+
+  **[https://shopstyle.it/l/bXgxu](https://shopstyle.it/l/bXgxu?fbclid=IwAR0r8GOH3WSIwhwYr9JrZU2AMgLLlA5wXVfNrqI_g4_ZF8lTSIkavkK7aN8)**
 * AIR Pump for INFLATABLES - Ultra Fast Fill
 
   60% off with code 50AIRBOSS <pre><code class="language-js" data-prismjs-copy="Click to Copy">50AIRBOSS</code></pre>
