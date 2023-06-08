@@ -242,6 +242,11 @@ image: img/img-20230608-wa0045.jpg
 * UNDER 4 BUCKS First Grade, Here I Come! Paperback – Picture Book
 
   **[https://amzn.to/42tRCfs](https://amzn.to/42tRCfs?fbclid=IwAR2XHgWUTY70YrmJwVgEA286oXbhcHG1RZsWacyN6lm4GgcvswgAQPWlno4)**[](<>)
+* Elmer's Disappearing Purple School Glue Sticks, Washable, 7 Grams, 30 Count
+
+  𝓖ℛ𝓐ℬ 𝓝𝓓 𝓖𝓞
+
+  **https://amzn.to/3qtYdJr**
 * ENDS TODAY 6/8
 
   Kohl’s clearance event with extra 50% off!
