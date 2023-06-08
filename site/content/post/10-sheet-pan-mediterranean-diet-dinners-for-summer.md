@@ -41,6 +41,12 @@ image: img/download-1-.jpeg
 4. # Sheet Pan Salmon and Bell Pepper Dinner
 
    https://www.allrecipes.com/recipe/262162/sheet-pan-salmon-and-bell-pepper-dinner/
+
+
+
+   ![close up view of Sheet Pan Salmon with Bell Peppers and onions](https://www.allrecipes.com/thmb/9dNk93n3RA83_WzDb-AxFEF9tDE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/9237989-sheet-pan-salmon-and-bell-pepper-dinner-Susan-Williams-Valenzuela-4x3-1-dd4b74fb0444414796873dc446918dec.jpg)
+
+
 5. # Chakchouka (Shakshouka)
 
    https://www.allrecipes.com/recipe/213717/chakchouka-shakshouka/
