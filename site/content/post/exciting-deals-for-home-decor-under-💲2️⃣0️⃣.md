@@ -119,7 +119,7 @@ ad
   Price when purchased online
 
   ad
-*  5ft x 8ft Shaggy Area Rugs \
+* 5ft x 8ft Shaggy Area Rugs \
   #walmart\
   Now $36.99\
   was $56.99\
@@ -127,3 +127,16 @@ ad
   \
   Price when purchased online\
   Ad
+* SUNMORY Modern Arc Floor Lamp with Remote Control and Stepless Dimmer, Black
+
+  \#walmart
+
+  Now $45.99
+
+  was $59.99
+
+  Price when purchased online
+
+  [https://shopstyle.it/l/bXhv4](https://l.facebook.com/l.php?u=https%3A%2F%2Fshopstyle.it%2Fl%2FbXhv4%3Ffbclid%3DIwAR0Q58kBbmAifZdOd7g5GGd1jUVRHySY_wO07c6PXEfp2UCQGa05uOWryyI&h=AT2PhkAE0lVmwkeackeLEloBJ-Ilpz5C_asYNS3MskmvopAHt2eBbU_cgIkwJESrUEeSvxNcVVnP7Y-7s9cjciBCTX7CfOHnUj4mlpHIdXRNnOnekuJX3MneRjl8-8P7T-69LvY6jA&__tn__=-UK-R&c[0]=AT1MAI7OeYw2uvfPqL8jy9QDwxsbItorKGGWbdNBrKqH8mj6cAt0tH4hUbjwxQQkVodA3UKpHa_16YI5ZZrc5dSQwRxWpPhx3J_0-2nkbjpTs5xat4oggDYhpo_uq0ei1CzAPrPZGFAQWwQ45GOVBZ_JcdwY2Og-XhnMKqs)
+
+  ad
