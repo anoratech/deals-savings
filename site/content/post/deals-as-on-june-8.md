@@ -25,7 +25,18 @@ image: img/img-20230608-wa0045.jpg
   was $19.99
 
   **[https://shopstyle.it/l/bXgmD](https://shopstyle.it/l/bXgmD?fbclid=IwAR3pvctlqdGsNBaed5OiUFVTkEaXzB-PASydWu_aTPdyULXUWyVhUY7jSX4)**
-* Persian Traditional Area Rugs 8x10 [\#walmart](https://www.facebook.com/hashtag/walmart?__eep__=6&__cft__[0]=AZXRjEYywGMblfMnmCUvU8iMGLhqQiahu3R_O_7J_uib_ONC2ktqz4Z6FJcZ__Wt_waLyAQ4XL4JlCMbMxe-sm531n9Q0oU8GO5DCl5SH2K-fCNqrWoFyWqgoN0EzJq50-KEsaRnHZa7A4OljUA38C7D&__tn__=R]-R)
+* LED Strip Lights with Remote and App Controlled
+
+  [walmart](https://www.facebook.com/hashtag/walmart?__eep__=6&__cft__[0]=AZXRjEYywGMblfMnmCUvU8iMGLhqQiahu3R_O_7J_uib_ONC2ktqz4Z6FJcZ__Wt_waLyAQ4XL4JlCMbMxe-sm531n9Q0oU8GO5DCl5SH2K-fCNqrWoFyWqgoN0EzJq50-KEsaRnHZa7A4OljUA38C7D&__tn__=R]-R)
+
+  [](<>)Now $15.99
+
+  was $17.99
+
+  Price when purchased online
+
+  **[https://shopstyle.it/l/bXgwe](https://shopstyle.it/l/bXgwe?fbclid=IwAR2hMbz3iNz4l4a_PbpdwskD1B4B0xNqrYaNih7KBNevpJ8gLCfBGOg8l2s)**
+* Persian Traditional Area Rugs 8x10 [walmart](https://www.facebook.com/hashtag/walmart?__eep__=6&__cft__[0]=AZXRjEYywGMblfMnmCUvU8iMGLhqQiahu3R_O_7J_uib_ONC2ktqz4Z6FJcZ__Wt_waLyAQ4XL4JlCMbMxe-sm531n9Q0oU8GO5DCl5SH2K-fCNqrWoFyWqgoN0EzJq50-KEsaRnHZa7A4OljUA38C7D&__tn__=R]-R)
 
   Now $140.99
 
