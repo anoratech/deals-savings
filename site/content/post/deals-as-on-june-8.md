@@ -17,9 +17,12 @@ image: img/img-20230608-wa0045.jpg
 
   PRICE DROP & CLIP (AD)
 
-  https://amzn.to/3qxKx0a
+  **https://amzn.to/3qxKx0a**
+* AIR Pump for INFLATABLES - Ultra Fast Fill
 
+  60% off with code 50AIRBOSS <pre><code class="language-js" data-prismjs-copy="Click to Copy">50AIRBOSS</code></pre>
 
+  **[https://amzn.to/3oRHU9](https://amzn.to/3oRHU90?fbclid=IwAR2t75DSKkYGWWJvBu_h2rE7FKWQFWGDHgR0QyoqBRIE9lYLqGuRyeQ2Ge0)**
 * CRAZY CROCS Sale!!From $10
 
   Extra 50% automatic at checkout on select styles (AD)
