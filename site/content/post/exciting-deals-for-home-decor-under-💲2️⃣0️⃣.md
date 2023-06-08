@@ -85,8 +85,6 @@ ad
   https://shopstyle.it/l/bXg2U\
 
   (AD)
-
-
 * 𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎\
 
   ‼️Der Rose 4 Packs Small Fake Plants‼️\
@@ -110,3 +108,14 @@ ad
   https://amzn.to/3CgVDZQ
   \
   (AD)
+* Persian Traditional Area Rugs 8x10 [](https://www.facebook.com/hashtag/walmart?__eep__=6&__cft__[0]=AZX_0PkkJQ2yX9jW9nqcgaxxb_Iw78UINkuvNChrLePW4HNmqfsZOO88vIN5E_NR3JLz_8hhTipNj2ZmiUzbaLC99j8F_gLs4M0L0wghk_GDaYRQyqWOoycJbKUlZyIcDeYXAd6CfOHD1NSRmrWzEl22&__tn__=R]-R)
+
+  Now $140.99
+
+  was $164.99 
+
+  [https://shopstyle.it/l/bXgxu](https://l.facebook.com/l.php?u=https%3A%2F%2Fshopstyle.it%2Fl%2FbXgxu%3Ffbclid%3DIwAR1ji051Ma_qS-RFPJyCdxeadI_lbks-M1BR7wYJHuD09rTu6ozdCD0-sdI&h=AT2lKOCnb6I3AD-qOM1VqL_gAEqucWy9KSWqc_pY-WEpSFOgsFtzarWWR549ACGRQ_0Ik-KvyV1Sz0sFtVtUjpxNhgViSnXkv2HjNkImTQXXk3eJXLP4CbrVRWduzp2GMHXwGxtaFg&__tn__=R]-R&c[0]=AT1aOz6yzpLQnCJW9KeK6C7V6Cy8X73SKre3_PeDI6YjSK3x07SoqvZsY-0vgkyvm4vZxP0tevdZ8yo1Q4zAQM5ZU3vedOHJVg4fzr6baf8cwZ2dkApzBWFc41bnHDkXrugb4z_yggFZ4Yn8qRnlh-thEUz1GZd-_z_MvIo)
+
+  Price when purchased online
+
+  ad
