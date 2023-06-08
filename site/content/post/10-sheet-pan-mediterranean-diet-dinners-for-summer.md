@@ -23,9 +23,21 @@ image: img/download-1-.jpeg
 2. # Sheet Pan Baked Eggplant Parmesan
 
    https://www.mediterraneanliving.com/sheet-pan-baked-eggplant-parmesan/
+
+
+
+   ![Sheet Pan Baked Eggplant Parmesan](https://cdn-ffagd.nitrocdn.com/exoaKmSYuMmHMQhdDYkXssGlqUEraLxW/assets/images/optimized/rev-0d8d0e2/wp-content/uploads/2019/06/Sheet-Pan-Eggplant-Parmesan-on-plate-featured-image.jpg "Sheet-Pan-Eggplant-Parmesan-on-plate-featured-image")
+
+
 3. # Sheet Pan Chicken Thighs with Peppers and Onions
 
-   https://www.mediterraneanliving.com/7-mediterranean-sheet-pan-meals/
+   https://www.mediterraneanliving.com/sheet-pan-chicken-thighs-with-peppers-and-onions/
+
+
+
+   ![sheet pan chicken](https://cdn-ffagd.nitrocdn.com/exoaKmSYuMmHMQhdDYkXssGlqUEraLxW/assets/images/source/rev-0d8d0e2/wp-content/uploads/2019/03/IMG_5054-610x407.jpg)
+
+
 4. # Sheet Pan Salmon and Bell Pepper Dinner
 
    https://www.allrecipes.com/recipe/262162/sheet-pan-salmon-and-bell-pepper-dinner/
