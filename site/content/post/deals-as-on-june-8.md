@@ -11,6 +11,15 @@ image: img/img-20230608-wa0045.jpg
 * 𝗧𝗵𝗲 𝗖𝗵𝗶𝗹𝗱𝗿𝗲𝗻'𝘀 𝗣𝗹𝗮𝗰𝗲 𝗚𝗶𝗿𝗹𝘀' 𝗗𝗲𝗻𝗶𝗺 𝗠𝗶𝗱𝗶 𝗦𝗵𝗼𝗿𝘁𝘀 (AD)\
   \
   **<https://amzn.to/45VJc3i>**
+* USB Desk Fan
+
+  grab nd go
+
+  PRICE DROP & CLIP (AD)
+
+  https://amzn.to/3qxKx0a
+
+
 * CRAZY CROCS Sale!!From $10
 
   Extra 50% automatic at checkout on select styles (AD)
