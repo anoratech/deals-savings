@@ -8,6 +8,9 @@ image: img/img-20230608-wa0045.jpg
 * Amazon Fire 7 Kids Tablet 45% Off 
 
   **https://amzn.to/43L4MFV** ad
+* Verbatim 32GB Premium microSDHC Memory Card with Adapter
+
+  https://amzn.to/42vOuiY
 * OMG!!!!
 
   $9.98 for 92 PC Food storage
