@@ -59,6 +59,12 @@ image: img/download-1-.jpeg
 6. # Mediterranean Sheet Pan Chicken Dinner
 
    https://thecafesucrefarine.com/mediterranean-sheet-pan-chicken-dinner/#wprm-recipe-container-36549
+
+
+
+   ![Horizontal overhead photo of Mediterranean Sheet Pan Chicken.](https://thecafesucrefarine.com/wp-content/uploads/2019/04/Mediterranean-Sheet-Pan-Chicken-5-150x150.jpg)
+
+
 7. # Sheet Pan Mediterranean Shrimp
 
    https://gardeninthekitchen.com/sheet-pan-mediterranean-shrimp/
