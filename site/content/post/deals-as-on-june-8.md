@@ -239,6 +239,9 @@ image: img/img-20230608-wa0045.jpg
 * Magic Tree House Boxed Set, Books 1-28
 
   **https://amzn.to/3N0OgdY**
+* UNDER 4 BUCKS First Grade, Here I Come! Paperback – Picture Book
+
+  **[https://amzn.to/42tRCfs](https://amzn.to/42tRCfs?fbclid=IwAR2XHgWUTY70YrmJwVgEA286oXbhcHG1RZsWacyN6lm4GgcvswgAQPWlno4)**[](<>)
 * ENDS TODAY 6/8
 
   Kohl’s clearance event with extra 50% off!
