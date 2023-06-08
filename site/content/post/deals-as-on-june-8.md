@@ -5,8 +5,6 @@ tags: Amazon
 description: Prices quoted can change at any time, and supplies may be limited.
 image: img/img-20230608-wa0045.jpg
 ---
-
-
 * Amazon Fire 7 Kids Tablet 45% Off 
 
   **https://amzn.to/43L4MFV** ad
@@ -20,6 +18,9 @@ image: img/img-20230608-wa0045.jpg
   **[https://amzn.to/42vcYsL](https://amzn.to/42vcYsL?fbclid=IwAR1y_da7p0tboj6pSsUTKiKCTUBY6mnDTHQcLqb0O8yQq0P0yW0LoHdXyrM)**
 
   AD
+* adidas Women's Eq21 Running Shoe-price drop (AD)
+
+  **https://amzn.to/3WWcquO**
 * First Grade, Here I Come! Paperback – Picture Book (AD)\
   **<https://amzn.to/42tRCfs>**
 * PRICE DROP\
