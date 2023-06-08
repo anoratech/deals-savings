@@ -50,8 +50,17 @@ image: img/img-20230608-wa0045.jpg
   ‼price drop
 
   **https://amzn.to/3qA7TSZ**
+* [](https://amzn.to/3J4NNXb?fbclid=IwAR0Gt0VB8IycZsaFEA6PV3RWQcjcOZ4kdOfNAE7HwDJuQRjt9RX3VAMtjSc)Grab&GO
 
-  ad
+  50%OFF
+
+  [](<>)DOXILA Dumpling Maker Mold Set and Cutter 7 Pcs Empanadas Press Dumplings Maker
+
+  Code 50L98CKC
+
+  **[https://amzn.to/3J4NNXb](https://amzn.to/3J4NNXb?fbclid=IwAR0Gt0VB8IycZsaFEA6PV3RWQcjcOZ4kdOfNAE7HwDJuQRjt9RX3VAMtjSc)**
+
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">50L98CKC</code></pre>
 * Marvel Battleworld: Series 2 Treachery at Twilight Battle Ball
 
   price drop (AD)
