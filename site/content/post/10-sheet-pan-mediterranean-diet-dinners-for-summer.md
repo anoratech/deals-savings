@@ -68,6 +68,12 @@ image: img/download-1-.jpeg
 7. # Sheet Pan Mediterranean Shrimp
 
    https://gardeninthekitchen.com/sheet-pan-mediterranean-shrimp/
+
+
+
+   ![Mediterranean shrimp recipe with asparagus, onions, black olives, and feta cheese served in a white oval plate with a spoon](https://gardeninthekitchen.com/wp-content/uploads/2020/03/IMG_7416.jpg)
+
+
 8. # Mediterranean Chicken and Farro Bake
 
    https://livelytable.com/mediterranean-chicken-and-farro-bake/
