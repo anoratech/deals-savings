@@ -79,6 +79,15 @@ image: img/img-20230608-wa0045.jpg
   price drop (AD)
 
   **https://amzn.to/3qA7TSZ**
+* ### Persian Traditional Area Rugs 8x10 [](https://www.facebook.com/hashtag/walmart?__eep__=6&__cft__[0]=AZWu4A-_6i9MwjMGc-KQcepM6vyl191Qu3003ZehZGS8q7ILB8KZ75F5UvPuBGNN-VQju6clXKAPv-YBifQrOz8QbwzKpLUNTPyo4D-o16puwfdYX-Mt2v_SPHpFCD1Na5kBi3m9xN4ZYDJMYDQKQkY0&__tn__=*NK-R)
+
+  **Now $140.99**
+
+  was $164.99
+
+  Price when purchased online
+
+  **[https://shopstyle.it/l/bXgxu](https://shopstyle.it/l/bXgxu?fbclid=IwAR190JGQBup387GZ2ClL3OXWRUE6_7P9OHQ1dMibGcEmU6Nd7DeIDQg2qa4)**
 * RUNNNNNN 
 
   Wirebound Notebook, 5 Subject, Wide Ruled, Black ONLY 💲0.35
