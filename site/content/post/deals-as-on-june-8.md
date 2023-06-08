@@ -3,6 +3,7 @@ title: Deals as on  June 8
 date: 2023-06-07T17:03:12.800Z
 tags: Amazon
 description: Prices quoted can change at any time, and supplies may be limited.
+image: img/img-20230608-wa0045.jpg
 ---
 <!--StartFragment-->
 
