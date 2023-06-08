@@ -43,6 +43,15 @@ image: img/img-20230608-wa0045.jpg
   [](<>)was $164.99
 
   **[https://shopstyle.it/l/bXgxu](https://shopstyle.it/l/bXgxu?fbclid=IwAR0r8GOH3WSIwhwYr9JrZU2AMgLLlA5wXVfNrqI_g4_ZF8lTSIkavkK7aN8)**
+* HURRYYYYYY! 
+
+  Marvel Battleworld: Series 2 Treachery at Twilight Battle Ball
+
+  ‼price drop
+
+  **https://amzn.to/3qA7TSZ**
+
+  ad
 * Marvel Battleworld: Series 2 Treachery at Twilight Battle Ball
 
   price drop (AD)
