@@ -239,6 +239,13 @@ image: img/img-20230608-wa0045.jpg
 * Magic Tree House Boxed Set, Books 1-28
 
   **https://amzn.to/3N0OgdY**
+* 68 (REG- 109) [WALMART](https://www.facebook.com/hashtag/walmart?__eep__=6&__cft__[0]=AZVjBPPKiqssN8hT_tGVpRzT0FzAgx4Jf4LaB5YL13fgT6Ds0SbSeCiEqXJ6htv1VkDm8jlLaNSb-ikMTIjAKRTtbJ-_u2XUM9-DnaZ4lzDS-ExxbPXdQQXbf2T512L-sSOItU7TdlivnqKQbElhNTKq&__tn__=R]-R)
+
+  ![🅾](https://static.xx.fbcdn.net/images/emoji.php/v9/t36/2/16/1f17e.png)🅽 🅳🆁![🅾](https://static.xx.fbcdn.net/images/emoji.php/v9/t36/2/16/1f17e.png)![🅿](https://static.xx.fbcdn.net/images/emoji.php/v9/tb7/2/16/1f17f.png)P﻿RICE DROP Ionchill Quick Cube Ice Machine
+
+  [https://mavely.app.link/e/SkoGdunWsAb](https://mavely.app.link/e/SkoGdunWsAb?fbclid=IwAR0Gt0VB8IycZsaFEA6PV3RWQcjcOZ4kdOfNAE7HwDJuQRjt9RX3VAMtjSc)
+
+  [](<>)(AD)
 * UNDER 4 BUCKS First Grade, Here I Come! Paperback – Picture Book
 
   **[https://amzn.to/42tRCfs](https://amzn.to/42tRCfs?fbclid=IwAR2XHgWUTY70YrmJwVgEA286oXbhcHG1RZsWacyN6lm4GgcvswgAQPWlno4)**[](<>)
