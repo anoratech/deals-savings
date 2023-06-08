@@ -217,3 +217,8 @@ image: img/img-20230608-wa0045.jpg
 * Magic Tree House Boxed Set, Books 1-28
 
   **https://amzn.to/3N0OgdY**
+* ENDS TODAY 6/8
+
+  Kohl’s clearance event with extra 50% off!
+
+  **https://mavely.app.link/e/PYRY6DCatAb**
