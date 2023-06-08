@@ -11,6 +11,16 @@ image: img/img-20230608-wa0045.jpg
 * Verbatim 32GB Premium microSDHC Memory Card with Adapter
 
   https://amzn.to/42vOuiY
+* 24-Paper Mate Mechanical Pencils UNDER 4!
+
+  **https://amzn.to/3Cj8wCN**
+* BUY 1 , GET 1 FREE
+
+  ADD 2 TO CART
+
+  Crafts 4 All Acrylic Paint Set for Adults and Kids
+
+  **https://amzn.to/43uI19y**
 * LIMITED TIME DEAL!!
 
   BAGS
