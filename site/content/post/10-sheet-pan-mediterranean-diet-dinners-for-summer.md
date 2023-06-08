@@ -9,6 +9,7 @@ description: Indulge in the refreshing flavors of the Mediterranean with our
   to your plate. Get ready to savor the delicious simplicity and healthy
   abundance of Mediterranean cuisine, all conveniently prepared on a single
   sheet pan for effortless summer feasting.
+image: img/download-1-.jpeg
 ---
 1. # Sheet Pan Lemon Pepper Chicken With Broccoli & Tomatoes
 
@@ -37,3 +38,6 @@ description: Indulge in the refreshing flavors of the Mediterranean with our
 9. # Mediterranean Sheet Pan Chicken and Sweet Potatoes
 
    https://www.sidechef.com/recipes/61371/mediterranean_sheet_pan_chicken_and_sweet_potatoes/
+10. #  MEDITERRANEAN DIET SHEET PAN FAJITAS 
+
+    https://foodwineandlove.com/mediterranean-diet-sheet-pan-fajitas/
