@@ -11,6 +11,13 @@ image: img/img-20230608-wa0045.jpg
 * Verbatim 32GB Premium microSDHC Memory Card with Adapter
 
   https://amzn.to/42vOuiY
+* LIMITED TIME DEAL!!
+
+  BAGS
+
+  💲29.99 in ALL SIZES
+
+  **https://mavely.app.link/e/tKnRRSqctAb**
 * OMG!!!!
 
   $9.98 for 92 PC Food storage
