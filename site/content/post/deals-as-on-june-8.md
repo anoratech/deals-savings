@@ -244,3 +244,8 @@ image: img/img-20230608-wa0045.jpg
   Kohl’s clearance event with extra 50% off!
 
   **https://mavely.app.link/e/PYRY6DCatAb**
+* 40%OF LED Digital Alarm Clock, White Mini Desk Cube Clock with Date and Temperature, 7 Colors Night Light
+
+  code 6C7W6H9B <pre><code class="language-js" data-prismjs-copy="Click to Copy">6C7W6H9B</code></pre>
+
+  [https://amzn.to/466iLZ5](https://amzn.to/466iLZ5?fbclid=IwAR3eM2LmcNynfV3a-OU2V_yLHWlbh0wzhi0LCu1Ll0bqLzbPem4WZEXBKDs)
