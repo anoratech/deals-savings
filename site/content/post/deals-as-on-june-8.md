@@ -18,6 +18,13 @@ image: img/img-20230608-wa0045.jpg
   PRICE DROP & CLIP (AD)
 
   **https://amzn.to/3qxKx0a**
+* Outdoor String Lights Solar Powered Waterproof
+
+  Now $10.96
+
+  was $19.99
+
+  **[https://shopstyle.it/l/bXgmD](https://shopstyle.it/l/bXgmD?fbclid=IwAR3pvctlqdGsNBaed5OiUFVTkEaXzB-PASydWu_aTPdyULXUWyVhUY7jSX4)**
 * AIR Pump for INFLATABLES - Ultra Fast Fill
 
   60% off with code 50AIRBOSS <pre><code class="language-js" data-prismjs-copy="Click to Copy">50AIRBOSS</code></pre>
