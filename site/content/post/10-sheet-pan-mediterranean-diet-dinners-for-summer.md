@@ -86,6 +86,12 @@ image: img/download-1-.jpeg
 9. # Mediterranean Sheet Pan Chicken and Sweet Potatoes
 
    https://www.sidechef.com/recipes/61371/mediterranean_sheet_pan_chicken_and_sweet_potatoes/
+
+
+
+   ![Mediterranean Sheet Pan Chicken and Sweet Potatoes Recipe | SideChef](https://www.sidechef.com/recipe/eda84dbf-41ee-4592-858f-c00afa477f08.jpg?d=375x375)
+
+
 10. # MEDITERRANEAN DIET SHEET PAN FAJITAS
 
     https://foodwineandlove.com/mediterranean-diet-sheet-pan-fajitas/
