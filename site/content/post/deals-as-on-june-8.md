@@ -230,7 +230,7 @@ image: img/img-20230608-wa0045.jpg
   https://amzn.to/3WUddfZ
 * 50%Dining Chair Covers Dining Room Chair Slipcover 
 
-  Code: 50E1O7U6
+  Code: 50E1O7U6 DISCOUNT AUTO APPLIES AT CHECKOUT
 
   **[https://amzn.to/43vW26K](https://amzn.to/43vW26K?fbclid=IwAR3uL1wNR3XqLKNT5xXF1ZskGOOkkaykWs0rz60zYycTh2zOgLj8GU1lIwk)**
 * SALE AT MCM SUNGLASSES
