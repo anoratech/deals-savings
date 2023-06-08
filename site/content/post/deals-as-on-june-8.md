@@ -175,6 +175,11 @@ image: img/img-20230608-wa0045.jpg
   𝒢𝑅𝒜𝐵 𝒩𝒟 𝒢0
 
   **https://amzn.to/3MVTVC7**
+* STOCK UP!
+
+  BUY 1 GET 2 FREE OR 3/$2.79 Freezer bags
+
+  **https://mavely.app.link/e/v8QjxS99sAb**
 * Intex Popsicle Inflatable Pool Float with Realistic Printing, 75" X 30"
 
   PRICE DROP
