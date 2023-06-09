@@ -27,4 +27,12 @@ a﻿d
   <https://shopstyle.it/l/bXjUa>\
   Price when purchased online\
   ad
-*
+* <!--StartFragment-->
+
+  Jimmy Choo Man Eau de Toilette, Cologne for Men, 3.3 Oz\
+  \
+  Now $36.98\
+  was $95.00\
+  <https://shopstyle.it/l/bXjUI>\
+  Price when purchased online\
+  ad
