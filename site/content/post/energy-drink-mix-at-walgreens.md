@@ -1,7 +1,7 @@
 ---
 title: FREE Energy Drink Mix at Walgreens
 date: 2023-06-09T14:25:09.946Z
-tags: deal
+tags: deals
 description: |-
   BOGO FREE Pure Boost Energy Drink Mix at Walgreens after Rebate.
 
