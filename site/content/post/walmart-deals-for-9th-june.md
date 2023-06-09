@@ -100,3 +100,14 @@ a﻿d
   \
   Price when purchased online\
   ad
+* <!--StartFragment-->
+
+  Shoulder Bag Casual Style, Fashion Style\
+  \
+  Now $19.99\
+  was $35.99\
+  \
+  Price when purchased online\
+  \
+  <https://shopstyle.it/l/bXjZ4>\
+  ad
