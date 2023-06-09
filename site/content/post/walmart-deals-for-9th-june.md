@@ -90,3 +90,13 @@ a﻿d
   [](<>)Price when purchased online
 
   ad
+* <!--StartFragment-->
+
+  Jumpsuit Shorts Outfit\
+  \
+  Now $13.99\
+  was $26.99\
+  <https://shopstyle.it/l/bXjX0>\
+  \
+  Price when purchased online\
+  ad
