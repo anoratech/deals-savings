@@ -36,3 +36,12 @@ a﻿d
   <https://shopstyle.it/l/bXjUI>\
   Price when purchased online\
   ad
+* <!--StartFragment-->
+
+  Crocs Crocband Sandal Kids, Sizes 4-13\
+  \
+  Now $21.99\
+  was $44.99\
+  <https://shopstyle.it/l/bXjWy>\
+  Price when purchased online\
+  ad
