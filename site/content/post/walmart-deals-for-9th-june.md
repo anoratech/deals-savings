@@ -75,3 +75,18 @@ a﻿d
   Price when purchased online\
   \
   ad
+
+
+* <!--StartFragment-->
+
+  RockDove Women's Casual Flip Flops Slipper, Soft Waterproof Beach Slides
+
+  Now $16.99
+
+  was $18.99
+
+  [https://shopstyle.it/l/bXjV7](https://shopstyle.it/l/bXjV7?fbclid=IwAR1YtW62UjM-069rDcuDIOQIejK3DIleI9k7ch-q1lWt9KKsnnEqjFfp4CI)
+
+  [](<>)Price when purchased online
+
+  ad
