@@ -82,4 +82,11 @@ l﻿ots of deals to grab..
   American Flag Tank Tops Women Patriotic Shirt USA Flag Sleeveless  60% off
   No Code
   AD
-*
+* FLOYU Women American Flag Dress 4th of July Maxi Dress 
+  https://amzn.to/3MZ1tUX 
+  40%Off
+  Code: 
+
+  <pre><code class=”language-js” data-prismjs-copy=”Click to Copy”I5VZ6SIT</code></pre>
+
+  AD
