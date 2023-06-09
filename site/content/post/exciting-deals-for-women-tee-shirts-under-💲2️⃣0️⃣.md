@@ -109,3 +109,14 @@ l﻿ots of deals to grab..
   code:40YPJTC1\
   <https://amzn.to/3CrexNH>\
   ad
+
+
+* <!--StartFragment-->
+
+  Mandala Tank Tops Lotus Flower Graphic Tshirt\
+  \
+  Discount: 40%\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">49EHLX6E</code></pre>\
+  Code: 49EHLX6E\
+  <https://amzn.to/3ClKs2k>\
+  ad
