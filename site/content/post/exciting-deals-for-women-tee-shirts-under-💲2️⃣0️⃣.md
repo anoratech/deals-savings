@@ -128,3 +128,14 @@ l﻿ots of deals to grab..
   Code: KPXBBZ36\
   <https://amzn.to/42xPaV6>\
   ad
+* <!--StartFragment-->
+
+  Beach Shirt Hawaiian Vacation Tops
+
+  50% Off
+
+  Grab & go
+
+  [https://amzn.to/3qvy6ln](https://amzn.to/3qvy6ln?fbclid=IwAR1-QSjJpgA5O137FYHShcNLPkoGhwEgucMEtjIuodDWyChJUheylJ5uuT8)
+
+  ad
