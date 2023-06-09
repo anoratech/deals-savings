@@ -80,4 +80,4 @@ l﻿ots of deals to grab..
   American Flag Tank Tops Women Patriotic Shirt USA Flag Sleeveless  60% off
   No Code
   AD
-*
+* Pride T Shirt Women Rainbow Graphic Tee Shirts  Grab & go https://amzn.to/3P3jwf2 ad
