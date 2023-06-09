@@ -101,3 +101,11 @@ l﻿ots of deals to grab..
   [https://amzn.to/3P4a5vR](https://amzn.to/3P4a5vR?fbclid=IwAR0hFoYc0BXi_zZATboBbOVbS3XrdABSSOdnZP_FFaT9ukDiUDjGEkagmvE)
 
   ad
+* <!--StartFragment-->
+
+  Hiking Mountain Shirt Women Nature Sunrise Pine Tree Graphic\
+  Discount: 40%\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">40YPJTC1</code></pre>\
+  code:40YPJTC1\
+  <https://amzn.to/3CrexNH>\
+  ad
