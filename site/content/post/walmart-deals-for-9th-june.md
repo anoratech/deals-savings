@@ -45,3 +45,14 @@ a﻿d
   <https://shopstyle.it/l/bXjWy>\
   Price when purchased online\
   ad
+* <!--StartFragment-->
+
+  Time and Tru Women's Embroidered Fedora Hat\
+  \
+  Now $8.99\
+  was $12.97\
+  \
+  <https://shopstyle.it/l/bXjWK>\
+  Price when purchased online\
+  \
+  AD
