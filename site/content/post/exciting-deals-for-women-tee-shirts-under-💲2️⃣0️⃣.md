@@ -12,8 +12,6 @@ l﻿ots of deals to grab..
   40% off
   Code:
 
-  <pre><code class=”language-js” data-prismjs-copy=”Click to Copy”>ZDXKQQEF</code></pre>
-
   AD
 * https://amzn.to/3WVj9oY\
   45%OFF  🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
