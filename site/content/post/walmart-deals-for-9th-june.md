@@ -111,3 +111,12 @@ a﻿d
   \
   <https://shopstyle.it/l/bXjZ4>\
   ad
+* <!--StartFragment-->
+
+  Womens Tops\
+  Now $12.99\
+  was $17.79\
+  <https://shopstyle.it/l/bXj0v>\
+  \
+  Price when purchased online\
+  ad
