@@ -146,3 +146,13 @@ l﻿ots of deals to grab..
   Grab & go\
   <https://amzn.to/3PchzwS>\
   ad
+* <!--StartFragment-->
+
+  American Flag Tank Top Women 4th of July Patriotic Shirt\
+  Discount: 30%\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy"> XIQEN4B2</code></pre>\
+  Code: XIQEN4B2\
+  <https://amzn.to/3J6Ivua>\
+  ad
+
+  <!--EndFragment-->
