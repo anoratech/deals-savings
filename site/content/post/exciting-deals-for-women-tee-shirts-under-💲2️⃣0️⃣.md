@@ -12,6 +12,8 @@ l﻿ots of deals to grab..
   40% off
   Code:
 
-  <pre><ZDXKQQEF class=”language-js” data-prismjs-copy=”Click to Copy”>802NE76D</code></pre>
-
   AD
+* https://amzn.to/3WVj9oY\
+  👕Country Concert Shirt for Women 👕\
+  45% OFF🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️\
+  CODE: <pre><code class="language-js" data-prismjs-copy="Click to Copy">SZIX6S3G</code></pre>
