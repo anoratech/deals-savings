@@ -31,48 +31,48 @@ l﻿ots of deals to grab..
   👕Motivational Testing Day Shirts 👕
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️\
   C﻿ODE: \
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">OQI3I4TN</code></pre\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">OQI3I4TN</code></pre>\
   \
   A﻿D
 * https://amzn.to/3IZTmGw\
   👕American Flag Shirts Women  👕
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️\
   C﻿ODE: \
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">OQI3I4TN</code></pre\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">OQI3I4TN</code></pre>\
   \
   A﻿D
 * https://amzn.to/43ARZ9l\
   ‼️American Flag Graphic T Shirt ‼️
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️\
   C﻿ODE: \
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">DN4SLBCY</code></pre\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">DN4SLBCY</code></pre>\
   \
   A﻿D
 * https://amzn.to/43vOO2M\
   ✅ American Flag Tank Top Womens 👕
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️\
   C﻿ODE: \
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">XQUME4QM</code></pre\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">XQUME4QM</code></pre>\
   \
   A﻿D
 * https://amzn.to/3X0jjLy\
   👕USA Flag Tee Shirt for Women 👕
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️\
   C﻿ODE: \
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">73MDFIYW</code></pre\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">73MDFIYW</code></pre>\
   \
   A﻿D
 * https://amzn.to/43H28ky\
   👕UNIQUEONE American Flag Heart Shirt Women 👕
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️\
   C﻿ODE: \
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">307VIP4W</code></pre\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">307VIP4W</code></pre>\
   \
   A﻿D
 * https://amzn.to/43sFf4w\
   🎀American Flag Shirt Women 🎀
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️\
   C﻿ODE: \
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">40PANDSQ</code></pre\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">40PANDSQ</code></pre>\
   \
   A﻿D
