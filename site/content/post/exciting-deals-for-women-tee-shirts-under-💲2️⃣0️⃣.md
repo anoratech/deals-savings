@@ -120,3 +120,11 @@ l﻿ots of deals to grab..
   Code: 49EHLX6E\
   <https://amzn.to/3ClKs2k>\
   ad
+* <!--StartFragment-->
+
+  Baseball Mom Shirts for Women\
+  40% Off\
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">KPXBBZ36</code></pre>\
+  Code: KPXBBZ36\
+  <https://amzn.to/42xPaV6>\
+  ad
