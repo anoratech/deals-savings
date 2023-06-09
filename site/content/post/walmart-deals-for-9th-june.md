@@ -10,7 +10,7 @@ Noise Cancelling Headphones, Wireless Bluetooth Over Ear Headphones with Microph
 
 Now $22.00
 
-was $99.99$99.99
+was $99.99
 
 Price when purchased online
 
