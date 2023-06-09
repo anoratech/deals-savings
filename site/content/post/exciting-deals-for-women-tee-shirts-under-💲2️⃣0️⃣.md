@@ -90,4 +90,14 @@ l﻿ots of deals to grab..
   Code: 3VW2OIJE
 
   https://amzn.to/3Nn5fsk ad 
-*
+* Blessed Mom Shirt for Women
+
+  Discount: 40% 
+
+  <pre><code class="language-js" data-prismjs-copy="Click to Copy">EZQP9DM3</code></pre>
+
+  Code: EZQP9DM3
+
+  [https://amzn.to/3P4a5vR](https://amzn.to/3P4a5vR?fbclid=IwAR0hFoYc0BXi_zZATboBbOVbS3XrdABSSOdnZP_FFaT9ukDiUDjGEkagmvE)
+
+  ad
