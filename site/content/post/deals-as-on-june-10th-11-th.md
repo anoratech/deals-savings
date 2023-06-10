@@ -21,4 +21,4 @@ ad
 
   55% off with coupon & code VFFY9G2F 
 * https://amzn.to/43yyQoo Ad Bubble Wands – 6 Pack  44% off Grab & go 
-*
+* Lined journal notebook under 4 https://amzn.to/3MW77qR ad
