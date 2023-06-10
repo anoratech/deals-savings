@@ -63,7 +63,6 @@ ad
   ‼️Crash 4 It's About Time for Xbox One‼️
   https://amzn.to/3P30jds
   AD
-
 * 50%OFF
   STEAL on these Under Armour Women's Slide Sandals. 
   💸ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ💸
@@ -82,12 +81,10 @@ ad
 * 62%OFF
   👟Under Armour Child Shoes 👟 https://amzn.to/45Z5QIm 
   AD
-
 * 53%OFF
   🦗🪲Spectracide Bug Stop Home Barrier Spray!!🦗🪲
   https://amzn.to/3J2gDHG
   AD
-
 * 🔨🔧Craftsman Mechanic Tool Set, 230 Piece!!🔧🔨
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   https://amzn.to/3CqsTOk
@@ -96,63 +93,50 @@ ad
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   https://amzn.to/3J72Kb9
   AD
-
 * 55%OFF
   OXO Good Grips Microwave Egg Cooker!!
   https://amzn.to/43UFdlZ
   AD
-
-
-
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   ‼️ Renewing + Argan Oil of Morocco Weightless Healing Dry Oil Spray!!‼️
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
    💸ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ💸
   https://amzn.to/3Pd69ZM
   AD
-
-
-
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   🔌🔌 Cable Clips USB Cable Holder Wire Organizer!! 🔌🔌
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   https://amzn.to/45O35cy 
   AD
-
-
-
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   78%OFF
   ‼️Professional Pedicure Kit, ‼️
   https://amzn.to/3WWnzMh
   AD
-
-
-
 * 75%OFF
   🎧 2 Pack of Kids Headphones 🎧
   https://amzn.to/3X0FPUP
   AD
-
-
-
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   66%OFF
   🎀2PK Rectangle Storage Basket!🎀 \
   https://amzn.to/3P6ggjk
   AD
-
-
-
-*  ‼️Bounty Quick-Size Paper Towels, White, 12 Family Rolls = 30 Regular Rolls‼️
+* ‼️Bounty Quick-Size Paper Towels, White, 12 Family Rolls = 30 Regular Rolls‼️
   💸ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ💸
    https://amzn.to/3oUq9Wr
   AD
-
-
-
 * 💿 Vinyl Record Player!!💿
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
    https://amzn.to/3WVM10l
   AD
+* <!--StartFragment-->
+
+  Heavy Duty Wall-Hooks 60lbs,Set of 2
+
+  https://amzn.to/3P5pSdX
+
+  50% Off coupon
+
+  ad
