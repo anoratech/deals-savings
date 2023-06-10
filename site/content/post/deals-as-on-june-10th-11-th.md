@@ -17,9 +17,9 @@ ad
 
 * 3 Pcs 2 in 1 Eyeshadow and Eyeliner Pen
 
-  https://amzn.to/3P5gmaD
+  https://amzn.to/3P5gmaD <pre><code class="language-js" data-prismjs-copy="Click to Copy">VFFY9G2F</code></pre>
 
-  55% off with coupon & code VFFY9G2F 
+  55% off with coupon & code VFFY9G2F ad 
 * https://amzn.to/43yyQoo Ad Bubble Wands – 6 Pack  44% off Grab & go 
 * Lined journal notebook under 4 https://amzn.to/3MW77qR ad 
 * Bamboo Toothbrush 12pk under 4 https://amzn.to/3oN6vvK ad 
