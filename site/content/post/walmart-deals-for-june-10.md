@@ -4,6 +4,7 @@ date: 2023-06-10T13:04:40.987Z
 tags: "walmart "
 description: |
   Price when purchased online
+image: img/walmart-labor-day-sale-3.2-01-scaled.jpg
 ---
 <!--StartFragment-->
 
