@@ -28,4 +28,19 @@ https://shopstyle.it/l/bXlOm ad
   https://shopstyle.it/l/bXlPs
 
   ad
+* <!--StartFragment-->
+
+  Electric Ride On Bumper Car
+
+  Walmart
+
+  Now $139.96
+
+  was $159.96
+
+  Price when purchased online
+
+  https://shopstyle.it/l/bXlPO
+
+  ad
 *
