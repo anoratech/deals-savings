@@ -17,7 +17,7 @@ ad
 
 * 3 Pcs 2 in 1 Eyeshadow and Eyeliner Pen
 
-  https://amzn.to/3P5gmaD <pre><code class="language-js" data-prismjs-copy="Click to Copy">VFFY9G2F</code></pre>
+   <pre><code class="language-js" data-prismjs-copy="Click to Copy">VFFY9G2F</code></pre> https://amzn.to/43Mt7f7
 
   55% off with coupon & code VFFY9G2F ad 
 * https://amzn.to/43yyQoo Ad Bubble Wands – 6 Pack  44% off Grab & go 
