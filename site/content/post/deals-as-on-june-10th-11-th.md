@@ -26,7 +26,5 @@ ad
 * Milk Bone Dog Treats under 4 https://amzn.to/3qGwPIb ad 
 * Weighted blanket
 
-  Price drop![➕️](https://static.xx.fbcdn.net/images/emoji.php/v9/t4b/2/16/2795.png) coupon https://amzn.to/45YsPD2 ad 
-
-
+  Price drop & coupon on page  https://amzn.to/45YsPD2 ad 
 *
