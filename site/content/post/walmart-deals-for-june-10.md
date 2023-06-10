@@ -89,4 +89,17 @@ https://shopstyle.it/l/bXlOm ad
   Price when purchased online
 
   ad
+* <!--StartFragment-->
+
+  Disney Minnie Mouse Activity Easel with Storage by Delta Children, Greenguard Gold Certified
+
+  \#walmart
+
+  Now $39.97 was $52.00
+
+  Price when purchased online
+
+  https://shopstyle.it/l/bXlRM
+
+  ad
 *
