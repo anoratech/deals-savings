@@ -135,4 +135,19 @@ https://shopstyle.it/l/bXlOm ad
   https://shopstyle.it/l/bXlSR
 
   ad
+* <!--StartFragment-->
+
+  Intex Jump-O-Lene Castle Bouncer, PVC, Kids
+
+  \#walmart
+
+  Now $59.99
+
+  was $74.99
+
+  Price when purchased online
+
+  https://shopstyle.it/l/bXlVF
+
+  ad
 *
