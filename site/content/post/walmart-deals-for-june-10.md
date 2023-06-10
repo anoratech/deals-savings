@@ -58,4 +58,19 @@ https://shopstyle.it/l/bXlOm ad
   https://shopstyle.it/l/bXlQ2
 
   ad
+* <!--StartFragment-->
+
+  Kids Makeup Kit for Girls 35 Pcs Washable Real Cosmetic
+
+  \#walmart
+
+  Now $22.99
+
+  was $29.95
+
+  Price when purchased online
+
+  https://shopstyle.it/l/bXlP0
+
+  ad
 *
