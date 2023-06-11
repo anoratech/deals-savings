@@ -31,4 +31,16 @@ image: img/40ac2080-5a99-4778-9857-09f16a1a4ec9.jfif
   ad
 
   <!--EndFragment-->
-*
+* <!--StartFragment-->
+
+  L'Oreal Paris Revitalift 1.5% Pure Hyaluronic Acid Face Serum
+
+  48% off
+
+  save extra with sub & save coupon
+
+  [https://amzn.to/3P4R24I](https://amzn.to/3P4R24I?fbclid=IwAR3C6yEMuP_WbiJJKyGAtaUr_-GZEx-OPWnm4AndWR4BYVRrOTbasZtwKkg)
+
+  ad
+
+  <!--EndFragment-->
