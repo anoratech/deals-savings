@@ -16,4 +16,14 @@ description: |-
 8.  Olay Deep Gel Cleanser.  47% Off https://amzn.to/3qBohT2 ad 
 9. Under Armour Men's Webbing Belt! 63% off Grab & go https://amzn.to/43wJyvz ad 
 10.  Kids Grow 'N Glow Terrarium Kit! https://amzn.to/43yssh4 ad 
-11. CoComelon School Time Deluxe Playtime Set!! 67% Off Grab & go https://amzn.to/3NlFits ad
+11. CoComelon School Time Deluxe Playtime Set!! 67% Off Grab & go https://amzn.to/3NlFits ad 
+12. <!--StartFragment-->
+
+    Personalized Initial Canvas Beach Bag
+
+    [https://amzn.to/3J6jxeu](https://l.facebook.com/l.php?u=https%3A%2F%2Famzn.to%2F3J6jxeu%3Ffbclid%3DIwAR3LleWJeq8lKRpB0vbme3YIAsUieAo5JXn-94YQ20dQMtaEj0s7jTw2w_o&h=AT3HLLmMGFgMnCXUCPrRC0Hy84loP0ghmhBxMhDINtc00LBAhzNLs3AFOM79xdCyF3-OWAp8H-_o17_IpMiEc1IS1hy1aOghknPN_uFrmmp_cB4KHQBIEeYfwtfro4yLYdie&__tn__=-UK-R&c[0]=AT3QTXZEDvMdA5cUv_oxGFSSiblWiwbFMnCsLZ1fw-N6ok27FpWabovwieYsrsRQCX7kiqWYyCvu2VPt6YzWSIRKbw_2r3L_YensSA7poqgALWX73n3qrEcaqx2pu2DSl0DHUIVHNh3R0MRpOVaO3o_kZd-dJghUP-gnWh8s2BlBO3V6awY9pZWMofJHBsMbIR8lyb8B4HM9)
+
+    43% Off
+
+    ad
+13.
