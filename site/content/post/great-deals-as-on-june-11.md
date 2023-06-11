@@ -8,4 +8,5 @@ description: "Product pricing/promotions may expire any time without notice. "
 2. 6ft. extension cord 61% Off Grab & go https://amzn.to/3X3fGVa ad 
 3. Blink Video Doorbell 40% Off https://amzn.to/3qJkIKo ad 
 4. Blue's Clues Sing-Along School Bus. 50% Off https://amzn.to/43DR4oD ad 
-5. CRAFTSMAN Drive Socket Set. 58% Off https://amzn.to/3CmUMad ad
+5. CRAFTSMAN Drive Socket Set. 58% Off https://amzn.to/3CmUMad ad 
+6.  Multi-Use Labels 63% Off Grab & go https://amzn.to/43Vj1b5 ad
