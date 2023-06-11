@@ -1,5 +1,5 @@
 ---
-title: "HOT PATIO ITEMS "
+title: HOT PATIO ITEMS * 🌟* 🌟
 date: 2023-06-11T17:25:25.814Z
 tags: Amazon
 description: "BEST AMAZON DEALS AND DISCOUNTS "
