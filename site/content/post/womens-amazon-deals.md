@@ -57,4 +57,4 @@ image: img/40ac2080-5a99-4778-9857-09f16a1a4ec9.jfif
 *  Women's No Show Socks https://amzn.to/45Y5rFJ ad 
 *  Under Armour Women's Shorts in select sizes 58% Off https://amzn.to/460wall ad 
 *  Revlon Liquid Lipstick 75% Off https://amzn.to/3P6TW9k ad 
-*
+* Anne Klein Women's Bracelet Watch. 54% Off https://amzn.to/3X2AqfL ad
