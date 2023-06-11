@@ -12,4 +12,11 @@ image: img/40ac2080-5a99-4778-9857-09f16a1a4ec9.jfif
   Price Drop\
   <https://amzn.to/3N0GukC>\
   ad
+* <!--StartFragment-->
+
+  PNK Gooseneck Organizer Desk Lamp\
+  Grab & go\
+  69% Off\
+  <https://amzn.to/42xdk2g>\
+  ad
 *
