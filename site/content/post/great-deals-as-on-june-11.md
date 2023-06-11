@@ -43,4 +43,5 @@ description: |-
 19.  PAW Patrol 4-Game Adventure City Pack. 40% Off Grab & go https://amzn.to/3qtAPM8 ad 
 20. Touch & Go Musical Light Baby Crawling Toy 63% Off https://amzn.to/43wJsnV ad 
 21. Playtex Women's 18 Hour Comfort-Strap Wireless Bra https://amzn.to/42BMGVI Grab & go ad 
-22.  Hanes Women's Value, Crew Soft Moisture-Wicking Socks! https://amzn.to/3qGkF1Y Grab & go ad
+22.  Hanes Women's Value, Crew Soft Moisture-Wicking Socks! https://amzn.to/3qGkF1Y Grab & go ad  
+23. Cloud The Mechanical Kitten!! 60% Off https://amzn.to/3qEqygt ad
