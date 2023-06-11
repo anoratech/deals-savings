@@ -8,15 +8,8 @@ image: img/40ac2080-5a99-4778-9857-09f16a1a4ec9.jfif
 * Wet n Wild Megawear Mascara. https://amzn.to/3N1FMU3 ad
 * <!--StartFragment-->
 
-  Coffee Tank Top for Women\
-  Price Drop\
-  <https://amzn.to/3N0GukC>\
+  L'Oreal Paris Revitalift 1.5% Pure Hyaluronic Acid Face Serum\
+  48% off\
+  save extra with sub & save coupon\
+  <https://amzn.to/3P4R24I>\
   ad
-* <!--StartFragment-->
-
-  PNK Gooseneck Organizer Desk Lamp\
-  Grab & go\
-  69% Off\
-  <https://amzn.to/42xdk2g>\
-  ad
-*
