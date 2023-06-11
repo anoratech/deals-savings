@@ -65,4 +65,4 @@ image: img/40ac2080-5a99-4778-9857-09f16a1a4ec9.jfif
   <!--EndFragment-->
 * lot's of makeup items on sale https://amzn.to/3NnfrRP ad 
 *  Women's No Show Socks https://amzn.to/45Y5rFJ ad 
-*
+*  Under Armour Women's Shorts in select sizes 58% Off https://amzn.to/460wall ad
