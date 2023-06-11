@@ -32,3 +32,4 @@ image: img/40ac2080-5a99-4778-9857-09f16a1a4ec9.jfif
   ad
 
   <!--EndFragment-->
+*
