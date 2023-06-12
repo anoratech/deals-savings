@@ -21,4 +21,6 @@ https://amzn.to/4613MiM Ad
 
   ![](img/43cb3216-efb5-42eb-a093-cf5893c483c8.jpeg)
 
-  *
+  * Women's Summer Short Sleeve T Shirt Dress  <https://amzn.to/3qFCzCg> ad 
+
+    ![](img/3c1e6388-e2ec-4341-ac84-0f75b31d6344.jpeg)
