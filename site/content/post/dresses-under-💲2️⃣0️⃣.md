@@ -7,17 +7,11 @@ description: |-
   May change/expire at any time.
 image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
 ---
-* P﻿RICE DROP 
+![]()
 
-  https://amzn.to/3WYgWsV (AD) Vintage Floral Flowy Pocket Tshirt Tank Sundresses
+![]()
 
-
-
-![Summer Dresses for Women Beach Boho Sleeveless Vintage Floral](img/91ys07lejbl._ac_ul1500_.jpg)
-
-![Women Casual Short Sleeve Plaid Maxi Dresses ](img/71rhjrc-uwl._ac_ul1276_.jpg)
-
-![Women Beach Floral Tshirt Sundress Sleeveless Pockets Casual Loose Tank Dress ](img/81sofqnz90l._ac_ul1500_.jpg)
+![]()
 
 grab & go https://amzn.to/4613MiM Ad 
 
@@ -133,3 +127,17 @@ grab & go https://amzn.to/4613MiM Ad
   AD\
 
   ![SAMPEEL Ruched Bodycon Dress for Women One Shoulder Dresses Midi Wrap Slit Cocktail Dresses 2023](https://m.media-amazon.com/images/I/61Sf6fxWRIL._AC_UY500_.jpg)
+
+  * <!--StartFragment-->
+
+    ‼️‼️ PRICE DROP ‼️‼️
+
+    https://amzn.to/3WZ9PAs (AD)
+
+    Vintage Floral Flowy Pocket Tshirt Tank Sundresses
+
+    <!--EndFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91yS07LejBL._AC_UL1500_.jpg)
+
+  ![]()
