@@ -94,7 +94,7 @@ grab & go https://amzn.to/4613MiM Ad
 
   ![KIRUNDO Summer Women’s Floral Ruffle Hem Mini Dress ](https://m.media-amazon.com/images/I/71aOXwUXTfL._AC_UL1500_.jpg)
 
-  ![Summer Dresses for Women Beach Boho Sleeveless Vintage Floral]()
+  ![Summer Plus Size Short Sleeve Loose Floral Long Maxi Dresses](img/71dscp-hzbl._ac_ul1500_.jpg)
 
   ![]()
 
