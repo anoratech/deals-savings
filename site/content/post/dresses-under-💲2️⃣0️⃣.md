@@ -53,40 +53,30 @@ grab & go https://amzn.to/4613MiM Ad
   AD<!--StartFragment-->
 
   ![Women\&#39;s Short Sleeve Color Block Floral Printed Long Dress Polka Dot Striped Leopard Tunic High Waisted Loose Dress](https://m.media-amazon.com/images/I/61wHEGe3wLL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * PRICE DROP
   https://amzn.to/3P5Lzus
   BTFBM Women 2023 Summer Square Neck Short Sleeve Casual Dress 
   AD<!--StartFragment-->
 
   ![BTFBM Women 2023 Summer Square Neck Short Sleeve Casual Dress Tie Back Floral High Waist Ruffle Beach Aline Mini Dresses](https://m.media-amazon.com/images/I/81-yqXTEUUL._AC_UX522_.jpg)
-
-  <!--EndFragment-->
 * PRICE DROP
   https://amzn.to/3X3qgM6
   Match Women V-Neck Long Sleeve Plain Irregular Pockets Long Dress
   AD<!--StartFragment-->
 
   ![Match Women V-Neck Long Sleeve Plain Irregular Pockets Long Dress #152](https://m.media-amazon.com/images/I/51Ip-1JAnSL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * COUPON
   https://amzn.to/3CmTz2z
   Women Summer Casual Maxi Dress Loose Pockets Short Sleeve Split Boho Dresses
   AD<!--StartFragment-->
 
   ![Women Summer Casual Maxi Dress Loose Pockets Short Sleeve Split Boho Dresses](https://m.media-amazon.com/images/I/61BjdTx23-L._AC_UX522_.jpg)
-
-  <!--EndFragment-->
 * PRICE DROP
   https://amzn.to/3p21Tle
   Womens Summer Dresses Beach Casual Tshirt Plus Size Floral Short Sleeve Loose
   AD<!--StartFragment-->
 
   ![Womens Summer Dresses Beach Casual Tshirt Plus Size Floral Short Sleeve Loose Flowy Sundresses](https://m.media-amazon.com/images/I/918Y0qN75ML._AC_UY679_.jpg)
-
-  <!--EndFragment-->
 * PRICE DROP
   https://amzn.to/42yrgZJ
   VintageClothing Women's Floral Sundresses Flowy
@@ -94,4 +84,10 @@ grab & go https://amzn.to/4613MiM Ad
 
   ![VintageClothing Women\&#39;s Floral Sundresses Flowy Boho Summer Casual Beach Dress Button Up Midi Party Dress](https://m.media-amazon.com/images/I/81DeVXjQWKL._AC_UY679_.jpg)
 
-  <!--EndFragment-->
+  * <!--StartFragment-->
+
+    Summer Women’s Floral Ruffle Hem Mini Dress (AD)\
+    PRICE DROP\
+    <https://amzn.to/3NoGGve>
+
+    <!--EndFragment-->
