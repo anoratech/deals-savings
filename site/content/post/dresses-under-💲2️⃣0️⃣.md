@@ -7,7 +7,7 @@ description: |-
   May change/expire at any time.
 image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
 ---
-![]()
+![Summer Dresses for Women Beach Boho Sleeveless Vintage Floral](img/91ys07lejbl._ac_ul1500_.jpg)
 
 ![]()
 
@@ -93,20 +93,6 @@ grab & go https://amzn.to/4613MiM Ad
     <https://amzn.to/3NoGGve>
 
   ![KIRUNDO Summer Women’s Floral Ruffle Hem Mini Dress ](https://m.media-amazon.com/images/I/71aOXwUXTfL._AC_UL1500_.jpg)
-
-  * <!--StartFragment-->
-
-    GREAT DROP
-
-    https://amzn.to/3N0P2ry (AD)
-
-    Summer Dresses for Women Beach Boho Sleeveless Vintage Floral
-
-    <!--EndFragment--> <!--StartFragment-->
-
-    ![](https://m.media-amazon.com/images/I/91yS07LejBL._AC_UL1500_.jpg)
-
-    <!--EndFragment-->
 
   ![Summer Dresses for Women Beach Boho Sleeveless Vintage Floral]()
 
