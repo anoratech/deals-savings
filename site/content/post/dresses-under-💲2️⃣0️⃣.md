@@ -32,8 +32,7 @@ grab & go https://amzn.to/4613MiM Ad
       * PRICE DROP + COUPON
         https://amzn.to/42CXcMB
         Romper Split Maxi Dress for Summer Party Beach S-5X
-        AD
-      * <!--StartFragment-->
+        AD<!--StartFragment-->
 
         ![Romper Split Maxi Dress for Summer Party Beach S-5X](https://m.media-amazon.com/images/I/513+W2jbUxL._AC_UX679_.jpg)
 
