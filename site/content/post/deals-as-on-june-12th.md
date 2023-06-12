@@ -231,49 +231,103 @@ image: img/whatsapp-image-2023-06-12-at-12.04.22-am.jpeg
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   ✂️S&S✂️
    https://amzn.to/3NoAYti
-  AD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61uFn6nUyLL._SL1000_.jpg)
+
+  <!--EndFragment-->
 * 📚📚Kids Storage Bookshelf!! 📚📚
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
    https://amzn.to/3N5h2ul
-  AD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/912iv2wC6JL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   70%OFF
   ‼️Brain Games - To Go - Pixel Puzzles Spiral-bound!! ‼️
   https://amzn.to/3WXRUdv
-  AD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61SRibWG-xL._SX385_BO1,204,203,200_.jpg)
+
+  <!--EndFragment-->
 * ‼️Dole 100% Pineapple Juice, 100% Fruit Juice with Added Vitamin C, 8.4 Fl Oz Cans (Pack of 24)!!‼️
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   ✂️S&S✂️
    https://amzn.to/42z59T0
-  AD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81G9VUahvDL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   ‼️ Glisten Garbage Disposer
    Cleaner‼️
   https://amzn.to/42ueify
-  AD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81i4Qr4LIKL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
    🐶🐶Milk-Bone Original Pet Treats Biscuits!! 🐶🐶
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   💸ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ💸
    https://amzn.to/43Vxd3Q
-  AD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81c-YSVQ--S._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   87%OFF
    💞💞Wet n Wild Color icon glitter single!! 💞💞
    https://amzn.to/3qFDt1C
-  AD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/816mRwxK56L._SL1080_.jpg)
+
+  <!--EndFragment-->
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   66%OFF
    ‼️‼️50 Piece Air Fryer Disposable Liners‼️‼️
   https://amzn.to/3Cq9DRo
-  AD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71d9+-l-KfL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * ‼️‼️Charmin Ultra Strong Clean Touch Toilet Paper, 18 Family Mega Rolls ‼️‼️
   💸ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ💸 https://amzn.to/3Ckqi8V
-  AD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61kd3BuEN+L._AC_SL1000_.jpg)
+
+  <!--EndFragment-->
 * 🎀🎀Charmin Ultra Gentle Toilet Paper, 18 Mega Rolls = 72 Regular Rolls - 6 Count(Pack of 3)🎀🎀 https://amzn.to/43xtYzP
-  AD
-* 💜💜 e.l.f. Big Mood Mascara 
-  2 Pack💜💜
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81lm8f9Y5tL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 💜💜 e.l.f. Big Mood Mascara 2 Pack💜💜
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
    https://amzn.to/46arnOi
-  AD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81E+Mxbi7YL._SL1500_.jpg)
+
+  <!--EndFragment-->
