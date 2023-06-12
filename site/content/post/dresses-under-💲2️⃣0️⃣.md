@@ -26,3 +26,8 @@ image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
     * Women's Summer Boho Floral Sundress Sleeveless Halter Neck 51% off <https://amzn.to/3oRNR5V> ad 
 
       ![](img/f8e8381d-80f6-4430-a7c7-c0b624b59f1c.jpeg)
+
+
+    * 4th of July Patriotic Long Dress 2023 save with coupon <https://amzn.to/43Olu7g> ad  
+
+      ![](img/badcd861-2dc5-4716-8823-6437e8889fd2.jpeg)
