@@ -7,7 +7,12 @@ description: |-
   May change/expire at any time.
 image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
 ---
-* Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress
+* \
+  \
+  \
+  \
+  Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress
+*
 
 grab & go 
 
