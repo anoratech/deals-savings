@@ -9,7 +9,7 @@ image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
 ---
 * Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress
 
-  grab & go https://amzn.to/4613MiM Ad 
+grab & go https://amzn.to/4613MiM Ad 
 
 ![](img/2aa16986-8e5e-4862-bfa2-baaf5195200a.jpeg)
 
@@ -26,8 +26,15 @@ image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
     * Women's Summer Boho Floral Sundress Sleeveless Halter Neck 51% off <https://amzn.to/3oRNR5V> ad 
 
       ![](img/f8e8381d-80f6-4430-a7c7-c0b624b59f1c.jpeg)
-
-
     * 4th of July Patriotic Long Dress 2023 save with coupon <https://amzn.to/43Olu7g> ad  
 
-      ![](img/badcd861-2dc5-4716-8823-6437e8889fd2.jpeg)
+      * ![](img/badcd861-2dc5-4716-8823-6437e8889fd2.jpeg)
+      * PRICE DROP + COUPON
+        https://amzn.to/42CXcMB
+        Romper Split Maxi Dress for Summer Party Beach S-5X
+        AD
+      * <!--StartFragment-->
+
+        ![Romper Split Maxi Dress for Summer Party Beach S-5X](https://m.media-amazon.com/images/I/513+W2jbUxL._AC_UX679_.jpg)
+
+        <!--EndFragment-->
