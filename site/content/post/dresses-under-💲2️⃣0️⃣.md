@@ -37,3 +37,19 @@ grab & go https://amzn.to/4613MiM Ad
         ![Romper Split Maxi Dress for Summer Party Beach S-5X](https://m.media-amazon.com/images/I/513+W2jbUxL._AC_UX679_.jpg)
 
         <!--EndFragment-->
+    * PRICE DROP
+      https://amzn.to/3Cphvm2
+      BTFBM Women's Casual Party Dresses
+      AD<!--StartFragment-->
+
+      ![BTFBM Women\&#39;s Casual Party Dresses 2023 Long Sleeve Wrap V Neck Swiss Dot Leopard Boho Swing A-Line Maxi Dress with Belt](https://m.media-amazon.com/images/I/81di2n2LKSL._AC_UY679_.jpg)
+
+      <!--EndFragment-->
+  * PRICE DROP
+    https://amzn.to/3P1bzqW
+    BTFBM Women’s Casual Short Sleeve Boho Summer Dresses
+    AD<!--StartFragment-->
+
+    ![BTFBM Women\&#39;s Casual Short Sleeve Boho Summer Dresses Crewneck Floral Print High Waist Beach Cute Mini Swing Flowy Dress](https://m.media-amazon.com/images/I/8152oAZAHuL._AC_UX522_.jpg)
+
+    <!--EndFragment-->
