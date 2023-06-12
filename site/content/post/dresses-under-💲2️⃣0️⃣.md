@@ -7,16 +7,9 @@ description: |-
   May change/expire at any time.
 image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
 ---
-* \
-  \
-  \
-  \
-  Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress
-*
+* Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress
 
-grab & go 
-
-https://amzn.to/4613MiM Ad 
+  grab & go https://amzn.to/4613MiM Ad 
 
 ![](img/2aa16986-8e5e-4862-bfa2-baaf5195200a.jpeg)
 
@@ -29,3 +22,7 @@ https://amzn.to/4613MiM Ad
   * Women's Summer Short Sleeve T Shirt Dress  <https://amzn.to/3qFCzCg> ad 
 
     ![](img/3c1e6388-e2ec-4341-ac84-0f75b31d6344.jpeg)
+
+    * Women's Summer Boho Floral Sundress Sleeveless Halter Neck 51% off <https://amzn.to/3oRNR5V> ad 
+
+      ![](img/f8e8381d-80f6-4430-a7c7-c0b624b59f1c.jpeg)
