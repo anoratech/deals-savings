@@ -20,3 +20,5 @@ https://amzn.to/4613MiM Ad
   https://amzn.to/43CxPfk Ad
 
   ![](img/43cb3216-efb5-42eb-a093-cf5893c483c8.jpeg)
+
+  *
