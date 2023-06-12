@@ -7,6 +7,12 @@ description: |-
   May change/expire at any time.
 image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
 ---
+* P﻿RICE DROP 
+
+  https://amzn.to/3WYgWsV (AD) Vintage Floral Flowy Pocket Tshirt Tank Sundresses
+
+
+
 ![Summer Dresses for Women Beach Boho Sleeveless Vintage Floral](img/91ys07lejbl._ac_ul1500_.jpg)
 
 ![Women Casual Short Sleeve Plaid Maxi Dresses ](img/71rhjrc-uwl._ac_ul1276_.jpg)
