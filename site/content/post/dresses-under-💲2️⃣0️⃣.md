@@ -7,7 +7,9 @@ description: |-
   May change/expire at any time.
 image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
 ---
-* Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress
+* ![]()
+
+  Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress
 
 grab & go https://amzn.to/4613MiM Ad 
 
@@ -84,10 +86,10 @@ grab & go https://amzn.to/4613MiM Ad
 
   ![VintageClothing Women\&#39;s Floral Sundresses Flowy Boho Summer Casual Beach Dress Button Up Midi Party Dress](https://m.media-amazon.com/images/I/81DeVXjQWKL._AC_UY679_.jpg)
 
-  * <!--StartFragment-->
-
-    Summer Women’s Floral Ruffle Hem Mini Dress (AD)\
+  * Summer Women’s Floral Ruffle Hem Mini Dress (AD)\
     PRICE DROP\
     <https://amzn.to/3NoGGve>
 
-    <!--EndFragment-->
+  ![KIRUNDO Summer Women’s Floral Ruffle Hem Mini Dress ](https://m.media-amazon.com/images/I/71aOXwUXTfL._AC_UL1500_.jpg)
+
+  ![]()
