@@ -11,7 +11,7 @@ description: |-
   Price when purchased online 
   ad
 ---
-<!--StartFragment-->https://shopstyle.it/l/bXsnK ad 
+<!--StartFragment--> https://shopstyle.it/l/bXsnK ad
 
 ![Sharpie Tank Style Highlighters, Chisel Tip, Assorted Fluorescent, 12 Count](https://i5.walmartimages.com/asr/a6247c5c-19b2-4ff2-bc46-0717a1ea63fb.1e7eb266c1389790b8298e48fae9f733.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
