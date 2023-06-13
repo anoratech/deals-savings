@@ -4,13 +4,16 @@ date: 2023-06-13T08:54:42.411Z
 tags: Amazon
 description: Product pricing/promotions may expire any time without notice.
 ---
+![](img/whatsapp-image-2023-06-13-at-2.59.52-pm.jpeg)
+
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
    ‼️Conair Salon Results Round Brush for Blow-Drying‼️
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
    https://amzn.to/3P8YVGb
   AD\
 
-  ![](https://m.media-amazon.com/images/I/71SSVoE3HXL._SL1500_.jpg)
+![](https://m.media-amazon.com/images/I/71SSVoE3HXL._SL1500_.jpg)
+
 * 50%OFF
   ‼️Deep Tissue Percussion Muscle Massager‼️
   💸ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ💸
