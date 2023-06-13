@@ -131,7 +131,17 @@ l﻿ots of deals to grab..
     ![](https://m.media-amazon.com/images/I/719ZqjCstIL._AC_UL1500_.jpg)
 
     <!--EndFragment-->
-  *
+  * <!--StartFragment-->
+
+    ⏬⏬𝓟𝓡𝓘𝓒𝓔 𝓓𝓡𝓞𝓟 ⏬⏬\
+    Trendy Floral Print Summer Tops\
+    <https://amzn.to/3N7uT3e> (AD)
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/61Uv5Y+nd9L._AC_UL1500_.jpg)
+
+    <!--EndFragment-->
 
   ![]()
 *
