@@ -71,5 +71,18 @@ image: img/12332471-020c-468c-91d7-0395ee1992e3.jpg
     ![](https://m.media-amazon.com/images/I/61gfLYttu4L._AC_.jpg)
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    G♥R♥E♥A♥T♥ ♥D♥R♥O♥P
+
+    https://amzn.to/43yrQIc (AD)
+
+    City Diamond Painting Kits
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/71boEhQWOIL._AC_SL1000_.jpg)
+
+    <!--EndFragment-->
 
 ![]()
