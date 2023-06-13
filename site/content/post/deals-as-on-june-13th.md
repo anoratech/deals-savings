@@ -1,5 +1,5 @@
 ---
-title: DEALS AS ON JUNE 13TH
+title: 💸💸DEALS AS ON JUNE 13TH 💸💸
 date: 2023-06-13T08:54:42.411Z
 tags: Amazon
 description: Product pricing/promotions may expire any time without notice.
@@ -82,18 +82,12 @@ description: Product pricing/promotions may expire any time without notice.
   AD\
 
   ![](https://m.media-amazon.com/images/I/81ryhaH3edL._AC_UX522_.jpg)
-
-  <!--EndFragment-->
-
 * 🎀3 Pack of Biker Shorts!! 🎀
   ‼️NO CODE NEEDED ‼️
    https://amzn.to/3N5EC9Z
   AD\
 
   ![3 Pack Biker Shorts for Women – 8"/ 5"/ 3" Buttery Soft High Waisted Tummy Control Workout Yoga Running Athletic Shorts](https://m.media-amazon.com/images/I/61dhyKRcD2L._AC_UX522_.jpg)
-
-  <!--EndFragment-->
-
 * ‼️Bali One Smooth Wireless Bra‼️
   ‼️NO CODE NEEDED ‼️
   https://amzn.to/3X0psYl
