@@ -119,7 +119,18 @@ l﻿ots of deals to grab..
 
   <!--EndFragment-->
 
-  *
+  * <!--StartFragment-->
+
+    COUPON ✂️✂️\
+    GOOOO 🏃🏃\
+    Women's Summer Tunic Top\
+    <https://amzn.to/45YxIfz> (AD)
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/719ZqjCstIL._AC_UL1500_.jpg)
+
+    <!--EndFragment-->
   *
 
   ![]()
