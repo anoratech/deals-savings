@@ -7,6 +7,8 @@ image: img/whatsapp-image-2023-06-09-at-17.05.25.jpg
 ---
 ![]()
 
+![]()
+
 l﻿ots of deals to grab..
 
 * https://amzn.to/42ARMBE
@@ -99,7 +101,18 @@ l﻿ots of deals to grab..
   [https://amzn.to/3P4a5vR](https://amzn.to/3P4a5vR?fbclid=IwAR0hFoYc0BXi_zZATboBbOVbS3XrdABSSOdnZP_FFaT9ukDiUDjGEkagmvE)
 
   ad
-*
+* <!--StartFragment-->
+
+  🎀 𝒫𝑅𝐼𝒞𝐸 𝒟𝑅🌺𝒫 🎀\
+  Casual Dressy Short Sleeve V Neck T Shirts\
+  <https://amzn.to/42BiNFc> (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71zFfTCjoWL._AC_UL1500_.jpg)
+
+  <!--EndFragment-->
+* ![]()
 *
 *
 *
