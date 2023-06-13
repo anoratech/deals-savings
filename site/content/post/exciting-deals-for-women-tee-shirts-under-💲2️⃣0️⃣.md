@@ -5,6 +5,8 @@ tags: amazon
 description: Exciting deals for teeshirts under 💲2️⃣0️⃣
 image: img/whatsapp-image-2023-06-09-at-17.05.25.jpg
 ---
+![]()
+
 l﻿ots of deals to grab..
 
 * https://amzn.to/42ARMBE
@@ -83,8 +85,6 @@ l﻿ots of deals to grab..
 * Pride T Shirt Women Rainbow Graphic Tee Shirts  Grab & go https://amzn.to/3P3jwf2 ad 
 * Drinkerbell Tank Top Women Funny Drunk Fairy Shirt Casual Tinkerbell Racerback Tank Tees
 
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">3VW2OIJE</code></pre>
-
   40%
 
   Code: 3VW2OIJE
@@ -94,8 +94,6 @@ l﻿ots of deals to grab..
 
   Discount: 40% 
 
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">EZQP9DM3</code></pre>
-
   Code: EZQP9DM3
 
   [https://amzn.to/3P4a5vR](https://amzn.to/3P4a5vR?fbclid=IwAR0hFoYc0BXi_zZATboBbOVbS3XrdABSSOdnZP_FFaT9ukDiUDjGEkagmvE)
@@ -103,56 +101,14 @@ l﻿ots of deals to grab..
   ad
 * <!--StartFragment-->
 
-  Hiking Mountain Shirt Women Nature Sunrise Pine Tree Graphic\
-  Discount: 40%\
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">40YPJTC1</code></pre>\
-  code:40YPJTC1\
-  <https://amzn.to/3CrexNH>\
-  ad
+  ‼️ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ\
+  Womens Floral 3/4 Sleeve Shirts\
+  <https://amzn.to/3XbfhQL> (AD)
 
+  <!--EndFragment--><!--StartFragment-->
 
-* <!--StartFragment-->
-
-  Mandala Tank Tops Lotus Flower Graphic Tshirt\
-  \
-  Discount: 40%\
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">49EHLX6E</code></pre>\
-  Code: 49EHLX6E\
-  <https://amzn.to/3ClKs2k>\
-  ad
-* <!--StartFragment-->
-
-  Baseball Mom Shirts for Women\
-  40% Off\
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">KPXBBZ36</code></pre>\
-  Code: KPXBBZ36\
-  <https://amzn.to/42xPaV6>\
-  ad
-* <!--StartFragment-->
-
-  Beach Shirt Hawaiian Vacation Tops
-
-  50% Off
-
-  Grab & go
-
-  [https://amzn.to/3qvy6ln](https://amzn.to/3qvy6ln?fbclid=IwAR1-QSjJpgA5O137FYHShcNLPkoGhwEgucMEtjIuodDWyChJUheylJ5uuT8)
-
-  ad
-* <!--StartFragment-->
-
-  4th of July Mommy and Me Matching Outfits\
-  50% Off\
-  Grab & go\
-  <https://amzn.to/3PchzwS>\
-  ad
-* <!--StartFragment-->
-
-  American Flag Tank Top Women 4th of July Patriotic Shirt\
-  Discount: 30%\
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy"> XIQEN4B2</code></pre>\
-  Code: XIQEN4B2\
-  <https://amzn.to/3J6Ivua>\
-  ad
+  ![](https://m.media-amazon.com/images/I/81S4J+xetrL._AC_UL1500_.jpg)
 
   <!--EndFragment-->
+
+  ![]()
