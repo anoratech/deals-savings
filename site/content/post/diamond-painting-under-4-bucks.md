@@ -17,6 +17,18 @@ image: img/12332471-020c-468c-91d7-0395ee1992e3.jpg
 
   ![](https://m.media-amazon.com/images/I/81EKcJ8+fhL._AC_SL1500_.jpg)
 
-  <!--EndFragment-->
+  * <!--StartFragment-->
+
+    ‼️‼️ 𝓟𝓡𝓘𝓒𝓔 𝓓𝓡𝓞𝓟 ‼️‼️
+
+    https://amzn.to/3N6uHB4 (AD)
+
+    6 Pack 5D Diamond Art Kits for Kids & Beginners Full Drill
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/81Puvt6GC4L._AC_SL1500_.jpg)
+
+    <!--EndFragment-->
 
 ![]()
