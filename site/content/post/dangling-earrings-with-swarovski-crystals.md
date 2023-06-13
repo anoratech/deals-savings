@@ -10,7 +10,7 @@ description: |
   https://shopstyle.it/l/bXsny
   Price when purchased online
 ---
-<!--StartFragment--> https://shopstyle.it/l/bXsny ad 
+<!--StartFragment--> https://shopstyle.it/l/bXsny
 
 ![Cate & Chloe McKenzie 18k White Gold Plated Dangling Earrings with Swarovski Crystals, Solitaire Crystal Dangle Earrings, Best Silver Drop Earrings for Women, Horseshoe Shape](https://i5.walmartimages.com/asr/7798312c-3a30-4575-85b8-0d06d59d524b_1.42f413e68f9a3e7d9a77bcf7b9d6b1e0.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
