@@ -9,7 +9,9 @@ description: |-
   code 50LRSBVC 
   ad
 ---
-<!--StartFragment--> https://amzn.to/42xinzL  <pre><code class="language-js" data-prismjs-copy="Click to Copy">50LRSBVC </code></pre>
+<!--StartFragment-->
+
+ https://amzn.to/42xinzL  <pre><code class="language-js" data-prismjs-copy="Click to Copy">50LRSBVC </code></pre>
 
 ![](https://m.media-amazon.com/images/I/41iOWK3oX3L._SR400,400_.jpg)
 
