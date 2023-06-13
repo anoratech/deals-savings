@@ -30,5 +30,18 @@ image: img/12332471-020c-468c-91d7-0395ee1992e3.jpg
     ![](https://m.media-amazon.com/images/I/81Puvt6GC4L._AC_SL1500_.jpg)
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    🅿🆁🅸🅲🅴 🅳🆁🅾🅿
+
+    https://amzn.to/3JaQlTw (AD)
+
+    5D Diamond Art Kits for Adults Kids Beginner
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/6183WMmT5tL._AC_SL1500_.jpg)
+
+    <!--EndFragment-->
 
 ![]()
