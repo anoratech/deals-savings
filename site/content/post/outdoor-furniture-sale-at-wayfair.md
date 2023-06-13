@@ -12,9 +12,8 @@ https://shopstyle.it/l/bXsRc ad
 
 <!--EndFragment-->
 
-* <!--StartFragment--> https://shopstyle.it/l/bXsRn ad 
+* <!--StartFragment--> https://shopstyle.it/l/bXsRO ad 
 
-  ![Everlee 79" Long Reclining Single Chaise](https://secure.img1-cg.wfcdn.com/im/77362908/resize-h755-w755%5Ecompr-r85/2229/222973196/Everlee+79%22+Long+Reclining+Single+Chaise.jpg)
+  ![Marciano Adirondack Set](https://secure.img1-cg.wfcdn.com/im/66322559/resize-h755-w755%5Ecompr-r85/7629/76292936/Marciano+Adirondack+Set.jpg)
 
   <!--EndFragment-->
-*
