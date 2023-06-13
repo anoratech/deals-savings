@@ -54,3 +54,49 @@ description: Discover trendy and affordable fashion with a wide selection of
     ![Just My Size Women's Plus Size Graphic Short Sleeve V-neck Tee](https://i5.walmartimages.com/asr/ce45e057-a05b-4afe-81ed-088009ff6683_1.d31fe8921e76d2c733a4bcd5ca867e55.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
     <!--EndFragment-->
+  * https://mavely.app.link/e/u5gF8fK0AAb
+    Time and Tru Women's Short-Sleeve Raglan T-Shirt, 2-Pack
+    Now $10.00
+    was $15.76
+    🚨𝐇𝐔𝐆𝐄 𝐃𝐈𝐒𝐂𝐎𝐔𝐍𝐓𝐒 
+    🚨𝐑𝐄𝐃𝐔𝐂𝐄𝐃 𝐏𝐑𝐈𝐂𝐄
+    🚨𝐒𝐀𝐋𝐄
+    🚨𝐀𝐃<!--StartFragment-->
+
+    ![Time and Tru Women's Short-Sleeve Raglan T-Shirt, 2-Pack](https://i5.walmartimages.com/asr/9189e4ed-7baf-4858-830c-6f592495c93a_1.478aa6cb89b40c89c917fbc83c7af128.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
+    <!--EndFragment-->
+  * https://mavely.app.link/e/n3q9hyUZAAb
+    Time and Tru Women’s Cotton V-Neck T-Shirt
+    $4.98
+    🚨𝐇𝐔𝐆𝐄 𝐃𝐈𝐒𝐂𝐎𝐔𝐍𝐓𝐒 
+    🚨𝐑𝐄𝐃𝐔𝐂𝐄𝐃 𝐏𝐑𝐈𝐂𝐄
+    🚨𝐒𝐀𝐋𝐄
+    🚨𝐀𝐃<!--StartFragment-->
+
+    ![Time and Tru Women's Cotton V-Neck T-Shirt](https://i5.walmartimages.com/asr/0fedd0e3-649f-49a1-af11-5ae0b8bb3f6b.77c647a0d1100db768b1e80bad04aeb2.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
+    <!--EndFragment-->
+  * PRICE DROP
+    https://mavely.app.link/e/hk0mWacYAAb
+    Hanes Women's Long Sleeve V-Neck Tee
+    🚨𝐇𝐔𝐆𝐄 𝐃𝐈𝐒𝐂𝐎𝐔𝐍𝐓𝐒 
+    🚨𝐑𝐄𝐃𝐔𝐂𝐄𝐃 𝐏𝐑𝐈𝐂𝐄
+    🚨𝐒𝐀𝐋𝐄
+    🚨𝐀𝐃<!--StartFragment-->
+
+    ![Hanes Women's Long Sleeve V-Neck Tee](https://i5.walmartimages.com/asr/81ae04b6-542e-40e4-8fa5-d3bbb8e3a7d4.f1fe1bf3572bf7e73de171feebf8b955.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
+    <!--EndFragment-->
+  * PRICE DROP
+    https://mavely.app.link/e/jNndr4VXAAb
+    Hanes Women’s Slub Jersey Shirred V-Neck T Shirt
+    AD
+    🚨𝐇𝐔𝐆𝐄 𝐃𝐈𝐒𝐂𝐎𝐔𝐍𝐓𝐒 
+    🚨𝐑𝐄𝐃𝐔𝐂𝐄𝐃 𝐏𝐑𝐈𝐂𝐄
+    🚨𝐒𝐀𝐋𝐄
+    🚨𝐀𝐃<!--StartFragment-->
+
+    ![Hanes Women's Slub Jersey Shirred V-Neck T Shirt](https://i5.walmartimages.com/asr/a29ca2be-022e-45a2-ac9a-a7d746b04ca6_1.d7a2597f4a9b4568ce23f99329bbdd41.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
+    <!--EndFragment-->
