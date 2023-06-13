@@ -17,3 +17,4 @@ https://shopstyle.it/l/bXsRc ad
   ![Marciano Adirondack Set](https://secure.img1-cg.wfcdn.com/im/66322559/resize-h755-w755%5Ecompr-r85/7629/76292936/Marciano+Adirondack+Set.jpg)
 
   <!--EndFragment-->
+*
