@@ -146,7 +146,19 @@ l﻿ots of deals to grab..
     ![](https://m.media-amazon.com/images/I/719ZqjCstIL._AC_UL1500_.jpg)
 
     <!--EndFragment-->
-  * ![]()
+  * <!--StartFragment-->
+
+    🎀 𝒫𝑅𝐼𝒞𝐸 𝒟𝑅🌺𝒫 🎀\
+    Casual Dressy Short Sleeve V Neck T Shirts\
+    <https://amzn.to/42BiNFc> (AD)
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/71zFfTCjoWL._AC_UL1500_.jpg)
+
+    <!--EndFragment-->
+
+    ![]()
 *
 *
 *
