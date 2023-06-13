@@ -109,6 +109,21 @@ l﻿ots of deals to grab..
 
   ![](https://m.media-amazon.com/images/I/81S4J+xetrL._AC_UL1500_.jpg)
 
+  * <!--StartFragment-->🅾🅽 🅳🆁🅾🅿\
+    Essentials Women's Classic-Fit Short-Sleeve V-Neck T-Shirt\
+    <https://amzn.to/43CVU5q> (AD)
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/61VXOrqsTyS._AC_UL1500_.jpg)
+
   <!--EndFragment-->
 
+  *
+  *
+
   ![]()
+*
+*
+*
+*
