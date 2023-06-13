@@ -123,4 +123,14 @@ l﻿ots of deals to grab..
   ![](https://m.media-amazon.com/images/I/719ZqjCstIL._AC_UL1500_.jpg)
 
   <!--EndFragment-->
-*
+* <!--StartFragment-->
+
+  🅿🆁🅸🅲🅴 🅳🆁🅾🅿\
+  Women's Classic-Fit Short-Sleeve V-Neck T-Shirt\
+  <https://amzn.to/43BJT0g> (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61VXOrqsTyS._AC_UL1500_.jpg)
+
+  <!--EndFragment-->
