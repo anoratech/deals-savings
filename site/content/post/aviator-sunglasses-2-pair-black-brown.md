@@ -8,7 +8,9 @@ description: |-2
 
   ad
 ---
-<!--StartFragment-->https://amzn.to/3X3Oc1M
+<!--StartFragment--> 
+
+https://amzn.to/3X3Oc1M
 
 <pre><code class="language-js" data-prismjs-copy="Click to Copy">RUPHRKAH </code></pre> 
 
