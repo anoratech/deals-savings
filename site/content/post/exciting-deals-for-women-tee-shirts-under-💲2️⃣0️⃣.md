@@ -133,8 +133,20 @@ l﻿ots of deals to grab..
 
   ![](https://m.media-amazon.com/images/I/61VXOrqsTyS._AC_UL1500_.jpg)
 
-  <!--EndFragment-->
 
-  ![]()
+
+  * <!--StartFragment-->
+
+    COUPON ✂️✂️\
+    Women's Summer Tunic Top\
+    <https://amzn.to/464fPvJ> (AD)
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/719ZqjCstIL._AC_UL1500_.jpg)
+
+    <!--EndFragment-->
+  * ![]()
+*
 *
 *
