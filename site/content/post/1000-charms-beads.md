@@ -9,7 +9,9 @@ description: |-
   Grab & go 
   ad
 ---
-<!--StartFragment-->https://amzn.to/42D4aRy 
+<!--StartFragment-->
+
+https://amzn.to/42D4aRy 
 
 ![](https://m.media-amazon.com/images/I/919-5ICM00L._AC_SL1500_.jpg)
 
