@@ -107,12 +107,10 @@ l﻿ots of deals to grab..
   Casual Dressy Short Sleeve V Neck T Shirts\
   <https://amzn.to/42BiNFc> (AD)
 
-  <!--EndFragment--><!--StartFragment-->
+  <!--EndFragment-->
 
   ![](https://m.media-amazon.com/images/I/71zFfTCjoWL._AC_UL1500_.jpg)
 
   <!--EndFragment-->
-* ![]()
-*
 *
 *
