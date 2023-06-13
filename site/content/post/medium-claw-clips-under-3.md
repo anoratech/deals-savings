@@ -12,8 +12,6 @@ description: |
 
  https://amzn.to/3X3CF2t ad 
 
-
-
 ![](https://m.media-amazon.com/images/I/71aH8RMY6BL._SL1500_.jpg)
 
 <!--EndFragment-->
