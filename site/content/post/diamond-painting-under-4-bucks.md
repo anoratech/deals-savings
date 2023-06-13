@@ -56,5 +56,20 @@ image: img/12332471-020c-468c-91d7-0395ee1992e3.jpg
     ![](https://m.media-amazon.com/images/I/81q7sEW1YeL._AC_SL1500_.jpg)
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    GRAB & GO 🏃🏃
+
+    ⤵️⤵️PRICE DROP ⤵️⤵️
+
+    https://amzn.to/3qChvMS (AD)
+
+    Fall Diamond Painting Kits
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/61gfLYttu4L._AC_.jpg)
+
+    <!--EndFragment-->
 
 ![]()
