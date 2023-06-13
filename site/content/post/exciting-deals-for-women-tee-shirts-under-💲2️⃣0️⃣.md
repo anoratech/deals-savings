@@ -103,50 +103,6 @@ l﻿ots of deals to grab..
   ad
 * <!--StartFragment-->
 
-  🎀 𝒫𝑅𝐼𝒞𝐸 𝒟𝑅🌺𝒫 🎀\
-  Casual Dressy Short Sleeve V Neck T Shirts\
-  <https://amzn.to/42BiNFc> (AD)
-
-  <!--EndFragment-->
-
-  ![](https://m.media-amazon.com/images/I/71zFfTCjoWL._AC_UL1500_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  COUPON ✂️✂️\
-  Women's Summer Tunic Top\
-  <https://amzn.to/464fPvJ> (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/719ZqjCstIL._AC_UL1500_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  🅿🆁🅸🅲🅴 🅳🆁🅾🅿\
-  Women's Classic-Fit Short-Sleeve V-Neck T-Shirt\
-  <https://amzn.to/43BJT0g> (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/61VXOrqsTyS._AC_UL1500_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  GRAB & GO 🏃🏃\
-  Womens Floral 3/4 Sleeve Shirts\
-  <https://amzn.to/43CZxby> (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/81S4J+xetrL._AC_UL1500_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
   🅿🆁🅸🅲🅴 🅳🆁🅾🅿\
   Womens Cap Sleeve Tops\
   <https://amzn.to/3CrhVs7> (AD)
@@ -156,3 +112,4 @@ l﻿ots of deals to grab..
   ![](https://m.media-amazon.com/images/I/61Uv5Y+nd9L._AC_UL1500_.jpg)
 
   <!--EndFragment-->
+* ![]()
