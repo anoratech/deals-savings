@@ -27,7 +27,7 @@ Now $4.99
 
 https://mavely.app.link/e/sVTO7H2QCAb ad
 
-![qucoqpe Plus Size Blouse for Women Fashion Casual Solid Color Printing V-Neck Short Sleeve Ruched Tunic Tee Summer Camisas De Mujer T-Shirt Tops on Clearance](https://i5.walmartimages.com/asr/d6391053-10d8-4a83-8267-640971117611.3327a2351b3b6cd17d6bb05f86674206.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+![ Plus Size Blouse for Women Fashion Casual Solid Color Printing V-Neck Short Sleeve Ruched Tunic Tee Summer Camisas De Mujer T-Shirt Tops on Clearance](https://i5.walmartimages.com/asr/d6391053-10d8-4a83-8267-640971117611.3327a2351b3b6cd17d6bb05f86674206.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
 T-Shirt Prints Loose Blouse Deals of the Day
 
