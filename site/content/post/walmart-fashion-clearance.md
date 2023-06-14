@@ -47,4 +47,12 @@ https://mavely.app.link/e/84mqmdcSCAb
 
 ![Sofia Jeans by Sofia Vergara Women’s Square Neck Peplum Top with Long Sleeves](https://i5.walmartimages.com/asr/8ae26f10-bbc8-47cf-bb47-68339c3fba81.e4702a3422267bd50cbfab84101a3f2f.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
+Time and Tru Women's Knit Halter Dress
+
+Now $12.98
+
+https://mavely.app.link/e/pbxRRVwSCAb ad
+
+![Time and Tru Women's Knit Halter Dress](https://i5.walmartimages.com/asr/9b9d9746-9f32-4a36-b9f9-2ef9ad8ae8bd.0cfdbcf32cb5c199efadfd5be821a3f5.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
 <!--EndFragment-->
