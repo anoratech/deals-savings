@@ -4,12 +4,15 @@ date: 2023-06-14T08:59:36.009Z
 tags: Amazon
 description: hot deals
 ---
+![](img/whatsapp-image-2023-06-14-at-2.48.16-pm.jpeg)
+
 * 🤎Bathroom Storage Cabinet!!🤎
   ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
   https://amzn.to/3P6dkDf
   AD\
 
-  ![](https://m.media-amazon.com/images/I/71D4HghsdzL._AC_SX522_.jpg)
+![](https://m.media-amazon.com/images/I/71D4HghsdzL._AC_SX522_.jpg)
+
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   🌟Activity Binder with 30 Activities - Includes 8 Markers - Travel Activity Book 
   ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
