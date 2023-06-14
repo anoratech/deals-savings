@@ -9,7 +9,9 @@ image: img/32734a51-ecfc-4d3d-8c88-4d7df6c921fb.jpg
 ---
 * 🅿🆁🅸🅲🅴 🅳🆁🅾🅿
   e.l.f. Flawless Finish Foundation 
-  https://amzn.to/42z0T65 (AD)<!--StartFragment-->
+  https://amzn.to/42z0T65 (AD)<!--StartFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/51Er8v-sr9L._SL1500_.jpg)
 
   ![]()
 * ‼️‼️PRICE DROP ‼️✴️
@@ -22,19 +24,13 @@ image: img/32734a51-ecfc-4d3d-8c88-4d7df6c921fb.jpg
   https://amzn.to/3PehZ62 (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71JxEFQItaL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * ✂️✂️C-O-U-P-O-N ✂️✂️
   Maybelline Instant Age Rewind Eraser Dark Circles Treatment
   https://amzn.to/3Je7fkq (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61bGLtb9nQL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * G♥R♥E♥A♥T♥ ♥D♥R♥O♥P
   essence | Lash Princess False Lash Effect Mascara 
   https://amzn.to/44gH4Sn (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61K6cQhw4EL._SL1500_.jpg)
-
-  <!--EndFragment-->
