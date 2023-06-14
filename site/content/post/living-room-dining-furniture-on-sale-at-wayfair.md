@@ -1,5 +1,5 @@
 ---
-title: "Fantastic savings on décor & mirrors, On sale at Wayfair "
+title: "Fantastic savings on décor & mirrors at Wayfair "
 date: 2023-06-14T12:03:49.955Z
 tags: "Deals "
 description: "Great deals up to 50% Off "
