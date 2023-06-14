@@ -1,8 +1,8 @@
 ---
-title: DEALS AS ON JUNE 14TH DEALS ND SAVINGS
+title: 🏃🏃‍♀️DEALS AS ON JUNE 14TH DEALS ND SAVINGS 🤎🤎
 date: 2023-06-14T08:59:36.009Z
 tags: Amazon
-description: hot deals
+description: Product pricing/promotions may expire any time without notice.
 ---
 ![](img/whatsapp-image-2023-06-14-at-2.48.16-pm.jpeg)
 
