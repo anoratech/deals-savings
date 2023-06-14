@@ -17,6 +17,12 @@ image: img/32734a51-ecfc-4d3d-8c88-4d7df6c921fb.jpg
   https://amzn.to/3Cq0MPu (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61dh9Y6h75L._SL1000_.jpg)
-*
+* (っ◔◡◔)っ ♥ PRICE DROP ♥
+  Neutrogena Makeup Remover Facial Cleansing Towelette Singles
+  https://amzn.to/3PehZ62 (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71JxEFQItaL._SL1500_.jpg)
+
+  <!--EndFragment-->
 *
 *
