@@ -99,5 +99,12 @@ image: img/077f3bef-369f-498b-b459-720e4e3d8f83.jpg
   ![](https://m.media-amazon.com/images/I/71Ur9Pu+X1L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ▶️🅾🅽 🅳🆁🅾🅿⤵️⤵️
+  CozyLux King Reversible Comforter Set 3-Piece
+  https://amzn.to/3N5jhxH (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61sOcPXX43L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
