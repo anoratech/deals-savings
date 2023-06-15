@@ -85,5 +85,12 @@ image: img/077f3bef-369f-498b-b459-720e4e3d8f83.jpg
   ![](https://m.media-amazon.com/images/I/61SaE+M4a6S._AC_UL1024_.jpg)
 
   <!--EndFragment-->
+* ⤵️⤵️🅳🆁🅾🅿 + C-O-U-P-O-N ✂️✂️
+  Satin Silk Pillowcase for Hair and Skin
+  https://amzn.to/43JDVdU (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61olJClLFoL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
