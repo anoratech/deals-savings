@@ -77,5 +77,13 @@ image: img/077f3bef-369f-498b-b459-720e4e3d8f83.jpg
   ![](https://m.media-amazon.com/images/I/61JSdwodY1L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ‼️‼️PRICE DROP ‼️⏬
+  🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳
+  Hey Dude Women's Wendy Lace-Up Loafers
+  https://amzn.to/3CvxY89 (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61SaE+M4a6S._AC_UL1024_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
