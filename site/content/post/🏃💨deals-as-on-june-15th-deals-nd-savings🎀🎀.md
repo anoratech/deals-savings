@@ -92,5 +92,12 @@ image: img/077f3bef-369f-498b-b459-720e4e3d8f83.jpg
   ![](https://m.media-amazon.com/images/I/61olJClLFoL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ‼️‼️PRICE DOWN ⏬⏬
+  Scalp Massager pack of 2
+  https://amzn.to/4405EXn (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71Ur9Pu+X1L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
