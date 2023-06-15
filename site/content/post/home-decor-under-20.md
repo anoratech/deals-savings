@@ -15,5 +15,12 @@ description: Find awesome deals on HOME DECOR
   ![](https://m.media-amazon.com/images/I/71E1MJFm23L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ⏩⏩ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ⏬⏬
+  🌵Small Succulent Pots🌵
+  https://amzn.to/42EdUuZ (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71-fgzscPXL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
