@@ -49,5 +49,12 @@ image: img/077f3bef-369f-498b-b459-720e4e3d8f83.jpg
   ![](https://m.media-amazon.com/images/I/81c0MB43z8L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* (っ◔◡◔)っ ♥ PRICE DROP ♥
+  Bali One Smooth U Wireless Bra
+  https://amzn.to/3p3SPMO (Ad)<!--StartFragment-->
+
+  ![May be an image of sleepwear and text that says "WOMEN SWIMSUIT, LINGERIES & INTIMATE WEAR"](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/354063104_5747263528744350_179319366007112938_n.jpg?_nc_cat=102&cb=99be929b-59f725be&ccb=1-7&_nc_sid=730e14&_nc_ohc=LYr_LtPe7VsAX8hSEPo&_nc_ht=scontent.fccu11-1.fna&oh=00_AfCA700-ma4m83BumeFg_SO7aWXcSNEnMnE5SrrNK7DQ7Q&oe=64901F4D)
+
+  <!--EndFragment-->
 
 ![]()
