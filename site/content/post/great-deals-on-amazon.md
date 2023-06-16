@@ -33,4 +33,12 @@ Hollywood Hair Extension Maker for Girls Grab & go https://amzn.to/43HzKze ad
 
 ![](https://m.media-amazon.com/images/I/81qAHfrVWEL._AC_SL1500_.jpg)
 
+
+
+ZealSea ZealSea Vitamin C Serum for Face, 50 % Off Grab & go https://amzn.to/3NyEmC0 ad
+
+
+
+![](https://m.media-amazon.com/images/I/411YDClGiML._SR400,400_.jpg)
+
 <!--EndFragment-->
