@@ -53,4 +53,8 @@ Planters Sweet and Spicy Dry Roasted Peanuts, 16 oz. Uner $ 2 https://amzn.to/46
 
 ![Planters Sweet and Spicy Dry Roasted Peanuts, 16 oz.](https://m.media-amazon.com/images/I/71jBS3zBGpL._SX522_.jpg)
 
+Nautica Girls' Fleece Full-Zip Hoodie Sweatshirt 72% Off Grab & go https://amzn.to/42IFqrs ad
+
+![Nautica Girls\&#39; Fleece Full-Zip Hoodie Sweatshirt](https://m.media-amazon.com/images/I/91EWit+XV9L._AC_UX522_.jpg)
+
 <!--EndFragment-->
