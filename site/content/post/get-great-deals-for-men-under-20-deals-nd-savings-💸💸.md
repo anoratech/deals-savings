@@ -33,6 +33,13 @@ image: img/c69f0acc-95f1-4266-9fde-7351e21a3ef1.jpg
     ![](https://m.media-amazon.com/images/I/61Mg5W1cGiL._AC_UL1500_.jpg)
 
     <!--EndFragment-->
+  * 🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳
+    UGG Men's Fleece Gaiter
+    https://amzn.to/3qKsXGq (Ad)<!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/81N3I7RNFhL._AC_UL1500_.jpg)
+
+    <!--EndFragment-->
 
   ![]()
 *
