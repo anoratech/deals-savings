@@ -45,8 +45,12 @@ https://amzn.to/3p85sXi ad
 
 ![](https://m.media-amazon.com/images/I/71N9kr8KHcL._AC_SL1500_.jpg)
 
-<!--StartFragment-->
+Civan Small Pop Purse ,Grab & go [https://amzn.to/3JfGzj2](https://amzn.to/3JfGzj2?fbclid=IwAR11udERz--9nydQfMXSwmcErFq-mwok55HiiSB1C-KwEPZuwegroISS5R4) ad
 
 ![](https://m.media-amazon.com/images/I/71PoRUahZHL._AC_SL1500_.jpg)
+
+Blonde Doll, Mommy Dog, 3 Puppies and 11 Pieces, Newborn Pups Set https://amzn.to/3CyAM4s ad
+
+![](https://m.media-amazon.com/images/I/61r+9hKIiZL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
