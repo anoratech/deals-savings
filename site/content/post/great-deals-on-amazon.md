@@ -17,4 +17,12 @@ VTech Drop and Go Dump Truck, Yellow 42% off https://amzn.to/3NavqRS ad
 
 ![](https://m.media-amazon.com/images/I/71mla1QQhFL._AC_SL1500_.jpg)
 
+
+
+Hey Dude Women's Wendy Lace-Up Loafers 54% Off https://amzn.to/445pe4G ad
+
+
+
+![Hey Dude Women\&#39;s Wendy Lace-Up Loafers Comfortable \&amp; Lightweight Ladies Shoes Multiple Sizes \&amp; Colors](https://m.media-amazon.com/images/I/61kGvr+WjaS._AC_UY500_.jpg)
+
 <!--EndFragment-->
