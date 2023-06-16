@@ -95,4 +95,8 @@ Mother's Circus Animal Cookies, 9oz ,Grab & go https://amzn.to/3p6sOfN ad
 
 ![](https://m.media-amazon.com/images/I/81hJ7S+ttjL._SL1500_.jpg)
 
+Hanes Men's EcoSmart Fleece Sweatshirt https://amzn.to/442RDbr ad
+
+![Hanes Men\&#39;s EcoSmart Fleece Sweatshirt, Cotton-Blend Pullover, Crewneck Sweatshirt for Men (1 or 2 pack)](https://m.media-amazon.com/images/I/81xNLcv21tL._AC_UX679_.jpg)
+
 <!--EndFragment-->
