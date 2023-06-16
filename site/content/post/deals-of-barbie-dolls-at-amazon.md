@@ -25,4 +25,8 @@ Barbie Fashionistas Doll with Black Up-Do Hair, 49% Off ,Grab & go https://amzn.
 
 ![](https://m.media-amazon.com/images/I/71MpTLGJKBL._AC_SL1500_.jpg)
 
+Malibu Camping Playset with Doll, 52% Off https://amzn.to/3p0wK1P ad
+
+![](https://m.media-amazon.com/images/I/71dGJ194idL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
