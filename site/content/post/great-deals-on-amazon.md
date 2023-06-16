@@ -25,4 +25,12 @@ Hey Dude Women's Wendy Lace-Up Loafers 54% Off https://amzn.to/445pe4G ad
 
 ![Hey Dude Women\&#39;s Wendy Lace-Up Loafers Comfortable \&amp; Lightweight Ladies Shoes Multiple Sizes \&amp; Colors](https://m.media-amazon.com/images/I/61kGvr+WjaS._AC_UY500_.jpg)
 
+
+
+Hollywood Hair Extension Maker for Girls Grab & go https://amzn.to/43HzKze ad
+
+
+
+![](https://m.media-amazon.com/images/I/81qAHfrVWEL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
