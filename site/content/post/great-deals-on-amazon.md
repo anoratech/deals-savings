@@ -47,4 +47,10 @@ BLUE LIZARD Mineral Sunscreen Stick with Zinc Oxide SPF 50+ ,50% Off when buy 2 
 
 ![](https://m.media-amazon.com/images/I/719Wi1uPR5L._AC_SL1500_.jpg)
 
+
+
+Planters Sweet and Spicy Dry Roasted Peanuts, 16 oz. Uner $ 2 https://amzn.to/46bN3JF ad
+
+![Planters Sweet and Spicy Dry Roasted Peanuts, 16 oz.](https://m.media-amazon.com/images/I/71jBS3zBGpL._SX522_.jpg)
+
 <!--EndFragment-->
