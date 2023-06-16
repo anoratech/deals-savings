@@ -26,6 +26,13 @@ image: img/c69f0acc-95f1-4266-9fde-7351e21a3ef1.jpg
     ![](https://m.media-amazon.com/images/I/81APIMD5vML._SL1500_.jpg)
 
     <!--EndFragment-->
+  * C-O-U-P-O-N ✂️✂️
+    Mens Garden Clogs Shoe 👟
+    https://amzn.to/3XaePlK (Ad)<!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/I/61Mg5W1cGiL._AC_UL1500_.jpg)
+
+    <!--EndFragment-->
 
   ![]()
 *
