@@ -77,4 +77,4 @@ Pur Luv K9 Kabob Dog Treats 40% off with sub & save https://amzn.to/3Xic0zi ad
 
 ![](https://m.media-amazon.com/images/I/91UG0E+IiOL._AC_SL1500_.jpg)
 
-<!--EndFragment-->
+Get 3 for the price of 2 Books on sale https://amzn.to/43MmsBA ad
