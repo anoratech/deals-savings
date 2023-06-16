@@ -13,4 +13,8 @@ Barbie Fashionistas Doll & Playset https://amzn.to/3NaA0j2 ad
 
 ![](https://m.media-amazon.com/images/I/71e6VbHo56L._AC_SL1500_.jpg)
 
+Barbie Careers Doll & Accessories https://amzn.to/3Nw1G3c ad
+
+![](https://m.media-amazon.com/images/I/61YRPV5d4tL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
