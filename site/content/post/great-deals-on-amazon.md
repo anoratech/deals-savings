@@ -84,3 +84,11 @@ Get 3 for the price of 2 Books on sale https://amzn.to/43MmsBA ad
 NIVEA Nourishing Care Body Wash with Nourishing Serum,Grab & go https://amzn.to/43MgSPu ad
 
 ![](https://m.media-amazon.com/images/I/618Wmapn0iL._SL1500_.jpg)
+
+
+
+Wet Brush Original Detangling Hair Brush, 52% off Grab & go https://amzn.to/42IGlbo ad
+
+![](https://m.media-amazon.com/images/I/718XTRwBN1L._SL1500_.jpg)
+
+<!--EndFragment-->
