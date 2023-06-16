@@ -33,4 +33,8 @@ Barbie Soccer Fashion Doll with Brunette Ponytail, 44% Off ,Grab & go https://am
 
 ![](https://m.media-amazon.com/images/I/61wRT9Gi0LL._AC_SL1500_.jpg)
 
+Barbie Fast Cast Clinic Doll & Playset, 51% Off https://amzn.to/3JhJSXa ad
+
+![](https://m.media-amazon.com/images/I/61BBsoUR2DL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
