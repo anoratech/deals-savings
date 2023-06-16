@@ -99,4 +99,8 @@ Hanes Men's EcoSmart Fleece Sweatshirt https://amzn.to/442RDbr ad
 
 ![Hanes Men\&#39;s EcoSmart Fleece Sweatshirt, Cotton-Blend Pullover, Crewneck Sweatshirt for Men (1 or 2 pack)](https://m.media-amazon.com/images/I/81xNLcv21tL._AC_UX679_.jpg)
 
+Educational Insights Design & Drill Bolt Buddies Farm Take Apart Toy with Electric Toy Drill, 70% off https://amzn.to/43HBIQ8 ad
+
+![](https://m.media-amazon.com/images/I/81nwUePohPL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
