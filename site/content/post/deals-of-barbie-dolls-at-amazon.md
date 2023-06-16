@@ -45,4 +45,8 @@ https://amzn.to/3p85sXi ad
 
 ![](https://m.media-amazon.com/images/I/71N9kr8KHcL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71PoRUahZHL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
