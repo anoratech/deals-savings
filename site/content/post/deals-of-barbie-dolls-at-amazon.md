@@ -21,4 +21,8 @@ Barbie It Takes Two Doll https://amzn.to/3Cvit02 ad
 
 ![](https://m.media-amazon.com/images/I/614b0VhZCrL._AC_SL1500_.jpg)
 
+Barbie Fashionistas Doll with Black Up-Do Hair, 49% Off ,Grab & go https://amzn.to/3Nw1Mbc ad
+
+![](https://m.media-amazon.com/images/I/71MpTLGJKBL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
