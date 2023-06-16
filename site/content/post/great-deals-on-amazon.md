@@ -57,4 +57,10 @@ Nautica Girls' Fleece Full-Zip Hoodie Sweatshirt 72% Off Grab & go https://amzn.
 
 ![Nautica Girls\&#39; Fleece Full-Zip Hoodie Sweatshirt](https://m.media-amazon.com/images/I/91EWit+XV9L._AC_UX522_.jpg)
 
+75% Off IFiwin Fidget Slug ,Grab & go https://amzn.to/3XdB1M3 ad
+
+
+
+![](https://m.media-amazon.com/images/I/61TMngJnFDL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
