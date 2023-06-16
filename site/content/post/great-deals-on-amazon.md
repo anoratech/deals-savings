@@ -80,3 +80,7 @@ Pur Luv K9 Kabob Dog Treats 40% off with sub & save https://amzn.to/3Xic0zi ad
 Get 3 for the price of 2 Books on sale https://amzn.to/43MmsBA ad
 
 ![](https://m.media-amazon.com/images/P/1492667838.01._SCLZZZZZZZ_SX500_.jpg)
+
+NIVEA Nourishing Care Body Wash with Nourishing Serum,Grab & go https://amzn.to/43MgSPu ad
+
+![](https://m.media-amazon.com/images/I/618Wmapn0iL._SL1500_.jpg)
