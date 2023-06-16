@@ -63,4 +63,12 @@ Nautica Girls' Fleece Full-Zip Hoodie Sweatshirt 72% Off Grab & go https://amzn.
 
 ![](https://m.media-amazon.com/images/I/61TMngJnFDL._AC_SL1500_.jpg)
 
-<!--EndFragment-->
+Maybelline Fit Me Tinted Moisturizer, Natural Coverage Under $3 https://amzn.to/3NALlul ad
+
+![](https://m.media-amazon.com/images/I/71eE8E4ZuwS._SL1500_.jpg)
+
+Snack Pack Chocolate and Vanilla Pudding Cups Family Pack, 12 Count (Pack of 1) Under $4 https://amzn.to/3NALGND ad
+
+![](https://m.media-amazon.com/images/I/71gVQyoeguL._SL1500_.jpg)
+
+<!--EndFragment-->!--EndFragment-->
