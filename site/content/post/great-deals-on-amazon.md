@@ -111,4 +111,8 @@ Polly Pocket Compact Playset , 53% off , Grab & go https://amzn.to/3p0qYgF ad
 
 ![](https://m.media-amazon.com/images/I/71l13e8ATwL._AC_SL1500_.jpg)
 
+Disney Junior Minnie Mouse 18-piece Backpack Picnic Set, 57% off , Grab & go https://amzn.to/42Jf20o ad
+
+![](https://m.media-amazon.com/images/I/51AfMxmy2lL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
