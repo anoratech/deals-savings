@@ -18,4 +18,17 @@ description: |-
   Price when purchased online
 
   ad 
+* Sound Bar for TV
+
+  \#walmart
+
+  Now $35.99
+
+  was $99.99
+
+  https://mavely.app.link/e/y74icHh3GAb
+
+  Price when purchased online
+
+  ad
 *
