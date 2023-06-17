@@ -31,4 +31,16 @@ description: |-
   Price when purchased online
 
   ad
-*
+* DR.J Professional Soundbar with Subwoofer,
+
+  \#walmart
+
+  Now $89.99
+
+  was $129.99
+
+  Price when purchased online
+
+  https://mavely.app.link/e/2sr0Oyw3GAb
+
+  ad
