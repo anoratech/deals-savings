@@ -1,7 +1,7 @@
 ---
 title: "TONS OF SCHOOLS SUPPLIES on sale at Target "
 date: 2023-06-17T15:54:20.342Z
-tags: "Deals "
+tags: "Target "
 description: "TONS OF SCHOOLS SUPPLIES on sale at Target starting at $0.15! "
 image: img/80891ebe-5ceb-4a78-b2ca-d79ad56748d6.jpeg
 ---
