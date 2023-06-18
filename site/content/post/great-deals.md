@@ -67,4 +67,8 @@ Rechargeable LED Work Lights Price Drop https://amzn.to/3CSWcK1 ad
 
 ![](https://m.media-amazon.com/images/I/61NsK+kMKTL._AC_SL1500_.jpg)
 
+.Disney Elvis Stitch Collector Plush Stuffed Animal, 60% Off https://amzn.to/3JjAhzd ad
+
+![](https://m.media-amazon.com/images/I/61ADXX-GRzL._AC_SL1000_.jpg)
+
 <!--EndFragment-->
