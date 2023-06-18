@@ -168,4 +168,11 @@ ad
 
 ![](https://m.media-amazon.com/images/I/61t9di+u0PL._AC_SL1125_.jpg)
 
+Stretchy Solo Loop Bands Compatible with Apple Watch\
+Grab & Go\
+<https://amzn.to/3NCevsI>\
+ad
+
+![](https://m.media-amazon.com/images/I/71yyyEFjUnL._AC_UX679_.jpg)
+
 <!--EndFragment-->
