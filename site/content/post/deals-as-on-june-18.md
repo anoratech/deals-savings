@@ -69,4 +69,15 @@ save 25% Off when clip Sub & save coupon\
 <https://amzn.to/3NyGxV9>\
 ad
 
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81VsmYljGSL._SL1500_.jpg)
+
+<!--StartFragment-->
+
+Swanson 100% Natural, Gluten-Free Chicken Broth, 8 Oz Quick Cups (Pack of 4)\
+save 25% with Ss coupon\
+<https://amzn.to/3NdkqDo>\
+ad
+
 <!--EndFragment-->
