@@ -63,4 +63,8 @@ Amelia Bedelia Chapter Book 10-Book Box Se https://amzn.to/3piwJGm ad
 
 ![](https://m.media-amazon.com/images/I/41X256dhukL._SY315_BO1,204,203,200_.jpg)
 
+Rechargeable LED Work Lights Price Drop https://amzn.to/3CSWcK1 ad
+
+![](https://m.media-amazon.com/images/I/61NsK+kMKTL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
