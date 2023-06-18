@@ -129,7 +129,7 @@ ad
 
 Under Armour Boys' Beanie Glove Combo\
 Grab & go\
-62% Off\
+66% Off\
 <https://amzn.to/3Cylbll>\
 ad
 
