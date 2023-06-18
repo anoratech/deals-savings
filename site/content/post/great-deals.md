@@ -50,4 +50,9 @@ iPhone Charger 5 Pack 54% Off Grab & go [https://amzn.to/3NeCoFF](https://amzn.
 
 ![](https://m.media-amazon.com/images/I/61EONS-5dFL._AC_SL1000_.jpg)
 
+\
+Hot Wheels Race Case with 8 Toy Cars ,56% Off https://amzn.to/3Xd2mOc ad
+
+![](https://m.media-amazon.com/images/I/81KIyajwijL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
