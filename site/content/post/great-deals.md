@@ -29,4 +29,8 @@ https://amzn.to/3CC0ntg Under $2 ad
 
 ![](https://m.media-amazon.com/images/I/61IiEC70rHL._SL1500_.jpg)
 
+Small Kitchen Towels 6 x 10 inch 62% Off Grab & go https://amzn.to/3Ndsbcy ad
+
+![](https://m.media-amazon.com/images/I/810eh6n899L._AC_SL1500_.jpg)
+
 <!--EndFragment-->
