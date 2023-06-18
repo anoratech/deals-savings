@@ -14,4 +14,8 @@ description: |-
 
 Diamond paintings Under 10 https://amzn.to/43MJ4la ad  
 
-<!--EndFragment-->
+<!--StartFragment-->
+
+1. ![](https://m.media-amazon.com/images/I/81tGdoHbP-L._AC_SL1500_.jpg)
+
+4Th of July Diamond Painting Kits https://amzn.to/445yxBn ad
