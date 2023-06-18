@@ -40,4 +40,8 @@ Franklin Sports Volleyball Net Set Price Drop https://amzn.to/3NgRvy8 ad
 
 ![](https://m.media-amazon.com/images/I/A1p9OMarMLL._AC_SL1500_.jpg)
 
+Small Binder Clips. Grab & go https://amzn.to/46nFTCv ad
+
+![](https://m.media-amazon.com/images/I/81F8KULzsCL._SL1500_.jpg)
+
 <!--EndFragment-->
