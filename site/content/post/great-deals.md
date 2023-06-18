@@ -33,4 +33,8 @@ Small Kitchen Towels 6 x 10 inch 62% Off Grab & go https://amzn.to/3Ndsbcy ad
 
 ![](https://m.media-amazon.com/images/I/810eh6n899L._AC_SL1500_.jpg)
 
+Price drop on these Fridge Magnet Clips, 24 Count!! https://amzn.to/3NAtYd3 ad
+
+![](https://m.media-amazon.com/images/I/71Q+gECaOxL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
