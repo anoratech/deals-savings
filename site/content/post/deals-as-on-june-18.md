@@ -159,4 +159,13 @@ ad
 
 ![Goody Classics Medium Claw Clips , Assorted Colors - Great for Easily Pulling Up Your Hair - Pain-Free Hair Accessories for Women, Men, Boys, and Girls , 4 Count (Pack of 1)](https://m.media-amazon.com/images/I/51vWwrWOHUL._SX300_SY300_QL70_FMwebp_.jpg)
 
+Igloo ice Blocks \
+41% Off 
+
+U﻿nder $1\
+<https://amzn.to/42GI8h2>\
+ad
+
+![](https://m.media-amazon.com/images/I/61t9di+u0PL._AC_SL1125_.jpg)
+
 <!--EndFragment-->
