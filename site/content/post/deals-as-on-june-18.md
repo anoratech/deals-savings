@@ -151,4 +151,12 @@ ad
 
 ![](https://m.media-amazon.com/images/I/7196Dq0Mc8L._AC_SL1500_.jpg)
 
+Classics Medium Claw Clips\
+42% Price drop\
+Grab & go\
+<https://amzn.to/42Lo9O3>\
+ad
+
+![Goody Classics Medium Claw Clips , Assorted Colors - Great for Easily Pulling Up Your Hair - Pain-Free Hair Accessories for Women, Men, Boys, and Girls , 4 Count (Pack of 1)](https://m.media-amazon.com/images/I/51vWwrWOHUL._SX300_SY300_QL70_FMwebp_.jpg)
+
 <!--EndFragment-->
