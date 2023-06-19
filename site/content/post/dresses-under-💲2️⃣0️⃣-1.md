@@ -12,4 +12,8 @@ description: "Hurryyyyy 🏃🏻‍♀️🏃🏻‍♀️🏃🏻‍♀️Pick 
 
 ![KANCY KOLE Women\&#39;s Flutter Sleeve Elegant Bodycon Dresses for Wedding Guest Cocktail Work Party](https://m.media-amazon.com/images/I/61rm8Q1CweL._AC_UX569_.jpg)
 
+4th of July Patriotic Long Dress save with Coupon https://amzn.to/3qXcwGw ad
+
+![](https://m.media-amazon.com/images/I/61Yd3uca1tL._AC_SX679._SX._UX._SY._UY_.jpg)
+
 <!--EndFragment-->
