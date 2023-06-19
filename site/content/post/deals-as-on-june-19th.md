@@ -47,4 +47,8 @@ Colored Pencils, Soft Core, 24 Count (Pack of 1) ,45% Off Grab & go https://amzn
 
 ![](https://m.media-amazon.com/images/I/A1ccPNiepbL._AC_SL1500_.jpg)
 
+44% off USB-A to Lightning Charger Cable ,Grab & go https://amzn.to/3qKA3uh ad
+
+![](https://m.media-amazon.com/images/I/51PQiAPZFAL._AC_SL1302_.jpg)
+
 <!--EndFragment-->
