@@ -8,4 +8,8 @@ description: "Hurryyyyy 🏃🏻‍♀️🏃🏻‍♀️🏃🏻‍♀️Pick 
 
 ![No photo description available.](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/335636062_867374530995166_4800325604292725757_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=OcBrP6lSEeEAX-vRUOr&_nc_ht=scontent.fccu31-1.fna&oh=00_AfCQFa3IWr_b_R9Iw1LR8arFkzPZ936pFLIfdnaYI-72ng&oe=6494A79B)
 
+64% Off https://amzn.to/44pFAVZ ,under $12 ad 
+
+![KANCY KOLE Women\&#39;s Flutter Sleeve Elegant Bodycon Dresses for Wedding Guest Cocktail Work Party](https://m.media-amazon.com/images/I/61rm8Q1CweL._AC_UX569_.jpg)
+
 <!--EndFragment-->
