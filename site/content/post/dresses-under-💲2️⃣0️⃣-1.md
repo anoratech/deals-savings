@@ -28,4 +28,8 @@ Bohemian Floral Printed Wrap Clip coupon https://amzn.to/468EcIP ad
 
 ![Women\&#39;s 2023 Bohemian Floral Printed Wrap V Neck Short Sleeve Split Beach Evening Party Maxi Dress](https://m.media-amazon.com/images/I/71QW+fhVrVL._AC_UX522_.jpg)
 
+Women's Crew Neck Sleeveless Bodycon Mini Dress 59% Off https://amzn.to/42MoCj1 ad
+
+![Inorin Womens Crew Neck Sleeveless Bodycon Mini Dress Summer Ruched Ribbed Cocktail Club Party Short Dresses](https://m.media-amazon.com/images/I/71yJhT4-ZFL._AC_UY741_.jpg)
+
 <!--EndFragment-->
