@@ -35,4 +35,8 @@ Uproot Cleaner Pro Pet Hair Remover 47% Off https://amzn.to/46avLN0 ad
 
 ![Skechers Women\&#39;s Bulkin Balran 108033 Industrial Shoe](https://m.media-amazon.com/images/I/715zph+NCWL._AC_UX625_.jpg)
 
+Nabisco Fun Shapes Variety Pack Barnum's Animal Crackers, Grab & go https://amzn.to/42MNh7h ad
+
+![](https://m.media-amazon.com/images/I/91SL7S3o2uL._SL1500_.jpg)
+
 <!--EndFragment-->
