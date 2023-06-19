@@ -1,0 +1,14 @@
+---
+title: Deals as on June 19th
+date: 2023-06-19T12:24:01.591Z
+tags: "amazon "
+description: Discounts, prices, deals, codes, etc. are accurate at the time
+  posted only Can be changed anytime .
+---
+<!--StartFragment-->
+
+VTech Drop and Go Dump Truck, Yellow 42% Off https://amzn.to/3NAXAXv ad
+
+![](https://m.media-amazon.com/images/I/71mla1QQhFL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
