@@ -67,4 +67,10 @@ ad
 
 ![Philips Smart Plug 6-Outlet Surge Protector, 1080J 8ft., Black](https://i5.walmartimages.com/asr/8cd3d046-6fff-4035-aa32-35c1fa7db559.547bc9d97e3661d2d205e0a0a48462a4.jpeg)
 
+Camp Chair with Cup Holder, Blue, Adult use\
+https://mavely.app.link/e/epIUU2l9KAb\
+$7.88 only Grab &go ad 
+
+![Ozark Trail Basic Quad Folding Camp Chair with Cup Holder, Blue, Adult use](https://i5.walmartimages.com/asr/71d275bd-0885-4fb4-99ab-acfcfe9916dc.bc0377cf196bfc471c60ce154667ef40.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
 <!--EndFragment-->
