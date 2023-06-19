@@ -51,4 +51,8 @@ Colored Pencils, Soft Core, 24 Count (Pack of 1) ,45% Off Grab & go https://amzn
 
 ![](https://m.media-amazon.com/images/I/51PQiAPZFAL._AC_SL1302_.jpg)
 
+Fine Point Tip Permanent Markers, Black, 24-Pack ,49% Off ,Grab & go https://amzn.to/3JmZicO ad
+
+![](https://m.media-amazon.com/images/I/81GgrOE274L._AC_SL1500_.jpg)
+
 <!--EndFragment-->
