@@ -11,4 +11,8 @@ VTech Drop and Go Dump Truck, Yellow 42% Off https://amzn.to/3NAXAXv ad
 
 ![](https://m.media-amazon.com/images/I/71mla1QQhFL._AC_SL1500_.jpg)
 
+Hollywood Hair Extension Maker for Girls with 6 Bonus Extensions ,Price Drop ,Grab & go https://amzn.to/3Xg1Hvx ad
+
+![](https://m.media-amazon.com/images/I/81Q3OTohAXL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
