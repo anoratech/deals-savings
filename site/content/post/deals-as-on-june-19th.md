@@ -55,4 +55,8 @@ Fine Point Tip Permanent Markers, Black, 24-Pack ,49% Off ,Grab & go https://amz
 
 ![](https://m.media-amazon.com/images/I/81GgrOE274L._AC_SL1500_.jpg)
 
+HDMI Cable, 48Gbps High-Speed, Grab & go , 60% Off https://amzn.to/446ywgx ad
+
+![](https://m.media-amazon.com/images/I/61sFm5bkDVL._SL1500_.jpg)
+
 <!--EndFragment-->
