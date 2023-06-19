@@ -32,4 +32,8 @@ Women's Crew Neck Sleeveless Bodycon Mini Dress 59% Off https://amzn.to/42MoCj1 
 
 ![Inorin Womens Crew Neck Sleeveless Bodycon Mini Dress Summer Ruched Ribbed Cocktail Club Party Short Dresses](https://m.media-amazon.com/images/I/71yJhT4-ZFL._AC_UY741_.jpg)
 
+V Neck Summer Maxi Dresses 68% off https://amzn.to/3Jnx0i9 ad
+
+![BTFBM Women Sleeveless V Neck Summer Maxi Dresses 2023 Print Backless Strap Tie Back Beach Party Pleated Long Boho Dress](https://m.media-amazon.com/images/I/81g2Cd6IYRL._AC_UX569_.jpg)
+
 <!--EndFragment-->
