@@ -39,4 +39,8 @@ Nabisco Fun Shapes Variety Pack Barnum's Animal Crackers, Grab & go https://amzn
 
 ![](https://m.media-amazon.com/images/I/91SL7S3o2uL._SL1500_.jpg)
 
+49% Off Stainless Steel Office Scissors, 2-Pack, Green and Gray , Grab & go https://amzn.to/3CxgEzT ad
+
+![](https://m.media-amazon.com/images/I/71Ps6MRZPnL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
