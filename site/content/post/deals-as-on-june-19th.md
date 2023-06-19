@@ -43,4 +43,8 @@ Nabisco Fun Shapes Variety Pack Barnum's Animal Crackers, Grab & go https://amzn
 
 ![](https://m.media-amazon.com/images/I/71Ps6MRZPnL._AC_SL1500_.jpg)
 
+Colored Pencils, Soft Core, 24 Count (Pack of 1) ,45% Off Grab & go https://amzn.to/3qPPcL4 ad
+
+![](https://m.media-amazon.com/images/I/A1ccPNiepbL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
