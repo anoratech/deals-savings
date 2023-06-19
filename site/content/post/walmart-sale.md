@@ -95,4 +95,14 @@ ad
 
 ![Mainstays Faux Fur Saucer™ Chair, Black](https://i5.walmartimages.com/asr/dfbb5b45-c575-4104-a4e9-30de2441402f.126949b148e47e27249197a67f8b1588.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
+Time and Tru Women's Knit Halter Dress
+
+Now $12.98
+
+https://mavely.app.link/e/pbxRRVwSCAb
+
+ad
+
+![Time and Tru Women's Knit Halter Dress](https://i5.walmartimages.com/asr/9b9d9746-9f32-4a36-b9f9-2ef9ad8ae8bd.0cfdbcf32cb5c199efadfd5be821a3f5.jpeg)
+
 <!--EndFragment-->
