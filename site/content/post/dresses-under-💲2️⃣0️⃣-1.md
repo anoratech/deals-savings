@@ -16,4 +16,8 @@ description: "Hurryyyyy 🏃🏻‍♀️🏃🏻‍♀️🏃🏻‍♀️Pick 
 
 ![](https://m.media-amazon.com/images/I/61Yd3uca1tL._AC_SX679._SX._UX._SY._UY_.jpg)
 
+Women's Summer Flora Mini Wrap Dress 57% Off https://amzn.to/43Pw26A ad
+
+![IFFEI 2023 Womens Summer Flora Mini Wrap Dress Short Sleeve Homecoming Casual Dresses for Women](https://m.media-amazon.com/images/I/81JITzK1f-L._MCnd_AC_UL320_.jpg)
+
 <!--EndFragment-->
