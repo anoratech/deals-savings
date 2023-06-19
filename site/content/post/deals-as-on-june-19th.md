@@ -19,4 +19,8 @@ Egg Playset Toy with 4 Characters and 2 Accessories ,Price Drop ,Grab & go https
 
 ![](https://m.media-amazon.com/images/I/81ReuD58vwL._AC_SL1500_.jpg)
 
+2 Pack Washable Reusable Pee Pads for Dogs https://amzn.to/469xJxi ad
+
+![](https://m.media-amazon.com/images/I/31fWKvQCZ0L._AC_.jpg)
+
 <!--EndFragment-->
