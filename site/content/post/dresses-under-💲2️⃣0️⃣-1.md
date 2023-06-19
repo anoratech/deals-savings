@@ -41,3 +41,60 @@ Women's Flower Print V Neck Sleeveless Dress ,clip coupon , Grab & go https://am
 ![](https://m.media-amazon.com/images/I/71rvyJ57k1L._AC_UX679_.jpg)
 
 <!--EndFragment-->
+
+* PRICE DROP
+  https://amzn.to/3Clopsq
+  PRETTYGARDEN Women’s Summer Boho Floral Sundress Sleeveless Halter Neck Elastic Waist Tiered Ruffle Mini Swing Dress
+  AD<!--StartFragment-->
+
+  ![PRETTYGARDEN Women\&#39;s Summer Boho Floral Sundress Sleeveless Halter Neck Elastic Waist Tiered Ruffle Mini Swing Dress](https://m.media-amazon.com/images/I/81IC1QhkRPL._AC_UX569_.jpg)
+
+  <!--EndFragment-->
+* PRICE DROP + COUPON
+  https://amzn.to/42CXcMB
+  Romper Split Maxi Dress for Summer Party Beach S-5X
+  AD<!--StartFragment-->
+
+  ![Romper Split Maxi Dress for Summer Party Beach S-5X](https://m.media-amazon.com/images/I/71bc3t4tX4L._AC_UX522_.jpg)
+
+  <!--EndFragment-->
+* PRICE DROP
+  https://amzn.to/3Cphvm2
+  BTFBM Women's Casual Party Dresses
+  AD<!--StartFragment-->
+
+  ![BTFBM Women\&#39;s Casual Party Dresses 2023 Long Sleeve Wrap V Neck Swiss Dot Leopard Boho Swing A-Line Maxi Dress with Belt](https://m.media-amazon.com/images/I/81di2n2LKSL._AC_UY679_.jpg)
+
+  <!--EndFragment-->
+* PRICE DROP
+  https://amzn.to/3P1bzqW
+  BTFBM Women’s Casual Short Sleeve Boho Summer Dresses
+  AD<!--StartFragment-->
+
+  ![BTFBM Women\&#39;s Casual Short Sleeve Boho Summer Dresses Crewneck Floral Print High Waist Beach Cute Mini Swing Flowy Dress](https://m.media-amazon.com/images/I/8152oAZAHuL._AC_UX522_.jpg)
+
+  <!--EndFragment-->
+* SWEET PRICE
+  https://amzn.to/461lPWj
+  Women’s Short Sleeve Color Block Floral Printed Long Dress Polka Dot Striped Leopard Tunic
+  AD<!--StartFragment-->
+
+  ![Women\&#39;s Short Sleeve Color Block Floral Printed Long Dress Polka Dot Striped Leopard Tunic High Waisted Loose Dress](https://m.media-amazon.com/images/I/61wHEGe3wLL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
+* PRICE DROP
+  https://amzn.to/3P5Lzus
+  BTFBM Women 2023 Summer Square Neck Short Sleeve Casual Dress 
+  AD<!--StartFragment-->
+
+  ![BTFBM Women 2023 Summer Square Neck Short Sleeve Casual Dress Tie Back Floral High Waist Ruffle Beach Aline Mini Dresses](https://m.media-amazon.com/images/I/81-yqXTEUUL._AC_UX522_.jpg)
+
+  <!--EndFragment-->
+* PRICE DROP
+  https://amzn.to/3X3qgM6
+  Match Women V-Neck Long Sleeve Plain Irregular Pockets Long Dress
+  AD<!--StartFragment-->
+
+  ![Match Women V-Neck Long Sleeve Plain Irregular Pockets Long Dress #152](https://m.media-amazon.com/images/I/51Ip-1JAnSL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
