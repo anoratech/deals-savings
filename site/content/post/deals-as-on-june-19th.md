@@ -23,4 +23,8 @@ Egg Playset Toy with 4 Characters and 2 Accessories ,Price Drop ,Grab & go https
 
 ![](https://m.media-amazon.com/images/I/31fWKvQCZ0L._AC_.jpg)
 
+Native pet yak Chews ,40% Off https://amzn.to/3PkkGmx ad
+
+![](https://m.media-amazon.com/images/I/71futpFzKGL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
