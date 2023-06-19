@@ -63,4 +63,8 @@ Gatorade Thirst Quencher, Frost Variety Pack 2.0, 12 Fl Oz (Pack of 24) ,Price D
 
 ![](https://m.media-amazon.com/images/I/91oPeaDwvUL._SL1500_.jpg)
 
+Under Armour Men's Tech 2.0 1/2 Zip ,67% Off https://amzn.to/3Pe3eAi ad
+
+![](https://m.media-amazon.com/images/I/719IOsyqzYL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
