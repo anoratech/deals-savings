@@ -105,4 +105,14 @@ ad
 
 ![Time and Tru Women's Knit Halter Dress](https://i5.walmartimages.com/asr/9b9d9746-9f32-4a36-b9f9-2ef9ad8ae8bd.0cfdbcf32cb5c199efadfd5be821a3f5.jpeg)
 
+Time and Tru Women's Knit Halter Dress
+
+Now $12.98
+
+https://mavely.app.link/e/YIDWN3xaLAb
+
+ad
+
+![JMS by Hanes Women's Plus Size Slub Crochet Bib Tunic](https://i5.walmartimages.com/asr/1125fa29-07ec-4bce-881e-6e9565b658c3_1.d54a75b1e9535d30def97e49114bd779.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
 <!--EndFragment-->
