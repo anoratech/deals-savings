@@ -59,4 +59,8 @@ HDMI Cable, 48Gbps High-Speed, Grab & go , 60% Off https://amzn.to/446ywgx ad
 
 ![](https://m.media-amazon.com/images/I/61sFm5bkDVL._SL1500_.jpg)
 
+Gatorade Thirst Quencher, Frost Variety Pack 2.0, 12 Fl Oz (Pack of 24) ,Price Drop https://amzn.to/468jsRx ad
+
+![](https://m.media-amazon.com/images/I/91oPeaDwvUL._SL1500_.jpg)
+
 <!--EndFragment-->
