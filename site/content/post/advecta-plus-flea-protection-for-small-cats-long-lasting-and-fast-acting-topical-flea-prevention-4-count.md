@@ -7,7 +7,7 @@ description: |-
   
 
   👆🅷🆄🅶🅴 🅳🅸🆂🅲🅾🆄🅽🆃👆
-  ❣️#𝕎𝔸𝕃𝕄𝔸ℝ𝕋 𝕊𝔸𝕃𝔼🏃‍♀️🏃‍♀️
+  ❣️𝕎𝔸𝕃𝕄𝔸ℝ𝕋 𝕊𝔸𝕃𝔼🏃‍♀️🏃‍♀️
 ---
 https://mavely.app.link/e/5aypTAptOAb
 
