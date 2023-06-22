@@ -65,4 +65,8 @@ FOREO LUNA 3 Facial Cleansing Brush ,50% Off https://amzn.to/3qSubPP ad
 
 ![](https://m.media-amazon.com/images/I/71Mss8ENgML._SL1500_.jpg)
 
-<!--EndFragment-->
+25% Off 
+
+Echo Dot (5th Gen) Star Wars Stand  https://amzn.to/3NL5Gxa ad
+
+![No photo description available.](https://scontent.fccu3-1.fna.fbcdn.net/v/t39.30808-6/347398895_706552701482223_6027708500764143483_n.jpg?stp=dst-jpg_s261x260&_nc_cat=105&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=iJy3e7YJr5cAX8Ph3Ps&_nc_ht=scontent.fccu3-1.fna&oh=00_AfBmiyCINt2jg-jO29xlTw_gV9YyuGIdaR2BL7R95rmwjw&oe=6498B18D)
