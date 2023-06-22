@@ -58,4 +58,10 @@ https://mavely.app.link/e/oVXEUEwkQAb ad
 
 ![Womens Plus Size Tops Short Sleeve T Shirts Striped Raglan Tee Shirts Causal Summer Tunics Blouses](https://i5.walmartimages.com/asr/413bcf6c-b1e7-49f2-a9f4-9b15555fbebb.aff81102840a466e960e36deaa1de05e.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+kids items on sale https://mavely.app.link/e/aqie6OJkQAb
+
+
+
 <!--EndFragment-->
