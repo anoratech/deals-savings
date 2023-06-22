@@ -57,4 +57,8 @@ eero Pro mesh WiFi router, Basic Box Packaging, 3 pack ,69% Off https://amzn.to/
 
 ![](https://m.media-amazon.com/images/I/41K+74+lQqL._SL1500_.jpg)
 
+PAIGE Women's Mayslie Jogger Seasonal 60% Off https://amzn.to/3NmUYvb ad
+
+![](https://m.media-amazon.com/images/I/41EzbPcP4zL._AC_UX522_.jpg)
+
 <!--EndFragment-->
