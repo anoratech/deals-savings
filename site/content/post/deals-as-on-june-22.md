@@ -53,4 +53,8 @@ Echo Dot (5th Gen, 2022 release) Kids | Designed for kids, with parental control
 
 ![](https://m.media-amazon.com/images/I/71o6p+xF5aL._AC_SL1000_.jpg)
 
+eero Pro mesh WiFi router, Basic Box Packaging, 3 pack ,69% Off https://amzn.to/3PoTrY2 ad
+
+![](https://m.media-amazon.com/images/I/41K+74+lQqL._SL1500_.jpg)
+
 <!--EndFragment-->
