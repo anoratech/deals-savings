@@ -49,4 +49,8 @@ REVLON Super Lustrous The Luscious Mattes Lipstick ,Save More with sub& save cou
 
 ![](https://m.media-amazon.com/images/I/91aqSz9JmjL._SL1500_.jpg)
 
+Echo Dot (5th Gen, 2022 release) Kids | Designed for kids, with parental controls | Dragon ,53% Off https://amzn.to/3CGqdfJ ad
+
+![](https://m.media-amazon.com/images/I/71o6p+xF5aL._AC_SL1000_.jpg)
+
 <!--EndFragment-->
