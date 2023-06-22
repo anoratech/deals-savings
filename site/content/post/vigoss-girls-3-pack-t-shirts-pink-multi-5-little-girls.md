@@ -44,4 +44,18 @@ ad
 
 ![Terra & Sky Women's Plus Size Smocked High Neck Blouse](https://i5.walmartimages.com/asr/0e6ebbcc-4fea-4327-a153-463e4ccdf474.193c95970233fc4cb44e9b3c70ddf81d.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
+Summer Tunics Blouses
+
+\#walmart
+
+Now $17.99
+
+was $35.98
+
+Price when purchased online
+
+https://mavely.app.link/e/oVXEUEwkQAb ad
+
+![Womens Plus Size Tops Short Sleeve T Shirts Striped Raglan Tee Shirts Causal Summer Tunics Blouses](https://i5.walmartimages.com/asr/413bcf6c-b1e7-49f2-a9f4-9b15555fbebb.aff81102840a466e960e36deaa1de05e.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
