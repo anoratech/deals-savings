@@ -14,4 +14,10 @@ ad
 
 ![Hugo Boss Deep Red Eau de Parfum, Perfume for Women, 3 oz](https://i5.walmartimages.com/asr/85e91c42-07c1-47af-b5c1-36ade1649c2f.8d249a7bdf6178f1df8a0a511107bf36.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
-<!--EndFragment-->
+Juicy Couture Viva La Juicy Eau de Parfum Perfume for Women, 3.4 O\
+Now $39.97\
+was $98.00\
+https://mavely.app.link/e/D25b4H1CRAb\
+ad
+
+![Juicy Couture Viva La Juicy Eau de Parfum Perfume for Women, 3.4 Oz](https://i5.walmartimages.com/asr/18a9989e-7bd9-4fbc-8dc3-651ee1da1ffd.449cc86a31581b5ed6faa4a65481361e.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
