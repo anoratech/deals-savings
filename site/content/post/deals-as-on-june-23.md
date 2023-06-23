@@ -48,4 +48,18 @@ ad
 
 ![OUGES Womens Wrap Maxi Nursing Maternity Dresses for Photoshoot Baby Shower Pregnancy Dress](https://m.media-amazon.com/images/I/61uTke1WC0L._AC_UY741_.jpg)
 
+VIZIO 65" Class V-Series 4K UHD LED Smart TV V655-J09
+
+Now $398.00
+
+was $528.00
+
+Price when purchased online
+
+https://mavely.app.link/e/NouV5Q7ERAb
+
+ad
+
+![VIZIO 65" Class V-Series 4K UHD LED Smart TV V655-J09](https://i5.walmartimages.com/asr/0265349b-02cb-4eab-b399-f34386a3e955.1593a5d3ad763ca5460fb15d933be177.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
