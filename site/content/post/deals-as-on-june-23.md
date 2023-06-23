@@ -1,0 +1,15 @@
+---
+title: Deals as on June 23
+date: 2023-06-23T11:16:56.100Z
+tags: "amazon "
+description: " Discounts, prices, deals, codes, etc. are accurate at the time posted only."
+---
+<!--StartFragment-->
+
+Women's High Waist Boho Floral Print Maxi Skirt 65% Off https://amzn.to/3CGKAcK ad
+
+<!--StartFragment-->
+
+![KOJOOIN Women\&#39;s High Waist Boho Floral Print Maxi Skirt Summer Casual Smocked Waist Flowy Swing Long Skirts](https://m.media-amazon.com/images/I/816apEi-bXL._AC_UX569_.jpg)
+
+<!--EndFragment-->
