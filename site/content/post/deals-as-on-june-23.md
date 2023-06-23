@@ -112,8 +112,20 @@ ad
 
 
 
-Discounts on Makeup https://amzn.to/44dqC4Z ad
+***Discounts on Makeup*** https://amzn.to/44dqC4Z ad
 
 ![Sendida Washable Kids Makeup Kit for Girls Toys with Cute Makeup Bag, Toy for Girls Age 3 4 5 6 7 8 9 10 Year Old (25PCS)](https://i5.walmartimages.com/asr/eb9f4caa-cbe7-48d4-a3de-d97150bc5c51.6beeb115445edbaac902d8acc8794363.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
-<!--EndFragment-->
+
+
+Sendida Washable Kids Makeup Kit
+
+Now $25.68
+
+was $39.85
+
+Price when purchased online
+
+https://mavely.app.link/e/n6UYHmnGRAb
+
+ad
