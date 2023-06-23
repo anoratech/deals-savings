@@ -2,7 +2,9 @@
 title: Deals as on June 23
 date: 2023-06-23T11:16:56.100Z
 tags: "amazon "
-description: " Discounts, prices, deals, codes, etc. are accurate at the time posted only."
+description: |-2
+   Discounts, prices, deals, codes, etc. are accurate at the time posted only. 
+  AMAZON +Walmart Deals
 ---
 <!--StartFragment-->
 
@@ -19,5 +21,17 @@ https://amzn.to/3NKzGci ad
 Women's Summer Collared Short Sleeve Romper 60% Off Coupon +Code on page https://amzn.to/431Kh6V ad
 
 ![KOJOOIN Women\&#39;s Summer Collared Short Sleeve Romper Casual Button Down Ruffle Wide Leg Drawstring Waist Jumpsuits withPockets](https://m.media-amazon.com/images/I/61yIstlRhqL._AC_UX569_.jpg)
+
+SAMSUNG Galaxy Watch 4 Classic - 42mm BT - Silver - SM-R880NZSAXAA
+
+Now $129.00
+
+was $349.99
+
+https://mavely.app.link/e/9Rin5PEERAb
+
+ad
+
+![SAMSUNG Galaxy Watch 4 Classic - 42mm BT - Silver - SM-R880NZSAXAA](https://i5.walmartimages.com/asr/69b810b2-c857-4ecf-838d-4257b1eb56c4.968c4b6e6757f1f662ea91f82e2a18ec.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
 <!--EndFragment-->
