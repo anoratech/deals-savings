@@ -69,4 +69,11 @@ https://mavely.app.link/e/m2gzhwVDRAb
 
 ![Burberry Brit Eau De Toilette, Cologne for Men, 1.7 Oz](https://i5.walmartimages.com/asr/df74ff7c-3a35-491f-9166-ef323a3cb5f0_1.5c93ffbd5d77b5c18abc931a73a28892.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+Burberry Classic Eau de Parfum, Perfume for Women, 3.3 oz\
+Now $39.99\
+was $98.00\
+https://mavely.app.link/e/b0Lb6P2DRAb
+
+![Burberry Classic Eau de Parfum, Perfume for Women, 3.3 oz](https://i5.walmartimages.com/asr/9ce60826-1ffa-4f76-beed-c248a895fb0c_1.5f4159ff5cb7763cfe111643f1d61043.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
 <!--EndFragment-->
