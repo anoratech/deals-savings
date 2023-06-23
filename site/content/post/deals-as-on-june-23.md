@@ -166,4 +166,16 @@ ad
 
 ![Colorscience Even Up Clinical Pigment Perfector SPF 50](https://i5.walmartimages.com/asr/e5240890-4727-44d0-8c96-fa8059eb5e8c.8493b8afa2da639422aa0b58928270d6.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Liquid Lipstick by Revlon
+
+53% Off Grab & go
+
+https://amzn.to/3NFZ6I1
+
+ad
+
+![](https://m.media-amazon.com/images/I/91CorLMMi1L._SL1500_.jpg)
+
 <!--EndFragment-->
