@@ -12,4 +12,8 @@ Women's High Waist Boho Floral Print Maxi Skirt 65% Off https://amzn.to/3CGKAcK 
 
 ![KOJOOIN Women\&#39;s High Waist Boho Floral Print Maxi Skirt Summer Casual Smocked Waist Flowy Swing Long Skirts](https://m.media-amazon.com/images/I/816apEi-bXL._AC_UX569_.jpg)
 
+https://amzn.to/3NKzGci ad 
+
+![Small Shoulder Bags for Women Vegan Leather Crossbody Purses Ladies Trendy Shoulder Bag with Chain Strap Retro Hobo Purse](https://m.media-amazon.com/images/I/61eQPNxskoL._AC_UY500_.jpg)
+
 <!--EndFragment-->
