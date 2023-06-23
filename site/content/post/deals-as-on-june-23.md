@@ -146,4 +146,24 @@ ad
 
 ![L'Oreal Paris True Match Lumi Glotion Natural Glow Enhancer, Medium, 1.35 fl oz](https://i5.walmartimages.com/asr/cacf5e7f-83e0-410d-b66a-84345e1704b7.612269a8f9122ca7d771b55b89786986.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Colorscience Even Up Clinical Pigment Perfector SPF 50
+
+\#walmart
+
+Now $73.37
+
+was $125.00
+
+Price when purchased online
+
+https://mavely.app.link/e/bFwQ6EQGRAb
+
+ad
+
+<!--EndFragment-->
+
+![Colorscience Even Up Clinical Pigment Perfector SPF 50](https://i5.walmartimages.com/asr/e5240890-4727-44d0-8c96-fa8059eb5e8c.8493b8afa2da639422aa0b58928270d6.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
