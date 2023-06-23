@@ -62,4 +62,8 @@ ad
 
 ![VIZIO 65" Class V-Series 4K UHD LED Smart TV V655-J09](https://i5.walmartimages.com/asr/0265349b-02cb-4eab-b399-f34386a3e955.1593a5d3ad763ca5460fb15d933be177.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+Personalized Initial Canvas Beach Bag https://amzn.to/46kl2j5 ad
+
+![](https://m.media-amazon.com/images/I/71qI75UuUUS._AC_SX679._SX._UX._SY._UY_.jpg)
+
 <!--EndFragment-->
