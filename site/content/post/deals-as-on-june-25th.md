@@ -148,4 +148,18 @@ ad
 
 ![Xintorch Yoga Shorts for Women Waffle Shorts Spandex High Waisted Workout Shorts Athletic Gym Biker Shorts 1/2 Pack](https://m.media-amazon.com/images/I/71AIikeUz1L._AC_UX679_.jpg)
 
+<!--StartFragment-->
+
+FurReal Fuzzalots Puppy Color-Change Interactive Feeding Toy,
+
+Price drop
+
+Grab & go
+
+[https://amzn.to/44lL5VD](https://amzn.to/44lL5VD?fbclid=IwAR1qhTWNUsFodJ-Bp-MwCkppu2EOq2aGiyObKGaWyahXM4ewY0kZrgafdRw)
+
+ad
+
+![](https://m.media-amazon.com/images/I/71n4QqJusQS._AC_SL1500_.jpg)
+
 <!--EndFragment-->
