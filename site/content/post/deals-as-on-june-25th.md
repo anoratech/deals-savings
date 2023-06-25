@@ -389,4 +389,16 @@ ad
 
 ![](https://m.media-amazon.com/images/I/818+xWFWS-L._AC_SL1500_.jpg)
 
+
+
+American Flag Fanny Packs with Drink Holder
+
+https://amzn.to/3ppSWCz
+
+Price Drop
+
+ad
+
+![](https://m.media-amazon.com/images/I/71aYZ3D3YAL._AC_UX679_.jpg)
+
 <!--EndFragment-->
