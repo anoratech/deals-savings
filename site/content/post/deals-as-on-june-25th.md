@@ -180,4 +180,16 @@ ad
 
 ![Crocs Women's Classic Platform Flip-flop Animal Remix Thong Sandal](https://i5.walmartimages.com/asr/0f089004-e2be-42bd-a332-dfe567dc361e.97012ba6f434832f7687af6e012398d3.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+755PCS Hair Accessories for Woman Set
+
+75% off
+
+Grab & go
+
+[https://amzn.to/42ZFROf](https://amzn.to/42ZFROf?fbclid=IwAR1i58MGqNbkDYCZWWiW_QyCkWrknSL6GdFQb9hm4L0x4_RsNuVU6EP3fhM)
+
+ad
+
+![May be an image of hair brush](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/354460522_231149913113231_2034324520700937973_n.jpg?stp=dst-jpg_p526x296&_nc_cat=104&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=2phzHdhr5bAAX9z-JG_&_nc_ht=scontent.fccu31-1.fna&oh=00_AfDRTGV_TgSWWpjcwbMFx5_jczCGZcKA_a8B9ZCG1zqxfw&oe=649CE222)
+
 <!--EndFragment-->
