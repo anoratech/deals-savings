@@ -141,7 +141,7 @@ ad
 ![](https://m.media-amazon.com/images/I/41LzrQ3geiL._AC_SL1012_.jpg)
 
 * 60% off
-* Yoga Shorts for Women ![✅](https://static.xx.fbcdn.net/images/emoji.php/v9/t33/1/16/2705.png)![✅](https://static.xx.fbcdn.net/images/emoji.php/v9/t33/1/16/2705.png)
+* Yoga Shorts for Women 
 * [https://amzn.to/3NseXZk](https://l.facebook.com/l.php?u=https%3A%2F%2Famzn.to%2F3NseXZk%3Ffbclid%3DIwAR2_WVH6ExsG0kOXT4UPG0ii2pEGbMKQbUt5_U7sWW6a0NgrDpbC7LZo3_c&h=AT19XtGJzd3E9Ut04-XaJkFH7MNKHeonOI91qoLDMTBiEC37Y6ozkp4mLn5rRIgZ4p-TSxYWFAk62CUcalDlWfChRV-y6TzhLxe3-Tgj6t10y_P-w-cqp-3Plu59S-qgg-kY&__tn__=-UK-R&c[0]=AT0a6xNWqW0wIIlhGfWfXwKomaTzRubnsGbLjVQnXL2vJ0W1u55s57pcnadtTbzMMMqXtCG00vwijufR22fN7kxBVt9vOBagBkl14pKxfmHPW-ZwDmS8GHp0BnJd2ZgPAag4Kwvbq-upYJ32uBYXLSHD5nsdDdP-KNC7BaA)
 * Grab & go
 * ad
