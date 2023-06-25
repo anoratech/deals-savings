@@ -329,4 +329,18 @@ https://amzn.to/4343ViF ad
 
 ![No photo description available.](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/356234484_2948336168631247_1059020910696831267_n.jpg?stp=dst-jpg_p552x414&_nc_cat=111&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=wNYWFfZCag0AX8SRXxT&_nc_ht=scontent.fccu31-1.fna&oh=00_AfBtsB8Ysbtvckz4DW3qNdDZiauUFpd7ppF19ulC6Zx5aQ&oe=649DE437)
 
+
+
+Gel Nail Polish Starter Kit
+
+Price drop
+
+Grab & go
+
+https://amzn.to/3Pr9WD9
+
+ad
+
+![](https://m.media-amazon.com/images/I/61CCdFIztaL._SL1200_.jpg)
+
 <!--EndFragment-->
