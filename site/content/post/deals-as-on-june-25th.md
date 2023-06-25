@@ -114,4 +114,14 @@ ad
 
 ![](https://m.media-amazon.com/images/I/71j86Lx-S+L._SL1500_.jpg)
 
+adidas Unisex-Adult Adilette Clog Slide Sandal
+
+60% off
+
+[https://amzn.to/3JvFWlU](https://amzn.to/3JvFWlU?fbclid=IwAR2ukpYdz-XDE7w1y1eXyXuPIFMKHrgh_ZE2dXorBRKkimqRYB4M3upVm0Q)
+
+[](<>)ad
+
+![adidas Unisex-Adult Adilette Clog Slide Sandal](https://m.media-amazon.com/images/I/61kx-PYmWBL._AC_UX625_.jpg)
+
 <!--EndFragment-->
