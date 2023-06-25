@@ -240,4 +240,15 @@ ad
 
 ![May be an image of toy and text](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/355865514_231154639779425_8264725051183145061_n.jpg?stp=dst-jpg_p526x296&_nc_cat=103&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=xfQIpfKv0RIAX-43buU&_nc_ht=scontent.fccu31-1.fna&oh=00_AfCFVHfE5x0kumNSYaGG84qXh_wQ0rpnyjIW3aDTqdfRUA&oe=649D670E)
 
+
+
+* 49% off
+* Hanes Men's Jogger Sweatpants
+* [https://amzn.to/3pkjfKi](https://amzn.to/3pkjfKi?fbclid=IwAR3aVW3jCWI_Z3DO1l_4x4X-xMPFUKb41VZ_xkY2VCHQpr2oOm4U5W6P7dQ)
+* ad
+
+
+
+![Hanes Men\&#39;s Jogger Sweatpants, EcoSmart Jogger Sweatpants for Men, Men\&#39;s Fleece Lounge Pants](https://m.media-amazon.com/images/I/61IAAoyEMbL._AC_UX679_.jpg)
+
 <!--EndFragment-->
