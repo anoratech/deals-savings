@@ -413,4 +413,16 @@ ad
 
 ![Jeossy Women\&#39;s 8017 Flat Low Top Casual Fashion Sneakers Cap Toe Shoes with Decorative Zipper](https://m.media-amazon.com/images/I/71YwvIbhe8L._AC_UX500_.jpg)
 
+Christmas Decorations Lights
+
+50% Off
+
+Grab & go
+
+https://amzn.to/3Pt8EYc
+
+ad
+
+![](https://m.media-amazon.com/images/I/71aVkjMb4WL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
