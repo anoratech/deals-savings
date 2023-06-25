@@ -232,9 +232,9 @@ ad
 
 <!--StartFragment-->
 
-* ***L.O.L. Surprise! 707 Queen Bee Doll with 7 Surprises in Paper Ball* ![🪆](https://static.xx.fbcdn.net/images/emoji.php/v9/tb7/1/16/1fa86.png)****![🪆](https://static.xx.fbcdn.net/images/emoji.php/v9/tb7/1/16/1fa86.png)**
+* ***L.O.L. Surprise! 707 Queen Bee Doll with 7 Surprises in Paper Ball*![🪆](https://static.xx.fbcdn.net/images/emoji.php/v9/tb7/1/16/1fa86.png)****![🪆](https://static.xx.fbcdn.net/images/emoji.php/v9/tb7/1/16/1fa86.png)**
 * **51% off**
-* **Grab & go under ![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/t5c/1/16/1f4b2.png)6**
+* **Grab & go under 6![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/t5c/1/16/1f4b2.png)**
 * **[https://amzn.to/3NL9o9L](https://amzn.to/3NL9o9L?fbclid=IwAR0cSxVJvah2Ur2ey4I3_tS05IngcB04Nnm9zg9TxfqEH3nx0TmZrsqwJwA)**
 * **ad**
 
