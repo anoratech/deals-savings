@@ -29,7 +29,11 @@ Clip the ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/270
 
 [](<>)ad
 
-<!--StartFragment-->
+
+
+![](https://m.media-amazon.com/images/I/710tbPHbREL._AC_SL1500_.jpg)
+
+
 
 * 77% off
 * Two Groovy Birthday Decorations Girl
