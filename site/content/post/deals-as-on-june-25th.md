@@ -162,4 +162,22 @@ ad
 
 ![](https://m.media-amazon.com/images/I/71n4QqJusQS._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Crocs Women's Classic Platform Flip-flop Animal Remix Thong Sandal
+
+[\#walmart](https://www.facebook.com/hashtag/walmart?__eep__=6&__cft__[0]=AZU4etniZjPIC1uPBYKP6Ka2LuLhUJMiBtMEdlwxLe3K5XHEHm7MJBmvRqELYJ-mrOJ-pdB-dZZxpFyj8AimDSEISUiiX5jDXbj7K-FiRgIYFAtg8kP4J-L3fSWNsKGsziWqL5JCO6x32TbjnmK0Mzrl&__tn__=R]-R)
+
+Now $19.99
+
+[](<>)was $34.99
+
+Price when purchased online
+
+[https://mavely.app.link/e/xotOXSXvUAb](https://mavely.app.link/e/xotOXSXvUAb?fbclid=IwAR2ukpYdz-XDE7w1y1eXyXuPIFMKHrgh_ZE2dXorBRKkimqRYB4M3upVm0Q)
+
+ad
+
+![Crocs Women's Classic Platform Flip-flop Animal Remix Thong Sandal](https://i5.walmartimages.com/asr/0f089004-e2be-42bd-a332-dfe567dc361e.97012ba6f434832f7687af6e012398d3.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
