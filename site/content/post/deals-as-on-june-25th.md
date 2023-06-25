@@ -287,4 +287,14 @@ ad
 
 ![](https://m.media-amazon.com/images/I/71Il67Mwk-L._AC_SL1500_.jpg)
 
+NORTIV 8 Recovery Slides
+
+41% Off
+
+https://amzn.to/42WmLID
+
+ad
+
+![NORTIV 8 Recovery Slides for Men Women with Arch Support Sport Sandals Lightweight Non-Slip Thick Cushion Reduces Stress on Feet for Indoor \&amp; Outdoor](https://m.media-amazon.com/images/I/71TIXyMtapL._AC_UY575_.jpg)
+
 <!--EndFragment-->
