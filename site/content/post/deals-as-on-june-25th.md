@@ -37,7 +37,7 @@ Clip the ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/270
 
 * 77% off
 * Two Groovy Birthday Decorations Girl
-* Grab & go under ![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/t5c/1/16/1f4b2.png)![5️⃣](https://static.xx.fbcdn.net/images/emoji.php/v9/tf6/1/16/35_20e3.png)
+* Grab & go under $5
 * [https://amzn.to/3PvJwQD](https://amzn.to/3PvJwQD?fbclid=IwAR3WGHnEIkFjf6QFphaddeaRTiby57yfFnyuZa-82hxxPFED6D1or0j-bEg)
 * ad
 
@@ -82,7 +82,7 @@ Dash Deluxe Electric Air Fryer + Oven Cooker with Temperature Control
 
 * Woods 0600W 3-Outlet 16/2 Cube Extension Cord w/ Power Tap; 6-Feet (White)
 * 61% off
-* Grab & go under ![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/t5c/1/16/1f4b2.png)![2️⃣](https://static.xx.fbcdn.net/images/emoji.php/v9/t99/1/16/32_20e3.png)
+* Grab & go under $2
 * [https://amzn.to/44euHWI](https://amzn.to/44euHWI?fbclid=IwAR1wn2RZhbFR7tBtsf9uCEGapPInLKRZplTjRorncT5aXUukxsxgX-s2MZU)
 * ad
 
@@ -106,7 +106,7 @@ Almay Multi-Benefit Mascara and Eyeliner Duo Value Pack, Black
 
 Grab & go
 
-[](<>)Under ![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/t5c/1/16/1f4b2.png)4
+[](<>)Under $4
 
 [https://amzn.to/3PoqD22](https://amzn.to/3PoqD22?fbclid=IwAR3WujfFmDdVmiGmy5QVzOi1Glw3Ge2bdU5h5MM9Kxvx7MkFmd4MYD5Xlzs)
 
@@ -132,7 +132,7 @@ Funko Pop! Marvel: Doctor Strange Multiverse of Madness - America Chavez
 
 [https://amzn.to/3r3jQkg](https://amzn.to/3r3jQkg?fbclid=IwAR3xGVLfSPCCaVp6bLGVPo_rAe-zJLaJDlAFnb5lwfK_NZTfJqBsqnIsG_I)
 
-[](<>)Grab & go Under ![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/t5c/1/16/1f4b2.png)![5️⃣](https://static.xx.fbcdn.net/images/emoji.php/v9/tf6/1/16/35_20e3.png)
+[](<>)Grab & go 
 
 ad
 
