@@ -78,4 +78,14 @@ Dash Deluxe Electric Air Fryer + Oven Cooker with Temperature Control
 
 ![May be an image of toy and text that says 'PIXAR FUSED BEAD KIT KIT PERLES FONDUES UEGO FUSIONADAS 2000 BEADS PERLES CUENTAS DisnEy. PIXAR TOY STORY com perter nosreservade 2004 PC/PZ'](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/355491526_231158116445744_5806293248008668797_n.jpg?stp=dst-jpg_p526x296&_nc_cat=110&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=BN1QPufLr2kAX84qdYA&_nc_ht=scontent.fccu31-1.fna&oh=00_AfAqzr-z2_QIOIJhX-jkxniM6aT8EGRvjOM4qnd2mfMA4Q&oe=649C3075)
 
+<!--StartFragment-->
+
+* Woods 0600W 3-Outlet 16/2 Cube Extension Cord w/ Power Tap; 6-Feet (White)
+* 61% off
+* Grab & go under ![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/t5c/1/16/1f4b2.png)![2️⃣](https://static.xx.fbcdn.net/images/emoji.php/v9/t99/1/16/32_20e3.png)
+* [https://amzn.to/44euHWI](https://amzn.to/44euHWI?fbclid=IwAR1wn2RZhbFR7tBtsf9uCEGapPInLKRZplTjRorncT5aXUukxsxgX-s2MZU)
+* ad
+
+![](https://m.media-amazon.com/images/I/71jnFZ4NmyL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
