@@ -199,4 +199,16 @@ ad
 
 ![May be an image of hair product and text](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/354445206_231155913112631_3924930055346760022_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=iF8BgyIVxNMAX8aS6Iv&_nc_ht=scontent.fccu31-1.fna&oh=00_AfDQVmfDJFpNf_Fls8Nxu3v6W62ajdVC-spcm2Cl50MilQ&oe=649C8859)
 
+<!--StartFragment-->
+
+Seriously Super Sized 32-inch Stuffed Fried Chicken Drumstick Food Plush
+
+44% off
+
+[https://amzn.to/3pjCTWQ](https://amzn.to/3pjCTWQ?fbclid=IwAR28hESm8uGkDNx1cgQR3nqFAnSpK5qYcX7mhwIwKjL7GqMKu2mz3Joe7qk)
+
+[](<>)ad
+
+![May be an image of 1 person](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/354450593_231151986446357_7491656169659901873_n.jpg?stp=dst-jpg_p526x296&_nc_cat=105&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=nvcwJWfG4HYAX9JEI5E&_nc_ht=scontent.fccu31-1.fna&oh=00_AfAodZ41OZIolRcYdAvUlTUKzs_hNjKIBsbzla7_REGT8w&oe=649C6A87)
+
 <!--EndFragment-->
