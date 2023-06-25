@@ -355,4 +355,14 @@ ad
 
 ![The Children\&#39;s Place Baby Toddler Girls Basic Denim Jacket](https://m.media-amazon.com/images/I/816iihQGcyL._AC_UX569_.jpg)
 
+Seliem 4th of July Patriotic Stars Stripes Cow Pig Sheep Placemats Set of 4
+
+https://amzn.to/3Nt0Jrr
+
+64% Off grab & go under 4
+
+ad
+
+![](https://m.media-amazon.com/images/I/81mrplGPQ7L._AC_SL1500_.jpg)
+
 <!--EndFragment-->
