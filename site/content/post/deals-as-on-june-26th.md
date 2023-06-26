@@ -206,4 +206,18 @@ ad
 
 ![](https://m.media-amazon.com/images/I/718BsG1bD+L._AC_SL1500_.jpg)
 
+10-Piece Baby Doll & Stroller Set,
+
+Now $11.50
+
+was $19.97
+
+Price when purchased online
+
+https://mavely.app.link/e/U8mt5J5FWAb
+
+ad
+
+![Kid Connection 10-Piece Baby Doll & Stroller Set, Light Skin Tone](https://i5.walmartimages.com/asr/9fb0592e-b59d-4afc-ba3b-b3d77fa8eed4.ec30e50faa509b2ae8678785775e3752.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
