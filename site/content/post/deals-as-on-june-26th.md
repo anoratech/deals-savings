@@ -160,4 +160,14 @@ ad
 
 ![Totes Recycled Canopy Auto Open Umbrella](https://i5.walmartimages.com/asr/08dc1e61-9fc7-4189-ae2e-47a33424385f.04560a82718a74f6b6e54d92d8b3882d.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+Tankini Sets Swimwear
+
+37% off
+
+https://amzn.to/3Jz5RJb
+
+ad
+
+![](https://m.media-amazon.com/images/I/51seyQdFh4L._AC_SY679._SX._UX._SY._UY_.jpg)
+
 <!--EndFragment-->
