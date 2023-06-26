@@ -59,3 +59,16 @@ image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
   ![BTFBM Women Casual Short Sleeve Plaid Maxi Dresses Off Shoulder Vintage Dress Square Neck Gingham Beach Long Summer Dress](https://m.media-amazon.com/images/I/71rhJrc+UwL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  (っ◔◡◔)っ ♥ PRICE DROP ♥
+
+  Dresses for Women Beach Floral Tshirt
+
+  https://amzn.to/3Pv7gEk (AD)
+
+  <!--EndFragment--> <!--StartFragment-->
+
+  ![Summer Dresses for Women Beach Floral Tshirt Sundress Sleeveless Pockets Casual Loose Tank Dress](https://m.media-amazon.com/images/I/818lCPTAoQL._AC_UY741_.jpg)
+
+  <!--EndFragment-->
