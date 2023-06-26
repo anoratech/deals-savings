@@ -42,4 +42,18 @@ ad
 
 ![CE\&#39; CERDR 3/4 Pack Mens Big and Tall Shirts Dry Fit Long Sleeve Shirts Moisture Wicking T-Shirt](https://m.media-amazon.com/images/I/81x393tqhYL._AC_UX679_.jpg)
 
+<!--StartFragment-->
+
+Wooden Jumbo Pencils for Prop/Gifts/Decor - 14 Inch
+
+Price Drop
+
+Grab & go
+
+https://amzn.to/431aDGa
+
+ad
+
+![](https://m.media-amazon.com/images/I/51m0ap5MFRL._AC_SL1000_.jpg)
+
 <!--EndFragment-->
