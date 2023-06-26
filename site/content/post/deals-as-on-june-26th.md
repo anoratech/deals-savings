@@ -70,4 +70,14 @@ ad
 
 ![Lush Decor Pixie Fox 3 Piece Quilt Set, Twin, Navy \&amp; Pink](https://m.media-amazon.com/images/I/91PUXBhHq2L._AC_SX522_.jpg)
 
+Women's Cropped Cardigan
+
+65% Off
+
+https://amzn.to/437cZ6M
+
+ad
+
+![GRACE KARIN 2023 Women\&#39;s Cropped Cardigan Lightweight Bolero Shrug Open Front Knitted Sweater](https://m.media-amazon.com/images/I/71+EI41zTQL._AC_UY741_.jpg)
+
 <!--EndFragment-->
