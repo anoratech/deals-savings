@@ -170,4 +170,14 @@ ad
 
 ![](https://m.media-amazon.com/images/I/51seyQdFh4L._AC_SY679._SX._UX._SY._UY_.jpg)
 
+OhO Bluetooth Glasses
+
+30% clip coupon
+
+https://amzn.to/3r8ZFRG
+
+ad
+
+![](https://m.media-amazon.com/images/I/51K1zgBopEL._AC_SL1001_.jpg)
+
 <!--EndFragment-->
