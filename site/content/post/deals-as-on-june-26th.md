@@ -80,4 +80,20 @@ ad
 
 ![GRACE KARIN 2023 Women\&#39;s Cropped Cardigan Lightweight Bolero Shrug Open Front Knitted Sweater](https://m.media-amazon.com/images/I/71+EI41zTQL._AC_UY741_.jpg)
 
+Desert Fields Denim Blue Braided Chindi Cotton Blend Indoor Round Area Rug
+
+\#walmart
+
+https://mavely.app.link/e/2673To4DWAb
+
+Now $83.20
+
+was $114.00
+
+Price when purchased online
+
+ad
+
+![Desert Fields Denim Blue Braided Chindi Cotton Blend Indoor Round Area Rug](https://i5.walmartimages.com/asr/c2fcdc3b-add2-4792-8ac3-980a1f4268f1_1.21f575fd41a3a9f9c8ef307b93be92f5.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
