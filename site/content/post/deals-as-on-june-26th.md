@@ -134,4 +134,16 @@ https://mavely.app.link/e/DWYbeVJEWAb ad
 
 ![Shop Affordable Perfume Dupes At The Purplle Republic Day Sale](https://media6.ppl-media.com/mediafiles/blogs/shutterstock_1397308094_cb85c34615.jpg)
 
+Levi's Girls' Classic Batwing T-Shirt
+
+65% off
+
+Grab & go
+
+https://amzn.to/3XoDZgu
+
+ad
+
+![Levi\&#39;s Girls\&#39; Classic Batwing T-Shirt](https://m.media-amazon.com/images/I/71U-deOtNAL._AC_UX679_.jpg)
+
 <!--EndFragment-->
