@@ -46,4 +46,16 @@ image: img/959b4012-2d79-46b6-a742-395fbe91a3bb.jpeg
   ![Womens Summer Dresses Beach Casual Tshirt Plus Size Floral Short Sleeve Loose Flowy Sundresses](https://m.media-amazon.com/images/I/918Y0qN75ML._AC_UY879_.jpg)
 
   <!--EndFragment-->
-*
+* <!--StartFragment-->
+
+  🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳
+
+  Women Casual Short Sleeve Plaid Maxi Dresses
+
+  https://amzn.to/3JzeOSN (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![BTFBM Women Casual Short Sleeve Plaid Maxi Dresses Off Shoulder Vintage Dress Square Neck Gingham Beach Long Summer Dress](https://m.media-amazon.com/images/I/71rhJrc+UwL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
