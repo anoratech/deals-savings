@@ -26,5 +26,12 @@ image: img/adcae29e-fa34-496b-8738-b033089624b1.jpg
   ![](https://m.media-amazon.com/images/I/81jZXecTu-L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ✂️✂️C-O-U-P-O-N ✂️✂️
+  Kids Writing Tablet
+  https://amzn.to/46mG297 (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81u8KzyOAJL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
