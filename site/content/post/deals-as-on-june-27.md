@@ -90,5 +90,12 @@ image: img/adcae29e-fa34-496b-8738-b033089624b1.jpg
   ![](https://m.media-amazon.com/images/I/91Hbq7IbZpL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 🅿🆁🅸🅲🅴 🅳🆁🅾🅿
+  HUE Women's Ripped Knee Denim Leggings
+  https://amzn.to/3plzTcH (Ad)<!--StartFragment-->
+
+  ![HUE Women\&#39;s Ripped Knee Denim Leggings](https://m.media-amazon.com/images/I/81eTxnoXvjL._AC_UX569_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
