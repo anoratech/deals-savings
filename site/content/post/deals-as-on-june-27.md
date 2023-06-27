@@ -12,5 +12,12 @@ image: img/adcae29e-fa34-496b-8738-b033089624b1.jpg
   ![](https://m.media-amazon.com/images/I/71SSVoE3HXL._SL1500_.jpg)
 
   <!--EndFragment-->
+* C-O-U-P-O-N ✂️✂️ ➕ DROP ‼️‼️
+  Massage Gun
+  https://amzn.to/3COMyI4 (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61u0pUzfbvL._AC_SL1243_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
