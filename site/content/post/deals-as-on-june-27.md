@@ -83,5 +83,12 @@ image: img/adcae29e-fa34-496b-8738-b033089624b1.jpg
   ![](https://m.media-amazon.com/images/I/71gtpJoPr4L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ⏩⏩PRICE DOWN ‼️‼️
+  Rockland Rolling Duffel Bag, Pink, 22-Inch
+  https://amzn.to/3CN8ZgL (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91Hbq7IbZpL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
