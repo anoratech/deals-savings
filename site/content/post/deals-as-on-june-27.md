@@ -69,5 +69,12 @@ image: img/adcae29e-fa34-496b-8738-b033089624b1.jpg
   ![](https://m.media-amazon.com/images/I/71vVrMMUfOL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* P♥R♥I♥C♥E♥ ♥D♥R♥O♥P
+  Trendy Sunglasses for Women and Men
+  https://amzn.to/3pwNJc5 (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61ljjVQxeWL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
