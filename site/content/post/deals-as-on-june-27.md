@@ -55,5 +55,12 @@ image: img/adcae29e-fa34-496b-8738-b033089624b1.jpg
   ![](https://m.media-amazon.com/images/I/61RdgH2DJRL._SL1200_.jpg)
 
   <!--EndFragment-->
+* (っ◔◡◔)っ ♥ PRICE DROP ♥
+  R.W.FLAME Fire Pit Table
+  https://amzn.to/44jD43n (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61ObCvd0k+L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
 ![]()
