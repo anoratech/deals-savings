@@ -3,14 +3,11 @@
 	<p class="mid-gray lh-title mb2">{{ .Date.Format "Mon, Jan 2, 2006" }}</p>
 	<p class="mb0">{{ .Description }}</p>
 
-	{{ with .Params.image }}
-        {{ with resources.Get . }}
-          {{ $alt := path.BaseName .Key | humanize | strings.FirstUpper  }}
-            {{ with .Fill "200x200" }}
-              <img src="{{ .RelPermalink }}" width="{{ .Width }}" height="{{ .Height }}" alt="{{ $alt }}">
-            {{ end }}
-        {{ end }}
-      	{{ end }}
+	{{ if .Params.image }}
+		{{ with .Fill "200x200" }}
+			<img src="{{ .Params.image}}" width="{{ .Width }}" height="{{ .Height }}" alt="{{ $alt }}">
+		{{ end }}
+	{{ end }}
 
 	<p class="link b dib black mb0">Click for more →</p>
 </a>
