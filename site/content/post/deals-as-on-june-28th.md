@@ -190,4 +190,10 @@ baby-girls Toddler Microfiber Tights https://amzn.to/46tFdeP ad
 
 ![The Children\&#39;s Place baby-girls Toddler Microfiber Tights](https://m.media-amazon.com/images/I/71zQBYDWgmL._AC_UY741_.jpg)
 
+<!--StartFragment-->
+
+Girls Short Sleeve Graphic T-Shirt https://amzn.to/44d8MiK ad
+
+![The Children\&#39;s Place Baby Toddler Girls Short Sleeve Graphic T-Shirt](https://m.media-amazon.com/images/I/814vOqvf9RL._AC_UX569_.jpg)
+
 <!--EndFragment-->
