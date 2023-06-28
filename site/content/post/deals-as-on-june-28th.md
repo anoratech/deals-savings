@@ -102,4 +102,18 @@ ad
 
 ![Paige Women\&#39;s Mayslie Jogger Seasonal](https://m.media-amazon.com/images/I/51kH3EvgFKL._AC_UX569_.jpg)
 
+<!--StartFragment-->
+
+20pcs Cosmetic Makeup Brushes Set
+
+40% Off
+
+Grab & go
+
+https://amzn.to/3XvuDzM
+
+ad
+
+![](https://m.media-amazon.com/images/I/51Z4zptGTKL.jpg)
+
 <!--EndFragment-->
