@@ -5,7 +5,7 @@
 
 	{{ if .Params.image }}
 		{{ with .Fill "200x200" }}
-			<img src="{{ .Params.image}}" width="{{ .Width }}" height="{{ .Height }}" alt="{{ $alt }}">
+			<img src="{{ .Params.image}}" width="{{ .Width }}" height="{{ .Height }}" alt="{{ .Title }}">
 		{{ end }}
 	{{ end }}
 
