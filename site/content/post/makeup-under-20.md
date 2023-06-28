@@ -45,4 +45,16 @@ Eyeshadow Palette, Grab & go https://amzn.to/441xhjc ad
 
 ![](https://m.media-amazon.com/images/I/71m9hFxsRTS._SL1200_.jpg)
 
-<!--EndFragment-->
+<!--StartFragment-->
+
+wet n wild Lip Gloss MegaSlicks,
+
+20% Clip coupon
+
+Grab & go
+
+https://amzn.to/3NxUmmu
+
+ad
+
+![wet n wild Lip Gloss MegaSlicks, Rose Gold | High Glossy Lip Makeup](https://m.media-amazon.com/images/I/718UfpZsr9L._AC_UL320_.jpg)
