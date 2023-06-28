@@ -116,4 +116,16 @@ ad
 
 ![](https://m.media-amazon.com/images/I/51Z4zptGTKL.jpg)
 
+Tifara Beauty Salon Heatless Flexible Hair Rollers
+
+50% Off
+
+Grab & go
+
+https://amzn.to/3CNomG2
+
+ad
+
+![](https://m.media-amazon.com/images/I/81L16rMIoQL._SL1500_.jpg)
+
 <!--EndFragment-->
