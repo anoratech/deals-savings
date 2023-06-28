@@ -28,3 +28,4 @@ disableKinds = ["RSS"]
 disableAdsense = false
 [taxonomies]
    tag = "tags"
+   category = "category"
