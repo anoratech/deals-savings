@@ -9,27 +9,27 @@ description: |-
 image: img/images.jpg
 ---
 * M﻿akeup Under $5 https://amzn.to/3NtkBKW ad
-*  ![](https://m.media-amazon.com/images/I/61NvTGruLoL._SL1500_.jpg)
+* ![](https://m.media-amazon.com/images/I/61NvTGruLoL._SL1500_.jpg)
 
-   Makeup Sponge Set
+  Makeup Sponge Set
 
-   https://amzn.to/448czOQ
+  https://amzn.to/448czOQ
 
-   Grab & go
+  Grab & go
 
-   ad
+  ad
 
-   ![](https://m.media-amazon.com/images/I/61+5vIMBGgL._SL1500_.jpg)
+  ![](https://m.media-amazon.com/images/I/61+5vIMBGgL._SL1500_.jpg)
 
-   Tinted Eye Cream,
+  Tinted Eye Cream,
 
-   83% Off
+  83% Off
 
-   Grab & go Under 4
+  Grab & go Under 4
 
-   https://amzn.to/43awUSk
+  https://amzn.to/43awUSk
 
-   ad
+  ad
 
 NYX PROFESSIONAL MAKEUP Epic Ink Liner, Price Drop https://amzn.to/4342Rvs ad
 
@@ -105,86 +105,6 @@ Soft Velvet Cream Blush ,67% Off, Grab & go https://amzn.to/3NxgwWd ad
 
 <!--EndFragment-->
 
-
-
 ![](https://m.media-amazon.com/images/I/51Xo6wk0V4L._SL1000_.jpg)
 
 <!--EndFragment-->
-
-* <!--StartFragment-->
-
-  ‼️‼️ PRICE DROP ‼️✴️\
-  Highly Pigmented Eye Makeup Palette\
-  <https://amzn.to/3Cq0MPu> (Ad)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/61dh9Y6h75L._SL1000_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  G♥R♥E♥A♥T♥ ♥D♥R♥O♥P\
-  essence | Lash Princess False Lash Effect Mascara <https://amzn.to/44gH4Sn> (Ad)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/61K6cQhw4EL._SL1500_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  🅲🅾🆄🅿🅾🅽 ✂️✂️\
-  2Pcs Power Grip Primer for Locking Face Foundation\
-  <https://amzn.to/3r3bjOi> (ad)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/51QZbtl1xRL._SL1000_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  🏃🏃𝗚𝗥𝗔𝗕 & 𝗚𝗢\
-  𝕄𝕒𝕜𝕖𝕦𝕡 ℝ𝕖𝕞𝕠𝕧𝕖𝕣 ℂ𝕝𝕠𝕥𝕙𝕤 𝟜 ℂ𝕠𝕦𝕟𝕥\
-  <https://amzn.to/44k7DFX> (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/71tuasnvGNL._SL1500_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  ⏬⏬ 𝓟𝓡𝓘𝓒𝓔 𝓓𝓡𝓞𝓟 ⏬⏬\
-  Ruby Kisses No More Blemish Face Powder\
-  <https://amzn.to/3pjW9Un> (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/71a0rbFGKdL._SL1500_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ‼️‼️\
-  🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳\
-  e.l.f. 16HR Camo Concealer\
-  <https://amzn.to/3XACLiA> (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/61PB2Qx-OXL._SL1500_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  RUNNNNNN 🏃🏃\
-  wet n wild Kabuki Brush\
-  <https://amzn.to/44l9331> (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/51UVKkF9XsL._SL1500_.jpg)
-
-  <!--EndFragment-->
