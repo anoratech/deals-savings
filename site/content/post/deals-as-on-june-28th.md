@@ -262,4 +262,18 @@ ad
 
 ![](https://m.media-amazon.com/images/I/81SvJHjI2OL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Wet Brush Paddle Detangler, Pink
+
+https://amzn.to/44nSnb4
+
+56% Off
+
+Grab & go
+
+ad
+
+![](https://m.media-amazon.com/images/I/81QlpuE898L._SL1500_.jpg)
+
 <!--EndFragment-->
