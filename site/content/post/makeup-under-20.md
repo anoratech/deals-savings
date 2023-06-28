@@ -143,3 +143,14 @@ Soft Velvet Cream Blush ,67% Off, Grab & go https://amzn.to/3NxgwWd ad
   ![](https://m.media-amazon.com/images/I/51QZbtl1xRL._SL1000_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  🏃🏃𝗚𝗥𝗔𝗕 & 𝗚𝗢\
+  𝕄𝕒𝕜𝕖𝕦𝕡 ℝ𝕖𝕞𝕠𝕧𝕖𝕣 ℂ𝕝𝕠𝕥𝕙𝕤 𝟜 ℂ𝕠𝕦𝕟𝕥\
+  <https://amzn.to/44k7DFX> (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71tuasnvGNL._SL1500_.jpg)
+
+  <!--EndFragment-->
