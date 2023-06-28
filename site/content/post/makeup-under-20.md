@@ -132,3 +132,14 @@ Soft Velvet Cream Blush ,67% Off, Grab & go https://amzn.to/3NxgwWd ad
   ![](https://m.media-amazon.com/images/I/61K6cQhw4EL._SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  🅲🅾🆄🅿🅾🅽 ✂️✂️\
+  2Pcs Power Grip Primer for Locking Face Foundation\
+  <https://amzn.to/3r3bjOi> (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/51QZbtl1xRL._SL1000_.jpg)
+
+  <!--EndFragment-->
