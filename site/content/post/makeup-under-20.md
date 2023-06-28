@@ -58,3 +58,11 @@ https://amzn.to/3NxUmmu
 ad
 
 ![wet n wild Lip Gloss MegaSlicks, Rose Gold | High Glossy Lip Makeup](https://m.media-amazon.com/images/I/718UfpZsr9L._AC_UL320_.jpg)
+
+
+
+Maybelline Lifter Gloss Lip Gloss, Hydrating & High Shine - Ice (Pink Neutral) https://amzn.to/443efZE Grab & go ad
+
+![](https://m.media-amazon.com/images/I/61r3MuwPTBL._SL1500_.jpg)
+
+<!--EndFragment-->
