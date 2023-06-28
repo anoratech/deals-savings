@@ -154,3 +154,14 @@ Soft Velvet Cream Blush ,67% Off, Grab & go https://amzn.to/3NxgwWd ad
   ![](https://m.media-amazon.com/images/I/71tuasnvGNL._SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ⏬⏬ 𝓟𝓡𝓘𝓒𝓔 𝓓𝓡𝓞𝓟 ⏬⏬\
+  Ruby Kisses No More Blemish Face Powder\
+  <https://amzn.to/3pjW9Un> (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71a0rbFGKdL._SL1500_.jpg)
+
+  <!--EndFragment-->
