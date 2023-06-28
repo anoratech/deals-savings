@@ -6,7 +6,7 @@ Category: all
 description: |-
   Prices/Codes valid at time of posting.
   May change/expire at any time.
-image: img/70912332-red-easy-vector-illustration-isolated-circle-tag-banner-best-deal-this-element-is-well-adapted-for.webp
+image: img/istockphoto-1302638806-612x612.jpg
 ---
 10 Inch LCD Writing Tablet for Kids
 
