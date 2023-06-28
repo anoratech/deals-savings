@@ -25,5 +25,6 @@ prism_syntax_highlighting = true
 # See configuration options for more details: 
 # https://gohugo.io/getting-started/configuration/#toml-configuration
 disableKinds = ["RSS"]
+disableAdsense = false
 [taxonomies]
    tag = "tags"
