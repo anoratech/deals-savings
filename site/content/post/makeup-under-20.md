@@ -71,4 +71,12 @@ Blue Butterfly Glitter #232 From Royal Care Cosmetics ,Lot many colors on page ,
 
 ![](https://m.media-amazon.com/images/I/71fUosfKW3L._SL1000_.jpg)
 
+
+
+Go Ho Pink and White Body Glitter Set ,Grab & go ,https://amzn.to/3NrmVC9 ad
+
+
+
+![](https://m.media-amazon.com/images/I/71OX8IzOvBL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
