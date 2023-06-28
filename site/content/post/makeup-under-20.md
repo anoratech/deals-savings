@@ -119,4 +119,12 @@ Shimmer Liquid Eyeliner https://amzn.to/4426T8W ad
 
 ![Glitter Liquid Eyeshadow Shimmer Liquid Eyeliner Gel Korean Glitter Eye Makeup Under Eye Shadow Bling Long Lasting Sparkli...](https://m.media-amazon.com/images/I/61MhV28xAjL._AC_UL320_.jpg)
 
+<!--StartFragment-->
+
+Soft Velvet Cream Blush ,67% Off, Grab & go https://amzn.to/3NxgwWd ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/51Xo6wk0V4L._SL1000_.jpg)
+
 <!--EndFragment-->
