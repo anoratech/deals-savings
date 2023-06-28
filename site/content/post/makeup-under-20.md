@@ -83,4 +83,10 @@ e.l.f. Flawless Brightening Concealer ,50% Off ,Grab & go ,https://amzn.to/3NQQl
 
 ![](https://m.media-amazon.com/images/I/61VAfxXAahL._SL1500_.jpg)
 
+
+
+Professional Nail Care kit ,60% Off ,https://amzn.to/3NvRned ad
+
+![](https://m.media-amazon.com/images/I/71WYzuNgcrL._SL1000_.jpg)
+
 <!--EndFragment-->
