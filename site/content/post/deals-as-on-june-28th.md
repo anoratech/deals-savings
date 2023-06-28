@@ -70,4 +70,14 @@ ad
 
 ![](https://m.media-amazon.com/images/I/613CY2ECvTL._SL1000_.jpg)
 
+Fire HD 10 tablet,
+
+53% off
+
+https://amzn.to/3r7VLZC
+
+ad
+
+![](https://m.media-amazon.com/images/I/61uE03cRsyS._AC_SL1000_.jpg)
+
 <!--EndFragment-->
