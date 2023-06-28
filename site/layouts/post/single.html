@@ -8,8 +8,8 @@
     </div>
     <div class="cms mw6">
       <p>{{ .Description }}</p>
-   
-      {{ if .Params.image }}<img src="{{ .Params.image.Fit "600x400" }}" alt="{{ .Title }}" height="200" />{{ end }}
+      {{ $image := .Page.Resources.GetMatch .Params.image }}
+      {{ if .Params.image }}<img src="{{ $image.RelPermalink }}" alt="{{ .Title }}" />{{ end }}
       {{ .Content }}
       <p>ᴀᴅ- ᴄᴏɴᴛᴇɴᴛ ɪꜱ ꜱᴜʙᴊᴇᴄᴛ ᴛᴏ ᴄʜᴀɴɢᴇ ᴏʀ ʀᴇᴍᴏᴠᴀʟ ᴡɪᴛʜᴏᴜᴛ ɴᴏᴛɪᴄᴇ. ᴘʀᴏᴍᴏ ᴄᴏᴅᴇꜱ, ɪꜰ ᴀɴʏ, ᴍᴀʏ ᴇ𝔁ᴘɪʀᴇ ᴀᴛ ᴀɴʏ ᴛɪᴍᴇ. ɪ ᴅᴏ ɴᴏᴛ ᴏᴡɴ ᴛʜᴇ ʀɪɢʜᴛꜱ ᴛᴏ ᴀɴʏ ᴏꜰ ᴛʜᴇꜱᴇ ᴘʜᴏᴛᴏꜱ 𝓐𝓼 𝓪𝓷 𝓐𝓼𝓼𝓸𝓬𝓲𝓪𝓽𝓮, 𝓘 𝓮𝓪𝓻𝓷 𝓯𝓻𝓸𝓶 𝓺𝓾𝓪𝓵𝓲𝓯𝔂𝓲𝓷𝓰 𝓹𝓾𝓻𝓬𝓱𝓪𝓼𝓮𝓼</p>
     </div>
