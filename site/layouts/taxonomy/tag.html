@@ -5,7 +5,7 @@
 
 <div class="mw7 center">
   <ul id="blog-list" class="flex-ns flex-wrap mhn1-ns pa3">
-      {{ range (.Paginator 20).Pages.ByPublishDate.Reverse }}
+      {{ range (.Paginator 20).Pages.ByTitle }}
           <li class="w-50-ns ph1-ns flex">
             {{ .Render "li"}}
           </li>
