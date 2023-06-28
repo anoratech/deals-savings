@@ -79,4 +79,8 @@ Go Ho Pink and White Body Glitter Set ,Grab & go ,https://amzn.to/3NrmVC9 ad
 
 ![](https://m.media-amazon.com/images/I/71OX8IzOvBL._AC_SL1500_.jpg)
 
+e.l.f. Flawless Brightening Concealer ,50% Off ,Grab & go ,https://amzn.to/3NQQlLm ad
+
+![](https://m.media-amazon.com/images/I/61VAfxXAahL._SL1500_.jpg)
+
 <!--EndFragment-->
