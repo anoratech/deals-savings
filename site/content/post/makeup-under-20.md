@@ -122,3 +122,13 @@ Soft Velvet Cream Blush ,67% Off, Grab & go https://amzn.to/3NxgwWd ad
   ![](https://m.media-amazon.com/images/I/61dh9Y6h75L._SL1000_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  G♥R♥E♥A♥T♥ ♥D♥R♥O♥P\
+  essence | Lash Princess False Lash Effect Mascara <https://amzn.to/44gH4Sn> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61K6cQhw4EL._SL1500_.jpg)
+
+  <!--EndFragment-->
