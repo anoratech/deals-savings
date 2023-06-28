@@ -182,4 +182,12 @@ Girls' Short Sleeve Tie Front Top 80% Off https://amzn.to/3NMzbOV ad
 
 ![The Children\&#39;s Place Girls\&#39; Short Sleeve Tie Front Top](https://m.media-amazon.com/images/I/81YcFx-TC+L._AC_UX569_.jpg)
 
+
+
+baby-girls Toddler Microfiber Tights https://amzn.to/46tFdeP ad
+
+
+
+![The Children\&#39;s Place baby-girls Toddler Microfiber Tights](https://m.media-amazon.com/images/I/71zQBYDWgmL._AC_UY741_.jpg)
+
 <!--EndFragment-->
