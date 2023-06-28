@@ -39,4 +39,10 @@ NYX PROFESSIONAL MAKEUP Epic Ink Liner, Price Drop https://amzn.to/4342Rvs ad
 
 ![](https://m.media-amazon.com/images/I/51PpW3HD9WL._SL1500_.jpg)
 
+
+
+Eyeshadow Palette, Grab & go https://amzn.to/441xhjc ad
+
+![](https://m.media-amazon.com/images/I/71m9hFxsRTS._SL1200_.jpg)
+
 <!--EndFragment-->
