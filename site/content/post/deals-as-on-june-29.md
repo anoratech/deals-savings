@@ -99,4 +99,11 @@ image: img/e1d31b3d-ad54-4d6f-802f-0e0e5366e42f.jpg
   ![](https://m.media-amazon.com/images/I/81wsRsSFf9L._SL1500_.jpg)
 
   <!--EndFragment-->
+* 🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳
+  Stanley GO The Quick Flip GO Bottle 24OZ Blush
+  https://amzn.to/44iB1fQ (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/5100jnxBzVL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 *
