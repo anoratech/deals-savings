@@ -92,4 +92,11 @@ image: img/e1d31b3d-ad54-4d6f-802f-0e0e5366e42f.jpg
   ![](https://m.media-amazon.com/images/I/815AOGqauSL._SL1500_.jpg)
 
   <!--EndFragment-->
+* ✂️✂️C-O-U-P-O-N ✂️✂️
+  Old Spice Aluminum Free Deodorant for Men pack of 3️⃣
+  https://amzn.to/3JARkg6 (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81wsRsSFf9L._SL1500_.jpg)
+
+  <!--EndFragment-->
 *
