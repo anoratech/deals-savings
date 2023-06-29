@@ -78,4 +78,11 @@ image: img/e1d31b3d-ad54-4d6f-802f-0e0e5366e42f.jpg
   ![](https://m.media-amazon.com/images/I/61JIbrq1ToL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ⬇️⬇️PRICE DROP‼️‼️
+  Beach Tent Sun Shelter for 3/4-5/6-7/8-10 Person
+  https://amzn.to/3r9LSdR (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/51Skk--ArAL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 *
