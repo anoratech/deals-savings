@@ -64,4 +64,11 @@ image: img/e1d31b3d-ad54-4d6f-802f-0e0e5366e42f.jpg
   ![](https://m.media-amazon.com/images/I/816yrNwUZvS._SL1500_.jpg)
 
   <!--EndFragment-->
+* USE CLIP ✂️✂️
+  Gerber Baby Snacks Puffs Variety Pack
+  https://amzn.to/443gyvW (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61gV5JxJsxL._SL1000_.jpg)
+
+  <!--EndFragment-->
 *
