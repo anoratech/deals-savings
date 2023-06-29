@@ -2,7 +2,7 @@
 title: "Kitchen Trash Bags "
 date: 2023-06-28T19:54:33.807Z
 tags: "AMAZON "
-Category: "Trash Bags "
+Category: Home & Kitchen
 description: >-
   RUNNNN🏃🏃
 
