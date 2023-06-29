@@ -36,4 +36,11 @@ image: img/e1d31b3d-ad54-4d6f-802f-0e0e5366e42f.jpg
   ![](https://m.media-amazon.com/images/I/71zuTiICB9L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ‼️‼️𝓟𝓡𝓘𝓒𝓔 𝓓𝓡𝓞𝓟 ‼️▶️
+  The Children's Place Unisex-Child and Toddler Girls Slides 
+  https://amzn.to/44ipcGu (Ad)<!--StartFragment-->
+
+  ![The Children\&#39;s Place Unisex-Child and Toddler Girls Slides with Backstrap Sandal](https://m.media-amazon.com/images/I/81HQP+vQcqL._AC_UY695_.jpg)
+
+  <!--EndFragment-->
 *
