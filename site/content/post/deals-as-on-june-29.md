@@ -57,4 +57,11 @@ image: img/e1d31b3d-ad54-4d6f-802f-0e0e5366e42f.jpg
   ![](https://m.media-amazon.com/images/I/91TnZvel+pL._SL1500_.jpg)
 
   <!--EndFragment-->
+* (っ◔◡◔)っ ♥ PRICE DROP ♥
+  Mott's for Tots Apple, 6.75 Fl Oz (Pack of 32)
+  https://amzn.to/3pAdV5D (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/816yrNwUZvS._SL1500_.jpg)
+
+  <!--EndFragment-->
 *
