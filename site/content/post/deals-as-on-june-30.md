@@ -76,3 +76,9 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   ![](https://m.media-amazon.com/images/I/81wsRsSFf9L._SL1500_.jpg)
 
   <!--EndFragment-->
+* GRAB & GO 🏃🏃
+   Round Brush for Blow-Drying https://amzn.to/44jfJyH (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71SSVoE3HXL._SL1500_.jpg)
+
+  <!--EndFragment-->
