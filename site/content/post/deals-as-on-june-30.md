@@ -44,3 +44,14 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
    https://amzn.to/3Pemw8L (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61JSdwodY1L._AC_SL1500_.jpg)
+* <!--StartFragment-->
+
+  😈Halloween Momster T-Shirt Women 🎃🎃\
+  ✂️✂️C-O-U-P-O-N ✂️✂️\
+  <https://amzn.to/3PCTO1y> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Halloween Momster T-Shirt Women Funny Mom Gifts Bat Printed Graphic Short Sleeve Tee Tops](https://m.media-amazon.com/images/I/718jE6BxIjL._AC_UY741_.jpg)
+
+  <!--EndFragment-->
