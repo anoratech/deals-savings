@@ -122,3 +122,14 @@ AD\
   ![Dickies Men\&#39;s Dri-tech Moisture Control Crew Socks Multipack](https://m.media-amazon.com/images/I/A1anOWw13iL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  🚫🚫NO CODE NEEDED 🚫🚫\
+  𝓓ℛ𝓞𝓟 ‼️‼️\
+  Nivea Men DEEP Active Clean Charcoal Body Wash <https://amzn.to/42IqYzA> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81APIMD5vML._SL1500_.jpg)
+
+  <!--EndFragment-->
