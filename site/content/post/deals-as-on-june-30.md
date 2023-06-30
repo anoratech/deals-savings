@@ -15,3 +15,10 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   <!--EndFragment-->
 
   ![]()
+* 🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳
+  Furniture Protector
+  https://amzn.to/44boNGs (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81kGJ+ZJJIL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
