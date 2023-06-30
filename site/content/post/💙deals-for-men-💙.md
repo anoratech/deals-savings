@@ -5,7 +5,7 @@ tags: Walmart
 Category: Men's Product
 description: Find great deals for him under 💲20
 ---
-![](img/whatsapp-image-2023-06-30-at-3.05.21-pm.jpeg)
+![](img/whatsapp-image-2023-06-30-at-9.59.16-pm.jpeg)
 
 \
 WALMART
