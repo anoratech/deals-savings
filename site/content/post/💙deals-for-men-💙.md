@@ -133,3 +133,14 @@ AD\
   ![](https://m.media-amazon.com/images/I/81APIMD5vML._SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳\
+  UGG Men’s Fleece Gaiter\
+  <https://amzn.to/3qKsXGq> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![UGG Men\&#39;s Fleece Gaiter](https://m.media-amazon.com/images/I/81N3I7RNFhL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
