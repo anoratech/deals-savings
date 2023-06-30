@@ -161,3 +161,13 @@ AD\
   ad
 
   ![](img/31fda3aa-27c5-43a8-9947-f9ec0fc0cd72.jpeg)
+
+  Gifts for Men - Beard Kit
+
+  53% off under 14
+
+  https://amzn.to/3JEPhYi
+
+  ad
+
+  ![](img/e38f0279-bdb2-4476-a98f-c83e05a48f20.jpeg)
