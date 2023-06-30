@@ -230,3 +230,14 @@ AD\
   ![Beslip Womens Mens Garden Clogs Shoes with Arch Support Unisex Comfort Slip-on Sandals](https://m.media-amazon.com/images/I/61Mg5W1cGiL._AC_UY500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  🅾🅽 🅳🆁🅾🅿\
+  Men's Regular-Fit Tank Top\
+  <https://amzn.to/3NULsko> (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Amazon Essentials Men\&#39;s Regular-Fit Tank Top](https://m.media-amazon.com/images/I/819ftWZZSML._AC_UX569_.jpg)
+
+  <!--EndFragment-->
