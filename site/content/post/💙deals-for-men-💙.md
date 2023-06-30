@@ -144,3 +144,14 @@ AD\
   ![UGG Men\&#39;s Fleece Gaiter](https://m.media-amazon.com/images/I/81N3I7RNFhL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ⏬⏬PRICE DOWN ⏬⏬\
+  Hanes Sport Men's Heathered Training Tee\
+  <https://amzn.to/44rIjya> (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Hanes Sport Men\&#39;s Heathered Training Tee](https://m.media-amazon.com/images/I/81NDd5OV0DL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
