@@ -151,3 +151,13 @@ AD\
   ad
 
   ![](img/00f6e5cc-2f76-4b5e-823a-a93034418994.jpeg)
+
+  Travel Power Strip, NTONPOWER 3 Outlets 3 USB Portable Desktop Charging Station
+
+  Price drop + clip coupon
+
+  https://amzn.to/3K1hfht
+
+  ad
+
+  ![](img/31fda3aa-27c5-43a8-9947-f9ec0fc0cd72.jpeg)
