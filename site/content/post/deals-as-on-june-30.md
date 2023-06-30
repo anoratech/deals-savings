@@ -86,3 +86,14 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   ![](https://m.media-amazon.com/images/I/61u0pUzfbvL._AC_SL1243_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  🚫🚫NO CODE NEEDED 🚫🚫\
+  Dry Body Brush for Beautiful Skin\
+  <https://amzn.to/3plsiuH> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61RdgH2DJRL._SL1200_.jpg)
+
+  <!--EndFragment-->
