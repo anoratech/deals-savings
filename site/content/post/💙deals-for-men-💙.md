@@ -198,3 +198,14 @@ AD\
   ![](https://m.media-amazon.com/images/I/715rxYtGhGL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  🅾🅽 🅳🆁🅾🅿\
+  Dickies Men’s Dri-tech Moisture Control Crew Socks socks 🧦 🧦 Multipack\
+  <https://amzn.to/42LPDTI> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Dickies Men\&#39;s Dri-tech Moisture Control Crew Socks Multipack](https://m.media-amazon.com/images/I/A1anOWw13iL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
