@@ -3,9 +3,14 @@ title: 💙DEALS FOR MEN 💙
 date: 2023-06-30T09:37:32.774Z
 tags: Walmart
 Category: Men's Product
-description: Find great deals for him under 💲20
+description: |+
+  Find great deals for him under 💲20
+
+  Men's Gift for Father's Day Birthday Gift 3pcs/set - $19.43
+  Belcam G Cologne for Men, 3.4 Oz - $7.98
+  Refillable Three-Blade Disposable Razor for Men - Around $6
 ---
-![](img/whatsapp-image-2023-06-30-at-9.59.16-pm.jpeg)
+![](img/whatsapp-image-2023-06-30-at-10.16.26-pm.jpeg)
 
 \
 WALMART
