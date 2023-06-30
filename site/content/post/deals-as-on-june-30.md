@@ -128,3 +128,13 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   ![](https://m.media-amazon.com/images/I/71vVrMMUfOL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  🅿🆁🅸🅲🅴 🅳🆁🅾🅿\
+  HUE Women’s Ripped Knee Denim Leggings <https://amzn.to/3plzTcH> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![HUE Women\&#39;s Ripped Knee Denim Leggings](https://m.media-amazon.com/images/I/71m5GRhkr6L._AC_UY741_.jpg)
+
+  <!--EndFragment-->
