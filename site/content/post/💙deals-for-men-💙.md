@@ -141,3 +141,13 @@ AD\
   ad
 
   ![](img/855bf364-092d-48ab-9b06-3223e80e6ddd.jpeg)
+
+  Men Sport Al-Mg Polarized Sunglasses
+
+  Price drop
+
+  https://amzn.to/3NB9GPv
+
+  ad
+
+  ![](img/00f6e5cc-2f76-4b5e-823a-a93034418994.jpeg)
