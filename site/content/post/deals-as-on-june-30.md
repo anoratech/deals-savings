@@ -138,3 +138,14 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   ![HUE Women\&#39;s Ripped Knee Denim Leggings](https://m.media-amazon.com/images/I/71m5GRhkr6L._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  C-O-U-P-O-N ✂️✂️\
+  Mens Garden Clogs Shoe 👟\
+  <https://amzn.to/3XaePlK> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Beslip Womens Mens Garden Clogs Shoes with Arch Support Unisex Comfort Slip-on Sandals](https://m.media-amazon.com/images/I/61Mg5W1cGiL._AC_UY695_.jpg)
+
+  <!--EndFragment-->
