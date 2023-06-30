@@ -93,3 +93,9 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   ![](https://m.media-amazon.com/images/I/61u0pUzfbvL._AC_SL1243_.jpg)
 
   <!--EndFragment-->
+* ✂️✂️C-O-U-P-O-N ✂️✂️
+   Kids Writing Tablet https://amzn.to/46mG297 (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81u8KzyOAJL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
