@@ -66,3 +66,13 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   ![Maruchan Ramen Creamy Chicken Flavor, 3 Oz, Pack of 24](https://m.media-amazon.com/images/I/91TnZvel+pL._SX679_PIbundle-24,TopRight,0,0_AA679SH20_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ✂️✂️C-O-U-P-O-N ✂️✂️\
+  Old Spice Aluminum Free Deodorant for Men pack of 3️⃣ <https://amzn.to/3JARkg6> (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81wsRsSFf9L._SL1500_.jpg)
+
+  <!--EndFragment-->
