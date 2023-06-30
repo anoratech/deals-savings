@@ -171,3 +171,15 @@ AD\
   ad
 
   ![](img/e38f0279-bdb2-4476-a98f-c83e05a48f20.jpeg)
+
+  Hanes Men's EcoSmart Fleece Sweatshirt,
+
+  Price drop
+
+  grab & go
+
+  https://amzn.to/44nbtyj
+
+  ad
+
+  ![](img/61260cc9-2b55-4d38-8163-f459047ef6cd.jpeg)
