@@ -51,3 +51,13 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   ![Halloween Momster T-Shirt Women Funny Mom Gifts Bat Printed Graphic Short Sleeve Tee Tops](https://m.media-amazon.com/images/I/718jE6BxIjL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  GRAB & GO 🏃🏃\
+  Mrs. Meyer’s All-Purpose Cleaner Spray, Daisy, 16 Fl. Oz <https://amzn.to/3psD1U1> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71YxFWZEL-L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
