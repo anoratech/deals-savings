@@ -141,3 +141,14 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   ![](https://m.media-amazon.com/images/I/712Wn2wVsNL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ⤵️⤵️🅳🆁🅾🅿\
+  Satin Silk Pillowcase for Hair and Skin\
+  <https://amzn.to/43JDVdU> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61olJClLFoL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
