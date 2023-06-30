@@ -22,3 +22,10 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   ![](https://m.media-amazon.com/images/I/81kGJ+ZJJIL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ✂️✂️USE C-O-U-P-O-N ✂️✂️
+  Portable Monitor 15.6''
+  https://amzn.to/3XwsCmN (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/614+C+iG1sL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
