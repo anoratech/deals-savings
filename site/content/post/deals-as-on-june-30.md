@@ -65,3 +65,13 @@ image: img/awesome-deal-poster-design-banner-flat-style-illustration-vector.jpg
   ![](https://m.media-amazon.com/images/I/71YxFWZEL-L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ✂️✂️C-O-U-P-O-N ✂️✂️\
+  Old Spice Aluminum Free Deodorant for Men pack of 3️⃣ <https://amzn.to/3JARkg6> (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81wsRsSFf9L._SL1500_.jpg)
+
+  <!--EndFragment-->
