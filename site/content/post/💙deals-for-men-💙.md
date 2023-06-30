@@ -100,3 +100,14 @@ AD\
 ![](https://m.media-amazon.com/images/I/71BQVL1k+UL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+* <!--StartFragment-->
+
+  ‼️‼️ PRICE DROP ‼️‼️\
+  Under Armour Men’s Sportstyle Logo Short-Sleeve T-Shirt <https://amzn.to/3Ny3k4n> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Under Armour Men\&#39;s Sportstyle Logo T-Shirt, White](https://m.media-amazon.com/images/I/715rxYtGhGL._AC_UX569_.jpg)
+
+  <!--EndFragment-->
