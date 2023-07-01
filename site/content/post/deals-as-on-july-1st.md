@@ -150,4 +150,18 @@ ad
 
 ![](https://m.media-amazon.com/images/I/61nCH1SN4tL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+UCreate Sketch Diary, 11" x 8-1/2", 70 Sheets
+
+55% Off
+
+Grab & go
+
+https://amzn.to/3CSKMpq
+
+ad
+
+![](https://m.media-amazon.com/images/I/810YMX7VqPL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
