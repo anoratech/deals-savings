@@ -32,4 +32,16 @@ ad
 
 ![](https://m.media-amazon.com/images/I/81wGTcs9kIL._AC_SL1500_.jpg)
 
+
+
+LCD Writing Tablet 10 Inch Doodle Board
+
+53% Off
+
+https://amzn.to/3XCD2Bp
+
+ad
+
+![](https://m.media-amazon.com/images/I/71X3wfGCVbL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
