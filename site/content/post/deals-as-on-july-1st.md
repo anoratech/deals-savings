@@ -92,4 +92,16 @@ ad
 
 ![](https://m.media-amazon.com/images/I/71BrrGs9gUL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+The Game of Life Jurassic Park Edition
+
+https://amzn.to/3rbTgFL
+
+Price Drop
+
+ad
+
+![](https://m.media-amazon.com/images/I/91ngwDu4vVL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
