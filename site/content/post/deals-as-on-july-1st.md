@@ -80,4 +80,16 @@ ad
 
 ![](https://m.media-amazon.com/images/I/811-2vSH2RL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Jurassic World Advent Calendar
+
+67% Off
+
+https://amzn.to/43adNHT
+
+ad
+
+![](https://m.media-amazon.com/images/I/71BrrGs9gUL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
