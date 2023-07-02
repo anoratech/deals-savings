@@ -1,5 +1,5 @@
 ---
-title: TODAY'S HOT DEALS
+title: " HOT DEALS AS ON JULY 2nd"
 date: 2023-07-02T14:18:43.915Z
 tags: Amazon
 Category: home
