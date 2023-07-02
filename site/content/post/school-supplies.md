@@ -46,3 +46,10 @@ image: img/school5.jpg
 * **1200 Pcs Sticky Index Tabs 6 Sheets** https://amzn.to/43oofvH ad 
 
   ![](https://m.media-amazon.com/images/I/71-HIioNMQL._AC_SL1500_.jpg)
+
+
+
+
+* **Electric Pencil Sharpener under 10** https://amzn.to/449ruIv ad
+
+  ![](https://m.media-amazon.com/images/I/71oOMfkT7oL._AC_SL1500_.jpg)
