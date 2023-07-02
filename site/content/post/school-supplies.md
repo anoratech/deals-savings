@@ -34,3 +34,15 @@ image: img/school5.jpg
 
 
   ![](https://m.media-amazon.com/images/I/81KUkMMhFsL._AC_SL1500_.jpg)
+
+
+* **Ticonderoga Wood-Cased Pencils, Pre-Sharpened, 2 HB Soft, Yellow, 30 Count** https://amzn.to/3PFPTkC ad
+
+
+
+  ![](https://m.media-amazon.com/images/I/71VhF2aRXVL._AC_SL1500_.jpg)
+
+
+* **1200 Pcs Sticky Index Tabs 6 Sheets** https://amzn.to/43oofvH ad 
+
+  ![](https://m.media-amazon.com/images/I/71-HIioNMQL._AC_SL1500_.jpg)
