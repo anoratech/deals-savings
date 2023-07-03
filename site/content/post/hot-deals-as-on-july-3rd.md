@@ -27,9 +27,6 @@ description: Hot & Trending Deals
   \
 
   ![](https://m.media-amazon.com/images/I/71fCCIo2N6L._AC_SL1500_.jpg)
-
-
-
 * 🌸🌺🌸Lubriderm Advanced Therapy Fragrance-Free Moisturizing
    Lotion 3pk 🌸🌺🌸
   57%OFF
@@ -226,3 +223,181 @@ description: Hot & Trending Deals
   \
 
   ![](https://m.media-amazon.com/images/I/71TX1S75XzL._AC_SL1500_.jpg)
+* ‼️All-new Ring Indoor Cam, White with Ring Video Doorbell Wired‼️
+  52%OFF
+  https://amzn.to/3NECgzg
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/41ronHot5DL._SL1000_.jpg)
+
+  <!--EndFragment-->
+* 🌹BabyBliss Cryocare Cold Brush🌹
+  50%OFF
+  https://amzn.to/3CUQ04b
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71edKIqVJuL._SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🔥HOT HOT HOT 🔥
+  STOCK UP 🔥🔥🔥🔥BUY $20 Save $10
+  https://amzn.to/448qG6C
+  AD
+
+  ![](img/whatsapp-image-2023-07-04-at-12.22.14-am.jpeg)
+
+
+* 🏃‍♀️🏃𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃
+  🌸Wav Enforcer Barber Series The Original Fade Brush, 1 Count🌸
+  ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  https://amzn.to/3NWtEVZ
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/816G8JN2cjL._SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🏃‍♀️🏃𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃
+  🌹🌷 Ultra Soft 24 Pack Baby Washcloths - 10x10 Inches 🌹🌷
+  50%OFF st checkout ‼️
+  https://amzn.to/3NtrNqo
+  AD
+
+  ![](img/whatsapp-image-2023-07-04-at-12.22.30-am.jpeg)
+
+
+* 🎧🎧 Apple AirPods (2nd Generation) Wireless Earbuds with Lightning Charging Case Included🎧🎧
+  ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  https://amzn.to/46r8Ayl
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61INRzmJaBL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 💝2 Pack Water Swimming Pool Float Hammock💝
+  ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  💸ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ💸
+  https://amzn.to/3CYZF9C
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81T-Df9zkEL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🎀 Fire HD 10 tablet, 10.1", 1080p Full HD, 64 GB, Black🎀
+  55%OFF
+  https://amzn.to/3XxGMEl
+  AD\
+  <!--StartFragment-->
+
+
+  ![](https://m.media-amazon.com/images/I/61aoLKgeqpL._AC_SL1000_.jpg)
+
+  <!--EndFragment-->
+* ‼️ 50% OFF ‼️
+  👙Plus Size Swimsuit for Women👙
+  🔥  Discount automatically applies at checkout. 🔥
+  https://amzn.to/44tnfqY
+  AD
+
+  ![](img/whatsapp-image-2023-07-04-at-12.23.18-am.jpeg)
+
+
+* 🌺Busy Book for Toddlers🌺
+  ✂️ℂ𝕃𝕀ℙ 50% OFF  ℚℙ𝕆ℕ✂️
+  https://amzn.to/448Xs7I
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81xB437pkWL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🏃‍♀️🏃𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃
+  💦SNUGGLE STOCK UP! 💙⬆️⬆️
+   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  ✂️✂️𝗦&𝗦✂️✂️
+  https://amzn.to/46vHaY4
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81fuU8v2UfL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🏃‍♀️🏃𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃
+  ‼️ 84% OFF ‼️
+  💝Elmer's Liquid School Glue, Washable, 4 Ounces Each, 12 Count - Great for Making Slime💝
+  https://amzn.to/3CYU4Aq
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81ZXoq4mSIL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🎀HOT DEAL🎀
+  👕Under Armour Men's Tech 2.0 Short-sleeve T-shirt 👕
+  https://amzn.to/3CURpYr
+  AD\
+  <!--StartFragment-->
+
+  ![Under Armour Men\&#39;s Tech 2.0 Short-sleeve T-shirt](https://m.media-amazon.com/images/I/41J5w1GvU9L._AC_UX522_.jpg)
+
+  <!--EndFragment-->
+* 🏃‍♀️🏃𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃
+  🌺🌺LOL Surprise OMG House of Surprises Vacay Lounge 🏖 
+  50%OFF
+  https://amzn.to/3NZD6rX
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81DPpxSmjKL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 💝USB WiFi Extender, Covers Up to 2800 Sq.ft, 1-Tap Easy Setup, Alexa Compatible, 2.4GHz💝
+  ✂️ℂ𝕃𝕀ℙ 50% OFF  ℚℙ𝕆ℕ✂️
+  https://amzn.to/3PIYByi
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/51PtQioL8OL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🏃‍♀️🏃𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃
+  💙Dixie Paper Plates, 8 1/2 inch💙
+  ⏫⏫STOCK UP⏫⏫
+  https://amzn.to/3PFXtvn
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/814WEkpf3-L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 💝Adjustable Pet  Hiking Backpack with 4 Side Pockets and Reflective Stripes for a More Secure Design💝
+  ✂️ℂ𝕃𝕀ℙ 50% OFF  ℚℙ𝕆ℕ✂️
+  https://amzn.to/449jEOT
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91QzpZIjS6L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🌟🌟Set of 3 Witches Cauldron Serving Bowls on Rack, Black Plastic Hocus Pocus Candy Bucket🌟🌟
+  ✂️ℂ𝕃𝕀ℙ  ℚℙ𝕆ℕ✂️
+  https://amzn.to/3XCPSiY
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71A--IgBTJL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 💝Calvin Klein Men's Cotton Classics 3-Pack Boxer Brief (3 Black)💝
+  ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  https://amzn.to/3PE98uy
+  AD\
+  <!--StartFragment-->
+
+  ![Calvin Klein Men\&#39;s Cotton Classics 3-Pack Boxer Brief](https://m.media-amazon.com/images/I/41VpcsTTsyL._AC_UX425_.jpg)
+
+  <!--EndFragment-->
