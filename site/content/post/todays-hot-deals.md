@@ -1,6 +1,6 @@
 ---
-title: " HOT DEALS AS ON JULY 2nd"
-date: 2023-07-02T14:18:43.915Z
+title: " HOT DEALS AS ON JULY 3rd"
+date: 2023-07-03T09:40:43.915Z
 tags: Amazon
 Category: home
 description: Hot & trending deals
