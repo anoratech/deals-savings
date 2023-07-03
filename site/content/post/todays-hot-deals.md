@@ -27,10 +27,9 @@ description: Hot & trending deals
   \
 
   ![](https://m.media-amazon.com/images/I/71fCCIo2N6L._AC_SL1500_.jpg)
-* 🌷🌹Area Rugs!! 🌷🌹
-  ‼️50% OFF at Checkout‼️
-  https://amzn.to/46qpnS9
-  AD
+
+
+
 * 🌸🌺🌸Lubriderm Advanced Therapy Fragrance-Free Moisturizing
    Lotion 3pk 🌸🌺🌸
   57%OFF
@@ -55,9 +54,6 @@ description: Hot & trending deals
   \
 
   ![](https://m.media-amazon.com/images/I/717xHg3y0gL._SL1500_.jpg)
-
-  <!--EndFragment-->
-
 * 🎀Cheetos TONOMO Mac & Cheese Bold & Cheesy 5.9oz Boxes
    (Pack of 12)🎀
   ✂️𝗦&𝗦✂️
@@ -103,9 +99,6 @@ description: Hot & trending deals
   \
 
   ![](https://m.media-amazon.com/images/I/61gkcrIBgAL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
-
 * 🏃‍♀️🏃𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃
   🔌🔌 Indoor Extension Cord Power Strip - 6-Foot🔌🔌
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
