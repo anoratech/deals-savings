@@ -8,8 +8,6 @@ image: img/357547674_256639637005707_3850704509019328314_n.jpg
 ---
 u﻿nder $20 
 
-
-
 Backless Maxi Dress
 
 Size s-xxl
@@ -37,5 +35,19 @@ ad
 <!--StartFragment-->
 
 ![May be an image of 1 person](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/357700288_2954492261348971_8219743320220809611_n.jpg?stp=dst-jpg_p526x296&_nc_cat=106&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=7NsDX5ZInl8AX87YrfM&_nc_ht=scontent.fccu31-1.fna&oh=00_AfCTDYI57WCfvGwfSi-z2pmDZwesA2qDxVO7hwEijlnFpg&oe=64A7FFAC)
+
+V Neck Summer Casual Dresses
+
+72% Off
+
+Size s-L
+
+[https://amzn.to/3pAsgPF](https://amzn.to/3pAsgPF?fbclid=IwAR03xmIkr5jw77B1a6316Ia4cJ6kgyimMYkyyU_13Oc1vZV91eea2xWpirk)
+
+11.99XX Only
+
+ad
+
+![May be an image of 1 person](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/357578993_2954489841349213_2796190228045757331_n.jpg?stp=dst-jpg_p526x296&_nc_cat=111&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=vWbZu3aoWiUAX_LF87f&_nc_ht=scontent.fccu31-1.fna&oh=00_AfDTpZOXe_tLYt-b_c9CQctAgPnOYziB6HrDV3DS8yhUyA&oe=64A7D706)
 
 <!--EndFragment-->
