@@ -234,3 +234,16 @@ C﻿ODE: <pre><code class="language-js" data-prismjs-copy="Click to Copy">SV2JH5
   ![Floerns Women\&#39;s Summer Floral Cherry Print A Line Short Cami Dress](https://m.media-amazon.com/images/I/81gWSKmzAnL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ZWRXW Maxi Dresses for Women 2023 Casual Plus Size Floral Print Empire Waist Long Dress Short Sleeve Dress with Pockets\
+  <https://amzn.to/3rb8paj> (AD)\
+  SIZE- S- XXL\
+  PRICE- $11xx ONLY\
+  𝙄𝙛 𝙨𝙚𝙚 𝙩𝙝𝙞𝙨 𝙥𝙤𝙨𝙩 𝙥𝙡𝙚𝙖𝙨𝙚 𝙡𝙞𝙠𝙚👍 𝙣𝙙 𝙘𝙤𝙢𝙢𝙚𝙣𝙩 "𝙮𝙚𝙨" 𝙩𝙝𝙖𝙣𝙠 𝙮𝙤𝙪 😍
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![ZWRXW Maxi Dresses for Women 2023 Casual Plus Size Floral Print Empire Waist Long Dress Short Sleeve Dress with Pockets](https://m.media-amazon.com/images/I/61djlY0qr7S._AC_UX679_.jpg)
+
+  <!--EndFragment-->
