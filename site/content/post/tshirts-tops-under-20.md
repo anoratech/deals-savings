@@ -73,7 +73,7 @@ image: img/3b46e7d6-597d-413f-a4fc-ae46b6776dac-1-.jpg
   https://amzn.to/3NALDjG
   AD\
   around 9.99\
-  C﻿ODE:<pre><code class="language-js" data-prismjs-copy="Click to Copy" MXE33DX6</code></pre>\
+  C﻿ODE:<pre><code class="language-js" data-prismjs-copy="Click to Copy">MXE33DX6</code></pre>\
   <!--StartFragment-->
 
   ![T Shirts for Women Trendy Solid Color V Neck Pleated Short Sleeve Tunic Casual Loose Street Style Blouse Tops](https://m.media-amazon.com/images/I/618oCqxc+XL._AC_UX522_.jpg)
