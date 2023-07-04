@@ -8,16 +8,7 @@ description: |
   🅾🅽 🅳🆁🅾🅿
 image: img/3b46e7d6-597d-413f-a4fc-ae46b6776dac-1-.jpg
 ---
-* 🏃‍♀️🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃‍♀️\
-  👕Womens T Shirts 👕
-  🔥5 0% OFF 🔥🔥
-  Size  S-3XL 
-  https://amzn.to/3NWNxMS
-  AD\
-  8.77 - 9.53\
-  C﻿ODE:<pre><code class="language-js" data-prismjs-copy="Click to Copy">EPOBXL6C</code></pre>\
-  \
-  \
+* D
 
   ![Womens Summer Tops 2023 Womens T Shirts Women\&#39;s Fashion Casual O-Neck Floral Print Pullover Short Sleeve Blouses Tee](https://m.media-amazon.com/images/I/61sAdYQOuqL._AC_UX522_.jpg)
 * \
@@ -151,3 +142,19 @@ image: img/3b46e7d6-597d-413f-a4fc-ae46b6776dac-1-.jpg
   Ad
 
   ![](img/d366c515-47ca-4e39-83a7-c976bf77ab28.jpeg)
+* PRICE DROP
+  https://mavely.app.link/e/jNndr4VXAAb
+  Hanes Women’s Slub Jersey Shirred V-Neck T Shirt
+  AD<!--StartFragment-->
+
+  ![Hanes Women's Slub Jersey Shirred V-Neck T Shirt](https://i5.walmartimages.com/asr/a29ca2be-022e-45a2-ac9a-a7d746b04ca6_1.d7a2597f4a9b4568ce23f99329bbdd41.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+  <!--EndFragment-->
+* https://mavely.app.link/e/hk0mWacYAAb
+  Hanes Women's Long Sleeve V-Neck Tee
+  Now $12.xx only ad<!--StartFragment-->
+
+  ![Hanes Women's Long Sleeve V-Neck Tee](https://i5.walmartimages.com/asr/81ae04b6-542e-40e4-8fa5-d3bbb8e3a7d4.f1fe1bf3572bf7e73de171feebf8b955.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
+  <!--EndFragment-->
+*
