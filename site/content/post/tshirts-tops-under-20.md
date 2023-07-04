@@ -158,19 +158,13 @@ image: img/3b46e7d6-597d-413f-a4fc-ae46b6776dac-1-.jpg
   AD<!--StartFragment-->
 
   ![OQQ Women\&#39;s 3 Piece Tank Tops Ribbed Seamless Workout Exercise Shirts Yoga Crop Tops](https://m.media-amazon.com/images/I/51d6OtIphjL._AC_UY679_.jpg)
-
-  <!--EndFragment-->
 * https://amzn.to/3NQKl56
   ETCYY Womens Cap Sleeve Tops 2023 Trendy Floral Print Summer Tops Loose Fit Lace T Shirts Blouses
   AD<!--StartFragment-->
 
   ![ETCYY Womens Cap Sleeve Tops 2023 Trendy Floral Print Summer Tops Loose Fit Lace T Shirts Blouses](https://m.media-amazon.com/images/I/61Uv5Y+nd9L._AC_UY679_.jpg)
-
-  <!--EndFragment-->
 * https://amzn.to/3PFHz3Y
   Womens Tank Tops Sleeveless Yoga Shirts Summer Tops Loose Fit
   AD<!--StartFragment-->
 
   ![Womens Tank Tops Sleeveless Yoga Shirts Summer Tops Loose Fit Running Athletic Shirts](https://m.media-amazon.com/images/I/61-zY7Mt77L._AC_UY679_.jpg)
-
-  <!--EndFragment-->
