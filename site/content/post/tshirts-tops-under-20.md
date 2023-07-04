@@ -67,8 +67,6 @@ image: img/3b46e7d6-597d-413f-a4fc-ae46b6776dac-1-.jpg
   (AD)<!--StartFragment-->
 
   ![Anbech Women\&#39;s Graphic T-Shirts Tiger Print Short Sleeve Tops Round Neck Casual Summer Tees Shirt](https://m.media-amazon.com/images/I/61goTH2REJL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * 🎀🎀Womens Summer Tops 2023 Casual Dressy Short Sleeve V Neck T Shirts 
   SIZE S- 5XL
   https://amzn.to/44uhh97 
@@ -76,16 +74,12 @@ image: img/3b46e7d6-597d-413f-a4fc-ae46b6776dac-1-.jpg
   $8xx ONLY<!--StartFragment-->
 
   ![Womens Summer Tops 2023 Casual Dressy Short Sleeve V Neck T Shirts Plus Size Floral Shirt Cute Tees Trendy Blouses Tshirt](https://m.media-amazon.com/images/I/71zFfTCjoWL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * 🎯🎯ETCYY Womens Cap Sleeve Tops 
   SIZE S- XXL
   https://amzn.to/44yK2BL (AD) 
   $15xx ONLY<!--StartFragment-->
 
   ![ETCYY Womens Cap Sleeve Tops 2023 Trendy Floral Print Summer Tops Loose Fit Lace T Shirts Blouses](https://m.media-amazon.com/images/I/61Uv5Y+nd9L._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * 🔥🔥Umsuhu Sunshine and Coffee Tank 
   https://amzn.to/44bwmN4 
   SIZE S- XL
@@ -93,8 +87,6 @@ image: img/3b46e7d6-597d-413f-a4fc-ae46b6776dac-1-.jpg
   (AD)<!--StartFragment-->
 
   ![Umsuhu Sunshine and Coffee Tank Casual Summer Graphic Tank Tops for Women Sleeveless Graphic Tank Tops Tee Shirts](https://m.media-amazon.com/images/I/71ongsYDk9L._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * 🚨🚨Just My Size Women's Short Sleeve Shirred V-Neck Tee 
   SIZE S- L
   https://amzn.to/3NE8jiH 
@@ -102,8 +94,6 @@ image: img/3b46e7d6-597d-413f-a4fc-ae46b6776dac-1-.jpg
   (AD)<!--StartFragment-->
 
   ![Just My Size Women\&#39;s Short Sleeve Shirred V-Neck Tee](https://m.media-amazon.com/images/I/61yp2oBglSL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * 💝💝ETCYY Tank Top for Women Summer Tops 
   SIZE S- XXL 
   $18xx ONLY 
@@ -111,5 +101,3 @@ image: img/3b46e7d6-597d-413f-a4fc-ae46b6776dac-1-.jpg
   (AD)<!--StartFragment-->
 
   ![ETCYY Tank Top for Women Summer Tops Loose Fit Cute V Neck Workout Sleeveless Floral Printed T Shirts](https://m.media-amazon.com/images/I/71t+Hz3-8GL._AC_UY879_.jpg)
-
-  <!--EndFragment-->
