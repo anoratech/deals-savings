@@ -1,5 +1,5 @@
 ---
-title: "TPDAYS HOT DEALS "
+title: "TODAYS HOT DEALS "
 date: 2023-07-05T08:56:38.983Z
 tags: Amazon
 Category: OTHERS
