@@ -90,7 +90,7 @@ description: AS ON JULY 5th
 
   Owala FreeSip Insulated Stainless Steel Water Bottle with Straw for Sports and Travel, BPA-Free, 24-oz, Blue/Teal (Denim)
 
-  ![👍](https://static.xx.fbcdn.net/images/emoji.php/v9/tfc/1/16/1f44d.png)![👍](https://static.xx.fbcdn.net/images/emoji.php/v9/tfc/1/16/1f44d.png)AD
+  AD
 
   <!--EndFragment--><!--StartFragment-->
 
@@ -103,7 +103,7 @@ description: AS ON JULY 5th
 
   ░P░R░I░C░E░ ░D░R░O░P░
 
-  ![😎](https://static.xx.fbcdn.net/images/emoji.php/v9/t83/1/16/1f60e.png)![😎](https://static.xx.fbcdn.net/images/emoji.php/v9/t83/1/16/1f60e.png)Crocs Unisex-Adult Classic Clogs![🏃‍♀️](https://static.xx.fbcdn.net/images/emoji.php/v9/ta9/1/16/1f3c3_200d_2640.png)![🏃‍♀️](https://static.xx.fbcdn.net/images/emoji.php/v9/ta9/1/16/1f3c3_200d_2640.png)
+  Crocs Unisex-Adult Classic Clogs
 
   <!--EndFragment--><!--StartFragment-->
 
@@ -114,13 +114,13 @@ description: AS ON JULY 5th
 
   [https://amzn.to/3rjyTGI](https://l.facebook.com/l.php?u=https%3A%2F%2Famzn.to%2F3rjyTGI%3Ffbclid%3DIwAR0qvnyx6b9WxZ7HygxnFPvlGcwoi0Z5gyr7IOav10ByZYtIxc01Ri8sa5U&h=AT00SdMCGVH-jXhFAyOI50AIJJWXySVuuP1pfSgfn7kMtjh5uwQczTLDb0NPyjAi2yt2Mj3cMkO4zOpwMMYkmhjTebI9pp2ax_WlpqgYPe9xDP9oe5Xem5jc6fejgaI_RNGeLuCQdrNc0v552olf&__tn__=-UK-R&c[0]=AT3dBJtUJ8Bkj4fo0cNE_pkpfn_amgvVqmeguJnpi1hAI7gmmlkkEfgQMEwj5XrFSVN3D4cZRIT71fsrzee8KFMcbW9UpGyLonp4Siv11doM_gEFa5gRoc6wWFyRJ6tjQkqz31niK4hBtnyuwELYKqpnxV92qwj_20QUoe8)
 
-  ₵Ⱡł₱ QɄ₱Ø₦ ![🥳](https://static.xx.fbcdn.net/images/emoji.php/v9/t6d/1/16/1f973.png)![🥳](https://static.xx.fbcdn.net/images/emoji.php/v9/t6d/1/16/1f973.png)
+  ₵Ⱡł₱ QɄ₱Ø₦ 
 
   Hefty Paper Disposable Hot Cups with Lids
 
   Subscribe and save
 
-  ![👍](https://static.xx.fbcdn.net/images/emoji.php/v9/tfc/1/16/1f44d.png)![👍](https://static.xx.fbcdn.net/images/emoji.php/v9/tfc/1/16/1f44d.png)AD
+  AD
 
   <!--EndFragment--><!--StartFragment-->
 
@@ -131,7 +131,7 @@ description: AS ON JULY 5th
 
   [https://amzn.to/3XHEthZ](https://amzn.to/3XHEthZ?fbclid=IwAR3jXVLOw_TVfogDcovBL8T1JlUoZUC7hYyCloxs1pNMSPqACQ9OQ5qppfI)
 
-  ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)₵Ⱡł₱ QɄ₱Ø₦ ![🥳](https://static.xx.fbcdn.net/images/emoji.php/v9/t6d/1/16/1f973.png)![🥳](https://static.xx.fbcdn.net/images/emoji.php/v9/t6d/1/16/1f973.png)
+  ₵Ⱡł₱ QɄ₱Ø₦ 
 
   DAILY DOSE Miracle Moisture Spray Leave-In Hair Conditioner
 
@@ -150,9 +150,9 @@ description: AS ON JULY 5th
 
   Melissa & Doug Wooden Train Cars
 
-  ![🤠](https://static.xx.fbcdn.net/images/emoji.php/v9/tcf/1/16/1f920.png)![🤠](https://static.xx.fbcdn.net/images/emoji.php/v9/tcf/1/16/1f920.png) 40% OFF![😎](https://static.xx.fbcdn.net/images/emoji.php/v9/t83/1/16/1f60e.png)![😎](https://static.xx.fbcdn.net/images/emoji.php/v9/t83/1/16/1f60e.png)
+  40% OFF
 
-  ![👍](https://static.xx.fbcdn.net/images/emoji.php/v9/tfc/1/16/1f44d.png)![👍](https://static.xx.fbcdn.net/images/emoji.php/v9/tfc/1/16/1f44d.png)AD
+  AD
 
   <!--EndFragment--><!--StartFragment-->
 
@@ -163,11 +163,11 @@ description: AS ON JULY 5th
 
   [https://amzn.to/46sG3s2](https://amzn.to/46sG3s2?fbclid=IwAR3fTUStwqOyZi2AOfut1zGasUi0xNAnIBEGfIyC061T7AK9lr39xT1umts)
 
-  ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)₵Ⱡł₱ QɄ₱Ø₦ ![🥳](https://static.xx.fbcdn.net/images/emoji.php/v9/t6d/1/16/1f973.png)![🥳](https://static.xx.fbcdn.net/images/emoji.php/v9/t6d/1/16/1f973.png)
+  ₵Ⱡł₱ QɄ₱Ø₦ 
 
   Taco vs Burrito Game
 
-  ![👍](https://static.xx.fbcdn.net/images/emoji.php/v9/tfc/1/16/1f44d.png)![👍](https://static.xx.fbcdn.net/images/emoji.php/v9/tfc/1/16/1f44d.png)AD
+  AD
 
   <!--EndFragment--><!--StartFragment-->
 
