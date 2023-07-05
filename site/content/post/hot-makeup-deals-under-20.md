@@ -3,7 +3,7 @@ title: HOT MAKEUP DEALS UNDER 20
 date: 2023-07-05T07:30:06.945Z
 tags: AMAZON
 Category: MAKEUP
-description: Finde great deals of makeup under 20
+description: Find great deals of makeup under 20
 image: img/whatsapp-image-2023-07-05-at-1.27.36-pm.jpeg
 ---
 * 🏃‍♀️🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃‍♀️
