@@ -241,3 +241,10 @@ description: HOT HOME AND OTHER DEALS ON 5TH JULY
   (AD)\
   \
   ♻️ 𝔸𝕤 𝕒𝕟 𝔸𝕤𝕤𝕠𝕔𝕚𝕒𝕥𝕖, 𝕀 𝕖𝕒𝕣𝕟 𝕗𝕣𝕠𝕞 𝕢𝕦𝕒𝕝𝕚𝕗𝕪𝕚𝕟𝕘 𝕡𝕦𝕣𝕔𝕙𝕒𝕤𝕖
+* Douglas All-Season 215/70R15 98T All-Season Tire 💲59 reg 103
+
+  https://mavely.app.link/e/ZKmRkA48bBb
+
+  ad
+
+  ![Douglas All-Season 215/70R15 98T All-Season Tire](https://i5.walmartimages.com/asr/a6631371-4b67-42b9-9b9d-6fb39fe627eb.0ab8244c0094fc2814ed2482dd3ee7f5.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
