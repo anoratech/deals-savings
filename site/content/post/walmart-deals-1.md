@@ -213,3 +213,12 @@ description: HOT HOME AND OTHER DEALS ON 5TH JULY
   https://mavely.app.link/e/tbzoe1mHbBb
 
   (AD)
+* 𝘾𝙤𝙨𝙩𝙬𝙖𝙮 15 𝘿𝙧𝙖𝙬𝙚𝙧 𝙍𝙤𝙡𝙡𝙞𝙣𝙜 𝙎𝙩𝙤𝙧𝙖𝙜𝙚 𝘾𝙖𝙧𝙩 𝙏𝙤𝙤𝙡𝙨
+
+  🅿🆁🅸🅲🅴 🅳🆁🅾🅿 
+   #🆆🅰🅻🅼🅰🆁🆃 💲69.99 (REG- 💲118)
+
+  👉👉𝓕𝓸𝓵𝓵𝓸𝔀 𝓶𝓮 𝓪𝓷𝓭 𝓷𝓮𝓿𝓮𝓻 𝓶𝓲𝓼𝓼 𝓪 𝓭𝓮𝓪𝓵! 
+  https://mavely.app.link/e/fqSXhMXHTxb
+
+  AD
