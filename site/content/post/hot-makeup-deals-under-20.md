@@ -94,3 +94,13 @@ image: img/whatsapp-image-2023-07-05-at-1.27.36-pm.jpeg
   ad
 
   ![](img/b7dfb872-bafa-4898-a6e4-37391174de32.jpeg)
+
+  L'Oreal Paris Makeup True Match Lumi Glotion
+
+  Price drop
+
+  https://amzn.to/3D0jaPf
+
+  ad
+
+  ![](img/8b6a14e1-dde0-4985-be2f-77d6b021fa32.jpeg)
