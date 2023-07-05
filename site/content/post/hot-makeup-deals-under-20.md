@@ -11,21 +11,15 @@ image: img/whatsapp-image-2023-07-05-at-1.27.36-pm.jpeg
   💸ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ💸
   https://amzn.to/3PIThev
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61ndiM-OmKL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * 🏃‍♀️🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃‍♀️
   🌹FANS·JY Makeup Brush Cleaner🌹
   ✂️ℂ𝕃𝕀ℙ  50% OFF ℚℙ𝕆ℕ✂️
   https://amzn.to/3O33bq8
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61bWMe5L+TL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * 🏃‍♀️🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃‍♀️
   🔥 5 0 % O F F! 🔥
   🌸🌺CAFINY 360 Rotating Makeup Brush Holder Organizer🌸🌺
@@ -33,38 +27,25 @@ image: img/whatsapp-image-2023-07-05-at-1.27.36-pm.jpeg
   AD\
   C﻿ODE:<pre><code class="language-js" data-prismjs-copy="Click to Copy">508D7MQK </code></pre>\
   \
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/51dicyUKdsL._AC_SL1024_.jpg)
-
-  <!--EndFragment-->
 *
 * 🏃‍♀️🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃‍♀️
   💅Essie Gel Setter Longwear & Shine Color Kit💅
   https://amzn.to/3NA1iQd
   AD\
-  <!--StartFragment-->
-
 
   ![](https://m.media-amazon.com/images/I/61PH-PHTa7L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * ‼ 9 0 % OFF ‼
   🌹9 Color Matte Liquid Eyeliner🌹
   https://amzn.to/3D1SLAs
   AD\
   C﻿ODE:<pre><code class="language-js" data-prismjs-copy="Click to Copy">4NDWW8DU</code></pre>\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71VdfjdyB6L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * ‼RUNNN‼ 🏃‍♀️🏃‍♀️🔥🔥
   Please drop a ❤️ if this deal works for you 🥰
   https://amzn.to/44xHGmK
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81jLj9+6pWL._SL1500_.jpg)
-
-  <!--EndFragment-->
