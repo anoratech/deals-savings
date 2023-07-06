@@ -1,5 +1,5 @@
 ---
-title: "WALMART DEALS AS ON 5TH JULY "
+title: "WALMART DEALS AS ON JULY "
 date: 2023-07-05T10:52:05.003Z
 tags: Walmart
 Category: Others
