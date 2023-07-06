@@ -244,3 +244,11 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![](https://m.media-amazon.com/images/I/71zA8kNN8aL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* (っ◔◡◔)っ ♥ PRICE DROP ♥
+  https://amzn.to/3rmmbXp
+  KitchenAid Classic Pizza Wheel, 9-Inch, Black
+  AD<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61zsVzkFqAL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
