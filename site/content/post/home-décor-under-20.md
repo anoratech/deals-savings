@@ -96,43 +96,32 @@ https://amzn.to/44BMZBz
   ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
   https://amzn.to/3O2bmCP
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81j1CeSYPXL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 🌟20 Pcs Eucalyptus for Shower Hanging Dried Eucalyptus Stems 17🌟
   ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
   https://amzn.to/43jHfep
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/813dmIwc7mL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 🐢🐢Sea Turtle Yoga Figurines Decorations, 2 PCS🐢🐢
   https://amzn.to/3JM0CWV
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71xvgOVbxsL._AC_SL1386_.jpg)
-
-  <!--EndFragment-->
 * 🌸Wemk Pampas Grass with Vase🌸
   ‼️NO CODE NEEDED ‼️
   https://amzn.to/3O3mBLa
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71-lmsqzzWL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 🌟Small Table Lamp for Bedroom 🌟
   ‼️NO CODE NEEDED ‼️
   https://amzn.to/3D3iyIO
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71lGuLtZqcL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
+* 🅾🅽 🅳🆁🅾🅿 
+  Ultra Soft Indoor Modern Area Rugs\
+  https://amzn.to/44wOzVf 
+  (AD)
