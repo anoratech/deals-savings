@@ -305,3 +305,12 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![Hanes Originals Boys Boxer Briefs, Moisture-Wicking Cotton Stretch Underwear, Assorted 5-Pack](https://m.media-amazon.com/images/I/81UW5koBIWL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* 🔥🔥𝙀𝘼𝙍𝙇𝙔 𝙋𝙍𝙄𝙈𝙀 𝘿𝘼𝙔 𝘿𝙀𝘼𝙇
+  🤩🤩𝐇𝐀𝐋𝐅 𝐎𝐅𝐅
+  All-new Ring Indoor Cam (2nd Gen)
+  https://amzn.to/3NHWND0
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/51tr8eAgUmL._SL1000_.jpg)
+
+  <!--EndFragment-->
