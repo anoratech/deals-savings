@@ -10,89 +10,65 @@ description: HOT HOME AND OTHER DEALS ON 6TH JULY
   iPhone Charger, 5Pack 10/6/3ft Fast Charging Lightning Cable Compatible with iPhone 14
   https://shopstyle.it/l/bYjdJ
   AD\
-  <!--StartFragment-->
 
   ![GREPHONE iPhone Charger, 5Pack 10/6/3ft Fast Charging Lightning Cable Compatible with iPhone 14](https://i5.walmartimages.com/asr/d093625b-07f5-45ff-93d0-6f430af003c5.99f05485c5ec4b4492e571ecfbea272b.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now $85.99 was $175.00
   Costway 10' Hanging Solar LED Umbrella Patio Sun Shade Offset Market W/Base Tan
   https://shopstyle.it/l/bYjec
   AD\
-  <!--StartFragment-->
 
   ![Costway 10' Hanging Solar LED Umbrella Patio Sun Shade Offset Market W/Base Tan](https://i5.walmartimages.com/asr/536cbebc-650c-4279-bc66-4b7f57b0ab39.1f5b4f998e03a1d55d1062f6ec1f9b09.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now $16.00 was $30.00 
   💙Floret Transitional Indoor/Outdoor Accent Rug, 2' x 3', Blue💙
   https://shopstyle.it/l/bYjff
   AD\
-  <!--StartFragment-->
 
   ![nuLOOM Floret Transitional Indoor/Outdoor Accent Rug, 2' x 3', Blue](https://i5.walmartimages.com/asr/90b933d2-e48d-45b3-b5a4-a1d2d4207870.716112fb3455826e9944bad64735ab73.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now $72.99 was $106.00 
   3-in-1 Portable Evaporative Air Cooler Fan Humidify with Filter Knob for Indoor
   https://shopstyle.it/l/bYjfk
   AD\
-  <!--StartFragment-->
 
   ![Costway 3-in-1 Portable Evaporative Air Cooler Fan Humidify with Filter Knob for Indoor](https://i5.walmartimages.com/asr/d5acc228-fc12-4304-9c31-4dcf9882aabc_1.6ac932778f78fb98a6b0e95e0fd271b6.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   $209.98 (REG $299.99)
   Easyfashion Tub Chair, Set of 2, Gray Faux Leather
   https://shopstyle.it/l/bYjfT
   AD\
-  <!--StartFragment-->
 
   ![Easyfashion Tub Chair, Set of 2, Gray Faux Leather](https://i5.walmartimages.com/asr/2ec16675-6dc2-4ccd-9dfd-c3245b3f7ce9.2241ccf278899ff26a457d21c58132e5.png?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now $8.88 (REG. $16.07) 🔥🔥
   Coleman Citronella Candle Outdoor Lantern - 70+ Hours, 6.7 Ounce
   https://shopstyle.it/l/bYjfY
   AD\
-  <!--StartFragment-->
 
   ![Coleman Citronella Candle Outdoor Lantern - 70+ Hours, 6.7 Ounce](https://i5.walmartimages.com/asr/642b1657-4755-43ff-bd95-a208c046feb2.74469d9ea2a13cb300b469c905a9f2fb.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now $449.99 was $559.99
   🌟🌟Gymax 8-Piece Patio Rattan Outdoor Furniture Set with Cushioned Chair Loveseat Table in Brown🌟🌟https://shopstyle.it/l/bYjhy
   AD\
-  <!--StartFragment-->
 
   ![Gymax 8-Piece Patio Rattan Outdoor Furniture Set with Cushioned Chair Loveseat Table in Brown](https://i5.walmartimages.com/asr/f0bd4746-7255-4289-95c2-124e29b681fe_1.e0cdef29689601e7a5573fa9ee8637c5.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
-*  WALMART                                                                                                                                                                                                                                                                                                                                                Now $69.99 was $159.99
+* WALMART                                                                                                                                                                                                                                                                                                                                                Now $69.99 was $159.99
   ‼️6 Tier Bamboo Tower, 63.4''H Free Standing‼️                                \
   https://shopstyle.it/l/bYjjY
   AD\
-  <!--StartFragment-->
 
   ![Homfa 6 Tier Bamboo Tower, 63.4''H Free Standing Storage Shelf, Plant Organizer Unit, Nature Finish](https://i5.walmartimages.com/asr/fe069f46-661a-40f2-b8fc-ff31ff3797ea.b62701485d9382c9c4ce7fb257606c59.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
   <!--EndFragment-->
+
 * WALMART\
   Now $145.99 was $169.99
   ✨🌟LED Nightstand Set of 2, Modern Bedside Table with 2 Drawers Storage Space, Adjustable Colors LED Light, Gray🌟✨🌟
   https://shopstyle.it/l/bYjoL
   AD\
-  <!--StartFragment-->
 
   ![LED Nightstand Set of 2, Modern Bedside Table with 2 Drawers Storage Space, Adjustable Colors LED Light, Gray](https://i5.walmartimages.com/asr/5d555067-e29c-4b1b-9c17-a90e3b02715a.516bf24db209a9d92173377aaf7d29a0.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART 
   Home Edit Storage containers still on sale 🎉
   https://shopstyle.it/l/bYjDu
@@ -104,11 +80,8 @@ description: HOT HOME AND OTHER DEALS ON 6TH JULY
   QFX PBX-8074 8-inch, Portable Party Bluetooth Loudspeaker with Microphone & Remote, Black
   https://shopstyle.it/l/bYjDE
   AD\
-  <!--StartFragment-->
 
   ![QFX PBX-8074 8-inch, Portable Party Bluetooth Loudspeaker with Microphone & Remote, Black](https://i5.walmartimages.com/asr/5d9a0c9d-d364-4363-9d14-03b27f18e3f8.6a744fcf7dca08b9e07dbf2aa23f25e6.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART 
   Electronics Deals - Walmart 
   Over 800 items markdowm!!!
