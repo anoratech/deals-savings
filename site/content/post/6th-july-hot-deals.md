@@ -339,3 +339,10 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![](https://m.media-amazon.com/images/I/81CvJCT1sTL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ↪️↪️P̷R̷I̷C̷E̷ ̷D̷R̷O̷P̷ ⏬⏬
+   25" Table Lamp 🪔
+  https://amzn.to/3PKANtP (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/414aImrfyIL._AC_SL1000_.jpg)
+
+  <!--EndFragment-->
