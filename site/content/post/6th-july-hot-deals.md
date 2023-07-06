@@ -276,3 +276,13 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![](https://m.media-amazon.com/images/I/71fYdkAZLML._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* RUNNNN 🏃🏃
+  DROP ⏬⏬
+  Scotch Super Glue Gel
+  https://amzn.to/44bo4VG
+
+  AD<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91tIIlKZN0L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
