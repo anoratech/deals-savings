@@ -268,3 +268,11 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![](https://m.media-amazon.com/images/I/81giq4giGAL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ✂️✂️Use COUPON ✂️✂️
+  Duracell Coppertop AAA Batteries
+  https://amzn.to/3rj9SLK
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71fYdkAZLML._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
