@@ -378,3 +378,10 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![](https://m.media-amazon.com/images/I/91AHIdssQvL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 🅾🅽 🅳🆁🅾🅿
+  PNY 256GB Turbo Attache 3 USB 3.0 Flash Drive
+  https://amzn.to/46NO8rE (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/51sEnolmbOL._AC_SL1000_.jpg)
+
+  <!--EndFragment-->
