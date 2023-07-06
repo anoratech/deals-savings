@@ -297,3 +297,11 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![](https://m.media-amazon.com/images/I/51bbMq2vAnL._AC_SL1001_.jpg)
 
   <!--EndFragment-->
+* Under 9️⃣ bucks 
+  https://amzn.to/44cZWC0 
+  Hanes Originals Boys Boxer Briefs Pack of 5️⃣
+  AD<!--StartFragment-->
+
+  ![Hanes Originals Boys Boxer Briefs, Moisture-Wicking Cotton Stretch Underwear, Assorted 5-Pack](https://m.media-amazon.com/images/I/81UW5koBIWL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
