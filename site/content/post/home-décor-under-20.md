@@ -4,6 +4,7 @@ date: 2023-07-06T06:49:34.090Z
 tags: "walmart "
 Category: "home décor "
 description: "follow for more "
+image: img/download.png
 ---
 Owl Statue for Home Decor
 
