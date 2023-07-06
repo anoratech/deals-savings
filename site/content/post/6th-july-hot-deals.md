@@ -194,16 +194,12 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81KIyajwijL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ‼️🔥քʀɨƈɛ ɖʀօք ‼️‼️
   Hot Wheels Rc Space Ranger Jetpack & Buzz Lightyear Figure
   https://amzn.to/3rce53H
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61Ae6uSuv2L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ⬇️‼️PRICE DOWN 🔽🔽
   GRAB THIS FOR HIM 🤩
   https://amzn.to/3CYeyJw 
@@ -211,71 +207,53 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   Under Armour Men's Tech 2.0 1/2 Zip<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/719IOsyqzYL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ↘️↘️𝕊𝕄𝔸𝕃𝕃 𝔻ℝ𝕆ℙ ♦️♦️
   Washing Machine Cleaner Descaler 24 Pack
   https://amzn.to/44etL50 
   AD<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/817HOi9iSjL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * GRAN THIS FOR LITTLE ONE 😍😍
   💕💕Funko Dr. Seuss Thing 1 and Thing 2 Where are You? Game
   https://amzn.to/44xO7pO (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61Yivge7lSL._AC_SL1200_.jpg)
-
-  <!--EndFragment-->
 * CoComelon 51-piece Classic ABC Wooden Block Set
   🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳
   https://amzn.to/3NFQZKv
   AD<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81W88i6P7DL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Under Sink Organizer - 2 Tier
   ‼️‼️PROCE DOWN ⬇️⬇️
   https://amzn.to/3O2GQJe 
   AD<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71zA8kNN8aL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * (っ◔◡◔)っ ♥ PRICE DROP ♥
   https://amzn.to/3rmmbXp
   KitchenAid Classic Pizza Wheel, 9-Inch, Black
   AD<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61zsVzkFqAL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * PRICE DROP 🔽🔽
   💕💕ℍ𝕠𝕞𝕒𝕩𝕪 𝟙𝟘𝟘% ℂ𝕠𝕥𝕥𝕠𝕟 𝕎𝕒𝕗𝕗𝕝𝕖 𝕎𝕖𝕒𝕧𝕖 𝕂𝕚𝕥𝕔𝕙𝕖𝕟 𝔻𝕚𝕤𝕙 ℂ𝕝𝕠𝕥𝕙𝕤
 
   https://amzn.to/3NHX7lc (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81YlKeBDwML._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * HI 5️⃣ DEAL 
   Creative Roots Mosaic Heart Stepping Stone
   https://amzn.to/3pywhUP 
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81giq4giGAL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ✂️✂️Use COUPON ✂️✂️
   Duracell Coppertop AAA Batteries
   https://amzn.to/3rj9SLK
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71fYdkAZLML._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * RUNNNN 🏃🏃
   DROP ⏬⏬
   Scotch Super Glue Gel
@@ -284,8 +262,6 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   AD<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/91tIIlKZN0L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 🔽🔽NO CODE NEEDED 🚫🚫
   𝐒𝐚𝐯𝐞 𝐨𝐧 𝐒𝐭𝐨𝐫𝐚𝐠𝐞 & 𝐎𝐫𝐠𝐚𝐧𝐢𝐳𝐚𝐭𝐢𝐨𝐧
   https://amzn.to/3D7NY0l (Ad)
@@ -295,16 +271,12 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/51bbMq2vAnL._AC_SL1001_.jpg)
-
-  <!--EndFragment-->
 * Under 9️⃣ bucks 
   https://amzn.to/44cZWC0 
   Hanes Originals Boys Boxer Briefs Pack of 5️⃣
   AD<!--StartFragment-->
 
   ![Hanes Originals Boys Boxer Briefs, Moisture-Wicking Cotton Stretch Underwear, Assorted 5-Pack](https://m.media-amazon.com/images/I/81UW5koBIWL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * 🔥🔥𝙀𝘼𝙍𝙇𝙔 𝙋𝙍𝙄𝙈𝙀 𝘿𝘼𝙔 𝘿𝙀𝘼𝙇
   🤩🤩𝐇𝐀𝐋𝐅 𝐎𝐅𝐅
   All-new Ring Indoor Cam (2nd Gen)
@@ -312,8 +284,6 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/51tr8eAgUmL._SL1000_.jpg)
-
-  <!--EndFragment-->
 * 💕𝗘𝗔𝗥𝗟𝗬 𝗣𝗥𝗜𝗠𝗘 𝗗𝗔𝗬 𝗗𝗘𝗔𝗟🔥🔥
   ‼️🏵️𝒫𝑅𝐼𝒞𝐸𝒟𝑅𝒪𝒫‼️‼️
   Blink Mini – Compact indoor plug-in smart security camer 📸
@@ -321,70 +291,52 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/51nZZn3MymL._SL1000_.jpg)
-
-  <!--EndFragment-->
 * 🏃🏃ℍ𝕌𝔾𝔼 𝔻ℝ𝕆ℙ‼️⏬
   https://amzn.to/3JMBTS3
   Arctix Kids Snow Pants 
   AD<!--StartFragment-->
 
   ![Arctix Kids Snow Pants with Reinforced Knees and Seat](https://m.media-amazon.com/images/I/81b84CYjr6L._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * ‼️‼️GRAB THIS WITH GREAT DROP 🔽🔽
   👰Precious Moments Perfect Couple Bride
   https://amzn.to/3rmjq8v 
   AD<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81CvJCT1sTL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ↪️↪️P̷R̷I̷C̷E̷ ̷D̷R̷O̷P̷ ⏬⏬
    25" Table Lamp 🪔
   https://amzn.to/3PKANtP (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/414aImrfyIL._AC_SL1000_.jpg)
-
-  <!--EndFragment-->
 * Disney Doorables Pixar Fest Collection Peek
   ⏬⏬GREAT PRICE DROP ‼️💧
   https://amzn.to/44ou7G2 
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/811-MnvR37L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * OMG😱
   🄷🅄🄶🄴 🄳🅁🄾🄿
   💕🏵️adidas Girls' Cotton Fleece Joggers
   https://amzn.to/3rel8Jk (Ad)<!--StartFragment-->
 
   ![adidas Girls\&#39; Cotton Fleece Joggers](https://m.media-amazon.com/images/I/71cnhOGxUqL._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * 🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳
   Fire Pit🔥🔥
   https://amzn.to/46FxF8D 
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/91xpkakyODL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ⬇️⬇️ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ‼️‼️
   https://amzn.to/3O2uhxx 
   Sofa Armrest Storage Organizer with 6 Pockets 
   AD<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/91AHIdssQvL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 🅾🅽 🅳🆁🅾🅿
   PNY 256GB Turbo Attache 3 USB 3.0 Flash Drive
   https://amzn.to/46NO8rE (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/51sEnolmbOL._AC_SL1000_.jpg)
-
-  <!--EndFragment-->
 * OMG 😱😱 RUNNNN 🏃🏃
   😍😍Pioneer Photo Albums I-46B/OB 36-Pocket Baby Owl Designer
   https://amzn.to/3rg7HIG (Ad)
@@ -393,12 +345,8 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   https://amzn.to/44yVrBg (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71+QgRFScDL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * OMG 😱😱 RUNNNN 🏃🏃
   😍😍Pioneer Photo Albums I-46B/OB 36-Pocket Baby Owl Designer
   https://amzn.to/3rg7HIG (Ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81ByqrB9WRL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
