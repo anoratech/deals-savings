@@ -323,3 +323,11 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![](https://m.media-amazon.com/images/I/51nZZn3MymL._SL1000_.jpg)
 
   <!--EndFragment-->
+* 🏃🏃ℍ𝕌𝔾𝔼 𝔻ℝ𝕆ℙ‼️⏬
+  https://amzn.to/3JMBTS3
+  Arctix Kids Snow Pants 
+  AD<!--StartFragment-->
+
+  ![Arctix Kids Snow Pants with Reinforced Knees and Seat](https://m.media-amazon.com/images/I/81b84CYjr6L._AC_UY741_.jpg)
+
+  <!--EndFragment-->
