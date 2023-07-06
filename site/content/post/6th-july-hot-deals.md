@@ -354,3 +354,11 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![](https://m.media-amazon.com/images/I/811-MnvR37L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* OMG😱
+  🄷🅄🄶🄴 🄳🅁🄾🄿
+  💕🏵️adidas Girls' Cotton Fleece Joggers
+  https://amzn.to/3rel8Jk (Ad)<!--StartFragment-->
+
+  ![adidas Girls\&#39; Cotton Fleece Joggers](https://m.media-amazon.com/images/I/71cnhOGxUqL._AC_UY741_.jpg)
+
+  <!--EndFragment-->
