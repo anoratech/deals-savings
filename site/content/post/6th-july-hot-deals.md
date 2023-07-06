@@ -5,12 +5,131 @@ tags: Amazon
 Category: Others
 description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
 ---
-* 62%OFF
-  💡💡SYLVANIA A19 Ultra LED Light Bulbs💡💡
-   https://amzn.to/3JJK9Ct
+* 👟DREAM PAIRS Girls Sneakers 👟
+  ✂️ℂ𝕃𝕀ℙ 40% OFF ℚℙ𝕆ℕ✂️
+   https://amzn.to/46u41TM
   AD\
+  <!--StartFragment-->
 
-  ![](https://m.media-amazon.com/images/I/81q62Il2oUL._AC_SL1500_.jpg)
+  ![DREAM PAIRS Girls Sneakers High Top Casual Little Kids Glitter Walking Shoes Fashion Boot](https://m.media-amazon.com/images/I/81XTgKgfayL._AC_UY500_.jpg)
+
+  <!--EndFragment-->
+* 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
+  75%OFF
+   ♠️♥️♣️Little Hands Playing Card Holder!! ♠️♣️♥️ 
+  https://amzn.to/46PnDSL
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71bfT3UaUKL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🎀🎀 Sonic The Hedgehog 2.5-Inch Action Figure Diorama Set!!🎀🎀
+  ‼️NO CODE NEEDED ‼️
+   https://amzn.to/3pA5KGy
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81Eivs03rxL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+*  🎀NERF Super Soaker Stormforce Ride-On Racer!! 🎀
+  ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+   https://amzn.to/44xraCZ
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81zQoOSB9CL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+*  🎀Sherpa Fleece Throw Blanket 🎀
+  ✂️ℂ𝕃𝕀ℙ 50% OFF ℚℙ𝕆ℕ✂️
+  https://amzn.to/3JNm7GK
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/818BRJgKL5L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+*  Women's Cold Shoulder Tunic Top T-Shirt Swing Dress with Pockets!!  \
+  https://amzn.to/3PEa5mO
+  AD\
+  <!--StartFragment-->
+
+  ![OFEEFAN Women\&#39;s Cold Shoulder Tunic Top T-Shirt Swing Dress with Pockets](https://m.media-amazon.com/images/I/51zaouNQ9NL._AC_UY500_.jpg)
+
+  <!--EndFragment-->
+*
+*
+*
+* 📽️ 5G WiFi Projector with Bluetooth!! 📽️
+  ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
+   https://amzn.to/44b50Xx
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71yhZf1RBOL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+*  🔪10 Piece Kids Kitchen Knife Set!! 🔪
+  ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
+   https://amzn.to/3CZub38
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71MdVGedxrL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+*  🌺🌸Playtex Women's 18-Hour Ultimate Lift Wireless Full-Coverage Bra!! 🌸🌺
+  67%OFF
+   https://amzn.to/3PNIxeH
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81TaqJNEFlS._AC_UX522_.jpg)
+
+  <!--EndFragment-->
+*  🍳BELLA Nonstick Cookware Set with Glass Lids!!🍳
+  ‼️NO CODE NEEDED ‼️
+  https://amzn.to/43dgb0s 
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81uEPQAsXPL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🎀 Knitted Throw Blanket 🎀
+   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
+   https://amzn.to/44aBzoD
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81B6TKMCg5S._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
+  🌟 Instant Read Food Thermometer🌟
+  ‼️NO CODE NEEDED ‼️
+  https://amzn.to/3NILyKR
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71ONRyQDImL._SL1500_.jpg)
+
+  <!--EndFragment-->
+
+62%OFF
+💡💡SYLVANIA A19 Ultra LED Light Bulbs💡💡
+ https://amzn.to/3JJK9Ct
+AD\
+
+![](https://m.media-amazon.com/images/I/81q62Il2oUL._AC_SL1500_.jpg)
+
+
+
 * 70%OFF
    👡Women's Tango Sandals 👡 \
   https://amzn.to/46z6BrJ
