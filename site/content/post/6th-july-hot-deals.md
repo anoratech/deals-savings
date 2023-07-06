@@ -331,3 +331,11 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![Arctix Kids Snow Pants with Reinforced Knees and Seat](https://m.media-amazon.com/images/I/81b84CYjr6L._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* ‼️‼️GRAB THIS WITH GREAT DROP 🔽🔽
+  👰Precious Moments Perfect Couple Bride
+  https://amzn.to/3rmjq8v 
+  AD<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81CvJCT1sTL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
