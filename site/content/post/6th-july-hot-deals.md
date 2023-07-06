@@ -314,3 +314,12 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![](https://m.media-amazon.com/images/I/51tr8eAgUmL._SL1000_.jpg)
 
   <!--EndFragment-->
+* 💕𝗘𝗔𝗥𝗟𝗬 𝗣𝗥𝗜𝗠𝗘 𝗗𝗔𝗬 𝗗𝗘𝗔𝗟🔥🔥
+  ‼️🏵️𝒫𝑅𝐼𝒞𝐸𝒟𝑅𝒪𝒫‼️‼️
+  Blink Mini – Compact indoor plug-in smart security camer 📸
+  https://amzn.to/3pAWnXg 
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/51nZZn3MymL._SL1000_.jpg)
+
+  <!--EndFragment-->
