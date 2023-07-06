@@ -74,8 +74,6 @@ ad
 
 <!--EndFragment--> 
 
-
-
 * ✂️✂️USE C-O-U-P-O-N ✂️✂️
 
 Sunflower Wooden Door Decorations﻿
@@ -88,28 +86,53 @@ https://amzn.to/44BMZBz
   https://amzn.to/3pv9Kbw
   (AD) 
   Love and Shenanigans Hanging Home Wall 🛑
-
-
 * 🚫🚫NO CODE NEEDED 🚫🚫
   $18xx ONLY 
   Wemk Pampas Grass with Vase Included
   https://amzn.to/3XDexUE
   AD
-* <!--StartFragment-->
+* 50%OFF
+  TWINNIS Super Soft Shaggy Rugs Fluffy Carpets
+  ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
+  https://amzn.to/3O2bmCP
+  AD\
+  <!--StartFragment-->
 
-  ‼️‼️𝓟𝓡𝓘𝓒𝓔 𝓓𝓡𝓞𝓟 ‼️‼️\
-  $10xx ONLY\
-  🥰Vinkki Rustic Wall Sconces 3M 30 LED Strip Lights Mason Jars\
-  <https://amzn.to/3O3subA>\
-  \
-  (ad)
+  ![](https://m.media-amazon.com/images/I/81j1CeSYPXL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
-* <!--StartFragment-->
+* 🌟20 Pcs Eucalyptus for Shower Hanging Dried Eucalyptus Stems 17🌟
+  ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
+  https://amzn.to/43jHfep
+  AD\
+  <!--StartFragment-->
 
-  🅾🅽 🅳🆁🅾🅿\
-  Ultra Soft Indoor Modern Area Rugs\
-  <https://amzn.to/44wOzVf>\
-  (AD)
+  ![](https://m.media-amazon.com/images/I/813dmIwc7mL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🐢🐢Sea Turtle Yoga Figurines Decorations, 2 PCS🐢🐢
+  https://amzn.to/3JM0CWV
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71xvgOVbxsL._AC_SL1386_.jpg)
+
+  <!--EndFragment-->
+* 🌸Wemk Pampas Grass with Vase🌸
+  ‼️NO CODE NEEDED ‼️
+  https://amzn.to/3O3mBLa
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71-lmsqzzWL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* 🌟Small Table Lamp for Bedroom 🌟
+  ‼️NO CODE NEEDED ‼️
+  https://amzn.to/3D3iyIO
+  AD\
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71lGuLtZqcL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
