@@ -260,3 +260,11 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   ![](https://m.media-amazon.com/images/I/81YlKeBDwML._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* HI 5️⃣ DEAL 
+  Creative Roots Mosaic Heart Stepping Stone
+  https://amzn.to/3pywhUP 
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81giq4giGAL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
