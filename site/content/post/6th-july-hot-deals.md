@@ -79,9 +79,6 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   AD\
 
   ![](https://m.media-amazon.com/images/I/81KLpUum7CL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
-
 * 👕👕 Timberland PRO Men's Base Plate Short Sleeve T-Shirt!!👕👕
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
    https://amzn.to/3rigXMF
@@ -94,9 +91,6 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   AD\
 
   ![](https://m.media-amazon.com/images/I/81Z8-p4VtpL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
-
 * 💛🧡 Play-Doh FUNdamentals Box Arts & Crafts!! 🧡💛
   59%OFF
   https://amzn.to/3CXBjgJ
@@ -178,9 +172,6 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   AD\
 
   ![Nine West Women's Bracelet Watch](https://m.media-amazon.com/images/I/91H3ETNzJ3L._AC_UY679_.jpg)
-
-  <!--EndFragment-->
-
 * 👟👟 Under Armour Women's Shoes. Size 5👟👟
   ‼️NO CODE NEEDED ‼️
   https://amzn.to/44emO47
@@ -195,3 +186,13 @@ description: DEALS ON CLOTHING, FOOTWEAR, TOYS AND MORE
   AD\
 
   ![](https://m.media-amazon.com/images/I/71f+qJ+A1ML._SL1500_.jpg)
+* ‼️↘️PRICE DOWN ⏬⏬
+  🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳
+  https://amzn.to/3pD3LRU 
+  Hot Wheels Race Case with 8 Toy Cars
+
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81KIyajwijL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
