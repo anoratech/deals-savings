@@ -1,0 +1,8 @@
+---
+title: WALMART DEALS AS ON 7TH JULY
+date: 2023-07-07T11:36:40.228Z
+tags: WALMART
+Category: OTHER
+description: GET EXCITING HOT DEALS HERE
+---
+R﻿UNN.....
