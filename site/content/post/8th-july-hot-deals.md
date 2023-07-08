@@ -184,4 +184,24 @@ AD\
 
 ![Costway 4PCS Outdoor Patio Rattan Furniture Set Cushioned Sofa Coffee Table Garden Deck](https://i5.walmartimages.com/asr/12d82230-7fc6-4a24-b61a-bcc597c890b7.d6227e79f015cb64d05a6119b67145d4.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Strength Exercise Stability Ball with Pump, 45cm Purple
+
+\#walmart
+
+Now $8.39
+
+was $26.73
+
+Price when purchased online
+
+https://mavely.app.link/e/s6lbC8JCgBb
+
+ad
+
+<!--EndFragment-->
+
+![Black Mountain Products 2000lbs Static Strength Exercise Stability Ball with Pump, 45cm Purple](https://i5.walmartimages.com/asr/6812f7c2-783b-48d2-8d96-ab7401e58f58_1.7199689dea28c2aaa4f62905e7d25e6b.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
