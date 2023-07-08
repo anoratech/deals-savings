@@ -276,4 +276,20 @@ ad
 
 ![Kid Connection 10-Piece Baby Doll & Stroller Set, Light Skin Tone](https://i5.walmartimages.com/asr/9fb0592e-b59d-4afc-ba3b-b3d77fa8eed4.ec30e50faa509b2ae8678785775e3752.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Relax-A-Lounger Bristol Recliner Loveseat, Black Faux Leather
+
+Now $312.00
+
+was $732.11
+
+https://mavely.app.link/e/Y8UprqhFgBb
+
+AD
+
+<!--EndFragment-->
+
+![Relax-A-Lounger Bristol Recliner Loveseat, Black Faux Leather](https://i5.walmartimages.com/asr/d22a31c3-0e72-44e8-9d7e-69c1063268cc_2.0031c324fe4c31670564340b3786be14.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
