@@ -258,4 +258,22 @@ ad
 
 ![Carote Nonstick Granite Cookware Sets, 9 Pcs Brown Granite Pots and Pans Set, Induction Stone Kitchen Cooking Set](https://i5.walmartimages.com/asr/c66581ab-3662-4cf0-bb02-5d1ad5a04aa0.e402c1ee95e17ecbe18c127ebf9e512b.png?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Kid Connection 10-Piece Baby Doll & Stroller Set,
+
+Now $11.50
+
+was $19.97
+
+Price when purchased online
+
+https://mavely.app.link/e/vBTLM4zEgBb
+
+ad
+
+<!--EndFragment-->
+
+![Kid Connection 10-Piece Baby Doll & Stroller Set, Light Skin Tone](https://i5.walmartimages.com/asr/9fb0592e-b59d-4afc-ba3b-b3d77fa8eed4.ec30e50faa509b2ae8678785775e3752.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
 <!--EndFragment-->
