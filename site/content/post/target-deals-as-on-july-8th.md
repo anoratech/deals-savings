@@ -51,4 +51,10 @@ ad
 
 ![Gerber Baby Boys\&#39; 6pk Jersey Wiggle Proof Bear Socks - Navy Blue/Forest Green/Gray, image 1 of 15 slides](https://target.scene7.com/is/image/Target/GUEST_c8977268-4ca8-4dd7-8a73-a61d9a0d0b88?wid=475&hei=475&qlt=80&fmt=webp)
 
+<!--StartFragment-->
+
+BUY 1, GET 1 50% OFF TOYS at #target
+
+https://mavely.app.link/e/sTkHXL6ygBb ad
+
 <!--EndFragment-->
