@@ -57,4 +57,20 @@ BUY 1, GET 1 50% OFF TOYS at #target
 
 https://mavely.app.link/e/sTkHXL6ygBb ad
 
+<!--StartFragment-->
+
+LED Curtain String Light - West & Arrow #target
+
+$14.45 reg $17.00
+
+Clearance
+
+https://mavely.app.link/e/pEMMB5cAgBb
+
+ad
+
+<!--EndFragment-->
+
+![LED Curtain String Light - West & Arrow, image 3 of 11 slides](https://target.scene7.com/is/image/Target/GUEST_2daed74c-ed7d-4adc-a9fb-86a4e8578192?wid=475&hei=475&qlt=80&fmt=webp)
+
 <!--EndFragment-->
