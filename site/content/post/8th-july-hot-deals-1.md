@@ -10,31 +10,22 @@ description: Hot Trending Deals
     ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   https://amzn.to/46AUFWu
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81HCOkfTVxL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ⌚️Smart Watch for Men ⌚
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   💸𝗛𝗨𝗚𝗘 𝗗𝗥𝗢𝗣 𝗤𝗣𝗢𝗡💸
   https://amzn.to/3JIPtpJ
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/716QBWsdfuL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 🏃‍♀️🏃𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃
   ‼️ 50% OFF ‼️
   🌟String Lights Outdoor 33Ft 100 LED Christmas Fairy Lights🌟
   https://amzn.to/3D85W2M
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81E5gx2rd-L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 🏃‍♀️🏃𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃‍♀️🏃
   🔥HOT DEAL🔥
   53%OFF
@@ -42,21 +33,15 @@ description: Hot Trending Deals
   Collection 🌸
   https://amzn.to/3D6ccs5
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81m5+-7CE1L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 💙BEST SODA!! 
   ‼️‼️24 COUNT!! Zevia Soda Variety Pack ‼️
   ✂️𝗦&𝗦✂️
   https://amzn.to/3raOkka
   AD\
-  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81z98xSQ3IL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * 💕HUGE BARBIE SALE!!💕
   https://amzn.to/44eVrXA
   AD
