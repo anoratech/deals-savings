@@ -222,4 +222,22 @@ ad
 
 ![Speck iPhone 14 GemShell Grip Phone Case in Clear](https://i5.walmartimages.com/asr/2fd29436-76f8-41f7-b6e2-85c0b96ccfb4.0170e70075c802cde21f5c1d6aad0593.png?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Kids Ride On Truck Car with Remote Control & 2 Seater,
+
+\#walmart
+
+Now $399.89
+
+was $599.99
+
+https://mavely.app.link/e/PoRXMl2DgBb
+
+ad
+
+<!--StartFragment-->
+
+![4WD 24V Kids Ride On Truck Car with Remote Control & 2 Seater,800W Motor, 9 AH Battery Powered Toy Car with Spring Suspension, 3 Speeds,LED Lights, Bluetooth Music for Girl Boy Pink](https://i5.walmartimages.com/asr/82e932fa-ef04-4da0-a61a-615fbba039e8.97d3798222f662ca966ecd7f0e40c9d9.png?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
