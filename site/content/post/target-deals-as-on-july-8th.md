@@ -86,4 +86,16 @@ https://mavely.app.link/e/Tb5hobqAgBb ad 
 
 ![Girls\&#39; 5pk Mixed Bracelet Set with \&#39;Smile\&#39; Letter Beads - Cat \&#38; Jack\&#8482;, image 1 of 3 slides](https://target.scene7.com/is/image/Target/GUEST_676d1aee-d698-4ab8-a14f-21ae81d5f7be?wid=475&hei=475&qlt=80&fmt=webp)
 
+<!--StartFragment-->
+
+Scotch Long Lasting Moving & Storage Packaging Tape 1.88" x 43yd Only for $3.73\
+Clearance\
+https://mavely.app.link/e/RVUjSRBAgBb\
+When purchased online \
+ad 
+
+<!--EndFragment-->
+
+![Scotch Long Lasting Moving \&#38; Storage Packaging Tape 1.88\&#34; x 43yd, image 1 of 6 slides](https://target.scene7.com/is/image/Target/GUEST_5486c0a6-df73-4eb4-89c8-63824ea06ce8?wid=475&hei=475&qlt=80&fmt=webp)
+
 <!--EndFragment-->
