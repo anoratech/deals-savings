@@ -120,4 +120,16 @@ ad 
 
 ![Oversize Embroidered 'Home' Lumbar Throw Pillow Off-White/Red - Threshold™, image 2 of 7 slides](https://target.scene7.com/is/image/Target/GUEST_4dd4c994-2327-4c3d-a9b9-915a748b7be5?wid=475&hei=475&qlt=80&fmt=webp)
 
+<!--StartFragment-->
+
+Gerber Baby Girls' 4pk Floral Flannel Blanket - Pink/Off-White\
+$10.20 reg $12.00\
+Clearance\
+https://mavely.app.link/e/AO43hl6AgBb\
+ad 
+
+<!--EndFragment-->
+
+![Gerber Baby Girls\&#39; 4pk Floral Flannel Blanket - Pink/Off-White, image 1 of 7 slides](https://target.scene7.com/is/image/Target/GUEST_655ee951-23fe-4166-bf02-77771ae00e1c?wid=475&hei=475&qlt=80&fmt=webp)
+
 <!--EndFragment-->
