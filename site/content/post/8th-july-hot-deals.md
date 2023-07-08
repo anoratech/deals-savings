@@ -204,4 +204,22 @@ ad
 
 ![Black Mountain Products 2000lbs Static Strength Exercise Stability Ball with Pump, 45cm Purple](https://i5.walmartimages.com/asr/6812f7c2-783b-48d2-8d96-ab7401e58f58_1.7199689dea28c2aaa4f62905e7d25e6b.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Speck iPhone 14 GemShell Grip Phone Case in Clear
+
+Now $19.94
+
+was $29.95
+
+Price when purchased online
+
+https://mavely.app.link/e/KxcUGORCgBb
+
+ad
+
+<!--EndFragment-->
+
+![Speck iPhone 14 GemShell Grip Phone Case in Clear](https://i5.walmartimages.com/asr/2fd29436-76f8-41f7-b6e2-85c0b96ccfb4.0170e70075c802cde21f5c1d6aad0593.png?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
