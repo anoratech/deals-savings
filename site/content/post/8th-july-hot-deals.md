@@ -1,5 +1,5 @@
 ---
-title: 8TH JULY HOT DEALS
+title: WALMART 8TH JULY HOT DEALS
 date: 2023-07-08T11:14:29.834Z
 tags: Walmart
 Category: Others
