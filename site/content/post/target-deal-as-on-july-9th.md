@@ -1,5 +1,5 @@
 ---
-title: "Target deal as on July 9th "
+title: TARGET DEAL DAYS 07/09
 date: 2023-07-09T11:07:30.154Z
 tags: "target "
 Category: others
