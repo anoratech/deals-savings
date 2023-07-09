@@ -202,4 +202,22 @@ description: TRENDING HOT DEALS
 
   ![KUTIME | Resin Plastic Adirondack Chair Patio Outdoor Plastic Resin Chair with Cup Holder - Black](https://i5.walmartimages.com/asr/fafdf28f-55ea-4d3b-b21a-a952e784bc88.9ccf996adf1b80eba4ed4ca583e1d3be.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
+  <!--StartFragment-->
+
+  Russell Boys Year Round Shorts, 4-Pack, Sizes 4-18 & Husky
+
+  Now $20.00
+
+  was $25.00
+
+  Price when purchased online
+
+  https://mavely.app.link/e/tqoAcdKeiBb
+
+  ad
+
+  <!--EndFragment-->
+
+  ![Russell Boys Year Round Shorts, 4-Pack, Sizes 4-18 & Husky](https://i5.walmartimages.com/asr/6c3c4745-6eba-480b-bf9a-ec843f2c6d82.fe0786fead96d6d7de93464decae5230.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
   <!--EndFragment-->
