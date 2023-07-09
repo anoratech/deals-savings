@@ -8,6 +8,19 @@ description: "Target deals as on 9th  "
 * Target Trampoline Deals 
   https://shopstyle.it/l/bYtSM 
   ad
+* **LEGO Marvel Avengers Thor Hammer Infinity Saga Set 76209** $69.99 reg $99.99
+
+  Sale save $30.00 (30% off)
+
+  [https://shopstyle.it/l/bYukk](https://shopstyle.it/l/bYukk?fbclid=IwAR33GOrd0bUG9aVQnCR-5L-BdVk2ygajfZvQIwPf5QdzD0FwkQ-jKjvSAtM)
+
+  AD
+
+
+
+  ![May be an image of hammer, lego and text](https://scontent-atl3-2.xx.fbcdn.net/v/t39.30808-6/358610713_980637530030044_2851149631732271683_n.jpg?stp=dst-jpg_p843x403&_nc_cat=101&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=4gAY8BoXN_AAX9XAM1p&_nc_ht=scontent-atl3-2.xx&oh=00_AfCNC9N8jHJQ6Bbzeww39gmUVr4bDW8ZKfynYp_4yxN_rw&oe=64AFBFF4)
+
+
 * LOTS ND LOTS OF DEALS
 
   **TARGET CIRCLE WEEK IS LIVE**
