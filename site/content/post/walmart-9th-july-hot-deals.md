@@ -184,4 +184,22 @@ description: TRENDING HOT DEALS
 
   ![Pen+Gear Watermelon Pencil Pouch with Glitter, Pink Color](https://i5.walmartimages.com/asr/0dab28e2-fbf6-4a8e-9ce3-d0f846c87da1.f64d1607dddbc110527890ca34873a8d.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+  <!--StartFragment-->
+
+  Resin Plastic Adirondack Chair Patio Outdoor Plastic Resin Chair with Cup Holder - Black
+
+  Now $109.99
+
+  was $139.99
+
+  Price when purchased online
+
+  https://mavely.app.link/e/M8d2ZIneiBb
+
+  ad
+
+  <!--EndFragment-->
+
+  ![KUTIME | Resin Plastic Adirondack Chair Patio Outdoor Plastic Resin Chair with Cup Holder - Black](https://i5.walmartimages.com/asr/fafdf28f-55ea-4d3b-b21a-a952e784bc88.9ccf996adf1b80eba4ed4ca583e1d3be.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
   <!--EndFragment-->
