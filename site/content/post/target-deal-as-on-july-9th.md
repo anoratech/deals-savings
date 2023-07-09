@@ -16,11 +16,7 @@ description: "Target deals as on 9th  "
 
   AD
 
-
-
   ![May be an image of hammer, lego and text](https://scontent-atl3-2.xx.fbcdn.net/v/t39.30808-6/358610713_980637530030044_2851149631732271683_n.jpg?stp=dst-jpg_p843x403&_nc_cat=101&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=4gAY8BoXN_AAX9XAM1p&_nc_ht=scontent-atl3-2.xx&oh=00_AfCNC9N8jHJQ6Bbzeww39gmUVr4bDW8ZKfynYp_4yxN_rw&oe=64AFBFF4)
-
-
 * LOTS ND LOTS OF DEALS
 
   **TARGET CIRCLE WEEK IS LIVE**
@@ -29,17 +25,29 @@ description: "Target deals as on 9th  "
 
   AD
 
-
-
   ![May be an image of text that says 'Ocircle week here July 9-15'](https://scontent-atl3-1.xx.fbcdn.net/v/t39.30808-6/358552390_980627013364429_6869366969902334162_n.jpg?_nc_cat=109&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=bUPaiOkjNJ4AX-fGmdV&_nc_oc=AQmko82ifOoEqWSfa-Ypp_PVWz6M_A42S5tFv5GXvYgMTi9FykpvD75HqA9BVPoIV3psL47DPObuAhGDkKcBPFA3&_nc_ht=scontent-atl3-1.xx&oh=00_AfBkJ0YFQK7s66aHBDDpwl4CApFdnNZQi2njNaAUJ65-KA&oe=64AF97C7)
+* Ninja DualBrew Coffee Maker, Single-Serve, Coffee Pod, and 12-Cup Drip Coffee Maker - CFP201
+
+  **![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/tb5/1.5/16/1f4b2.png)119.99 with $80 Off Target Circle Offer**
+
+  ![🟰](https://static.xx.fbcdn.net/images/emoji.php/v9/tf2/1.5/16/1f7f0.png) [https://shopstyle.it/l/bYuq9](https://l.facebook.com/l.php?u=https%3A%2F%2Fshopstyle.it%2Fl%2FbYuq9%3Ffbclid%3DIwAR3BarGMbXP29bFv5HVvw3kLQD3v6rR-hC7uKcfjrHojirB9bN4qdNc8_EI&h=AT04Ppj91G7KTmpNWN-48EVD8Zk54CrH_AmGYxtQyvfcU2zk7kuhfW6YpgLzF7vB5s0Lkm4clb2F53lvLzkP7s1Ahj9BisIArEnr0ZUKzN05WoiquO7qCjVnVzztBUVmpSqqoryavR20HIIMFwD-&__tn__=-UK-R&c[0]=AT3TlTNMS0XK24cOuZ7N0PW6G4yjaTo_aDNA6gI9b-dI2jbETsL3NGB_L6GKprSLWZ_PbbV6iWWjfHkK-4LG9Ny0-uzgTajOcEflpnBpCAWmTbLjyy2ApExq2ntbG5mslyCxqPzz8Dgba4NZa8LkCdaj91wZxS3BR6VjFKg)
+
+  **Login/Create Target Circle Account**
+
+  [https://shopstyle.it/l/bYurf](https://shopstyle.it/l/bYurf?fbclid=IwAR3FGdjjzj5BxZQWG8t5P6vePOX-MxBKa4qZ7QlzW5KP9HowfGy9g-NXU9w) AD 
+
+  ![May be an image of tea maker, grinder, coffee maker, kitchen appliance, carafe and text that says 'NINJA COFFEE'](https://scontent-atl3-2.xx.fbcdn.net/v/t39.30808-6/358434315_980655386694925_6199382965587179630_n.jpg?_nc_cat=101&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=2c_lFZJXA6UAX-M66fQ&_nc_ht=scontent-atl3-2.xx&oh=00_AfAoF41CIGnJrMTJKudOAEiw3cKHceLu1WAups3-7M9Hfg&oe=64AF5930)
 
 
+
+  SEE ALL TARGET DEALS HERE ![➡️](https://static.xx.fbcdn.net/images/emoji.php/v9/t25/1.5/16/27a1.png) [https://slicksavers.com/post/target-deal-as-on-july-9th/](https://slicksavers.com/post/target-deal-as-on-july-9th/?fbclid=IwAR2AmJNC4EN7_Im2FRzpt3wNIJTffUGUpLVUfC3V_YxrOuDKpyAHN8oflVw)
+
+  <!--EndFragment-->
 * LIVE NOW!!\
   50% off select video games,\
   $30 OFF Super Mario games!
 
   [https://shopstyle.it/l/bYubc](https://shopstyle.it/l/bYubc?fbclid=IwAR32gUZ0rTXwHDLdlegTLC8ykb7efAuETEte9slOkS_KoLSNsRqxU3DFN3Q) ad
-
 * Kitchen ITEMS DEALS FOR Target’s Circle Week!
 
   https://mavely.app.link/e/mSYboxztiBb ad
@@ -54,7 +62,6 @@ description: "Target deals as on 9th  "
   ad
 
   ![](https://target.scene7.com/is/image/Target/GUEST_a692847f-6219-4ce8-9874-78d353632c44?qlt=65&fmt=webp&hei=154&wid=154)
-
 * LOTS of appliances on sale!
 
   Target Circle Week Sale!
