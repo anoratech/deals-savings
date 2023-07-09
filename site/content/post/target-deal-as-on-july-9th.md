@@ -8,23 +8,31 @@ description: "Target deals as on 9th  "
 * Target Trampoline Deals 
   https://shopstyle.it/l/bYtSM 
   ad
-*   LIVE NOW!!\
+* LOTS ND LOTS OF DEALS
+
+  **TARGET CIRCLE WEEK IS LIVE**
+
+  [https://shopstyle.it/l/bYufH](https://shopstyle.it/l/bYufH?fbclid=IwAR39jz0sqkNncA0SuNL0Axn45e78tNlR_LzHuJyKSHQzQf5psy39vqw6dqk)
+
+  AD
+
+
+
+  ![May be an image of text that says 'Ocircle week here July 9-15'](https://scontent-atl3-1.xx.fbcdn.net/v/t39.30808-6/358552390_980627013364429_6869366969902334162_n.jpg?_nc_cat=109&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=bUPaiOkjNJ4AX-fGmdV&_nc_oc=AQmko82ifOoEqWSfa-Ypp_PVWz6M_A42S5tFv5GXvYgMTi9FykpvD75HqA9BVPoIV3psL47DPObuAhGDkKcBPFA3&_nc_ht=scontent-atl3-1.xx&oh=00_AfBkJ0YFQK7s66aHBDDpwl4CApFdnNZQi2njNaAUJ65-KA&oe=64AF97C7)
+
+
+* LIVE NOW!!\
   50% off select video games,\
   $30 OFF Super Mario games!
 
   [https://shopstyle.it/l/bYubc](https://shopstyle.it/l/bYubc?fbclid=IwAR32gUZ0rTXwHDLdlegTLC8ykb7efAuETEte9slOkS_KoLSNsRqxU3DFN3Q) ad
 
-
 * Kitchen ITEMS DEALS FOR Target’s Circle Week!
 
   https://mavely.app.link/e/mSYboxztiBb ad
 
-
-
-  ![May be an image of grinder, hand drill, coffee maker, drill press, water heater, kitchen appliance, can opener, socket and text that says '6 days left $50 off Keurig K-Duo Single-Serve & Carafe Coffee Maker Save offer 6 days left $130 off KitchenAid Ultra Power Plus 4.5qt Tilt-Head Stand Mixer Save offer 6 days left 10%off Caraway Cookware Save offer 6 days left 25% off Select by Calphalon Save offer 6 days left $50 off Keurig K-Cafe Special Edition Single-Serve K-Cup Pod'](https://scontent-atl3-2.xx.fbcdn.net/v/t39.30808-6/358108704_10160728883853058_3551228786634245895_n.jpg?stp=cp6_dst-jpg_p843x403&_nc_cat=104&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=bOAg6wB-9X0AX_YBQ3R&_nc_ht=scontent-atl3-2.xx&oh=00_AfBJs3aQTLK7TR1PjmIKLPBASrd5IU7AWttJBoepQbBZkw&oe=64B0A922)
-
-
-*   POOLS SUPPLIES 50% OFF!
+  ![](https://scontent-atl3-2.xx.fbcdn.net/v/t39.30808-6/358108704_10160728883853058_3551228786634245895_n.jpg?stp=cp6_dst-jpg_p843x403&_nc_cat=104&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=bOAg6wB-9X0AX_YBQ3R&_nc_ht=scontent-atl3-2.xx&oh=00_AfBJs3aQTLK7TR1PjmIKLPBASrd5IU7AWttJBoepQbBZkw&oe=64B0A922)
+* POOLS SUPPLIES 50% OFF!
 
   Clip 50% off coupon - login in your acc
 
@@ -33,6 +41,7 @@ description: "Target deals as on 9th  "
   ad
 
   ![](https://target.scene7.com/is/image/Target/GUEST_a692847f-6219-4ce8-9874-78d353632c44?qlt=65&fmt=webp&hei=154&wid=154)
+
 * LOTS of appliances on sale!
 
   Target Circle Week Sale!
@@ -42,8 +51,6 @@ description: "Target deals as on 9th  "
   AD
 
   ![May be an image of microwave, refrigerator, coffee maker, dishwasher and text](https://scontent-atl3-2.xx.fbcdn.net/v/t39.30808-6/359386371_2152228368300207_1872123645739438684_n.jpg?_nc_cat=105&cb=99be929b-59f725be&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=sN1fxrCyWDMAX8m_wtr&_nc_ht=scontent-atl3-2.xx&oh=00_AfCvVOVuKeZCvkc-nURNHoK49PW5m1vg1G5_J447OqRcEQ&oe=64B0B07E)
-
-
 * Super Mario Games are $29.99
 
   Clip $30 Target circle coupon
