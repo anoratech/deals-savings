@@ -41,4 +41,16 @@ ad
 
 ![Beloved Mango \&#38; Lime Vegan Bar Soap - 4oz, image 1 of 8 slides](https://target.scene7.com/is/image/Target/GUEST_43c36ffe-1b1c-4eff-95d6-e7a92d250d10?wid=475&hei=475&qlt=80&fmt=webp)
 
+<!--StartFragment-->
+
+Baby Girls' 3pk Prairie Floral Bath Towel\
+$12.75 reg $15.00\
+Clearance\
+<https://mavely.app.link/e/cGpSJBodiBb>\
+ad
+
+<!--EndFragment-->
+
+![Baby Girls\&#39; 3pk Prairie Floral Bath Towel - Cloud Island\&#8482; Purple, image 1 of 3 slides](https://target.scene7.com/is/image/Target/GUEST_58b7473c-33ef-46c9-b920-142b801fa0a6?wid=475&hei=475&qlt=80&fmt=webp)
+
 <!--EndFragment-->
