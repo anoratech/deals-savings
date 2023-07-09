@@ -8,8 +8,7 @@ description: "Target deals as on 9th  "
 * Target Trampoline Deals 
   https://shopstyle.it/l/bYtSM 
   ad
-*
-* LIVE NOW!!\
+*   LIVE NOW!!\
   50% off select video games,\
   $30 OFF Super Mario games!
 
@@ -25,7 +24,7 @@ description: "Target deals as on 9th  "
   ![May be an image of grinder, hand drill, coffee maker, drill press, water heater, kitchen appliance, can opener, socket and text that says '6 days left $50 off Keurig K-Duo Single-Serve & Carafe Coffee Maker Save offer 6 days left $130 off KitchenAid Ultra Power Plus 4.5qt Tilt-Head Stand Mixer Save offer 6 days left 10%off Caraway Cookware Save offer 6 days left 25% off Select by Calphalon Save offer 6 days left $50 off Keurig K-Cafe Special Edition Single-Serve K-Cup Pod'](https://scontent-atl3-2.xx.fbcdn.net/v/t39.30808-6/358108704_10160728883853058_3551228786634245895_n.jpg?stp=cp6_dst-jpg_p843x403&_nc_cat=104&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=bOAg6wB-9X0AX_YBQ3R&_nc_ht=scontent-atl3-2.xx&oh=00_AfBJs3aQTLK7TR1PjmIKLPBASrd5IU7AWttJBoepQbBZkw&oe=64B0A922)
 
 
-* POOLS SUPPLIES 50% OFF!
+*   POOLS SUPPLIES 50% OFF!
 
   Clip 50% off coupon - login in your acc
 
