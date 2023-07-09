@@ -65,4 +65,16 @@ ad
 
 ![No photo description available.](https://scontent.fccu3-1.fna.fbcdn.net/v/t39.30808-6/358053870_718875056916654_8572727808788880369_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=730e14&_nc_ohc=ROZtpR_9AwgAX8m29bj&_nc_ht=scontent.fccu3-1.fna&oh=00_AfCaoHdV62ZN8eEkz7eo3m5CV_a6VdrGh7IneNdSzaE7Lw&oe=64AF0944)
 
+<!--StartFragment-->
+
+BLACK+DECKER 0.7 cu ft 700W Microwave Oven - Black - EM720CPN-P\
+$59.99 reg $80.99\
+Sale\
+<https://mavely.app.link/e/ZekXGQOdiBb>\
+ad
+
+<!--StartFragment-->
+
+![No photo description available.](https://scontent.fccu3-1.fna.fbcdn.net/v/t39.30808-6/359524094_718876920249801_4139316908464403058_n.jpg?stp=dst-jpg_p526x296&_nc_cat=104&ccb=1-7&_nc_sid=730e14&_nc_ohc=7ACxNZ0Q_iMAX-6whs1&_nc_ht=scontent.fccu3-1.fna&oh=00_AfAHpE7ZrL_0kgv_PejNZfBEc5i8JAqF4njwRvW49XEQVw&oe=64B037FD)
+
 <!--EndFragment-->
