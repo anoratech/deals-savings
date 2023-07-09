@@ -3,7 +3,7 @@ title: TARGET DEAL DAYS 07/09
 date: 2023-07-09T11:07:30.154Z
 tags: "target "
 Category: others
-description: "Target deals as on 9th  "
+description: "Target Deal deals as on 9th  "
 image: img/target.jpg
 ---
 * Target Trampoline Deals 
