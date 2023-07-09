@@ -29,4 +29,16 @@ ad\
 
 ![May be an image of text](https://scontent.fccu3-1.fna.fbcdn.net/v/t39.30808-6/358043487_718857046918455_3276266785010599738_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=730e14&_nc_ohc=nDj7rghKIsAAX8F84Py&_nc_ht=scontent.fccu3-1.fna&oh=00_AfBADoB6xUg0ccpxSRQ4nth6RfOt0Su6B_YOw8HV788oDg&oe=64AFEB61)
 
+<!--StartFragment-->
+
+Beloved Mango & Lime Vegan Bar Soap - 4oz\
+$4.24 ($1.06/ounce) reg $4.99\
+Clearance\
+<https://mavely.app.link/e/Luv9mxXciBb>\
+ad
+
+<!--EndFragment-->
+
+![Beloved Mango \&#38; Lime Vegan Bar Soap - 4oz, image 1 of 8 slides](https://target.scene7.com/is/image/Target/GUEST_43c36ffe-1b1c-4eff-95d6-e7a92d250d10?wid=475&hei=475&qlt=80&fmt=webp)
+
 <!--EndFragment-->
