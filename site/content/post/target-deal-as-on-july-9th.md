@@ -16,7 +16,7 @@ description: "Target deals as on 9th  "
 
   AD
 
-  ![May be an image of hammer, lego and text](https://scontent-atl3-2.xx.fbcdn.net/v/t39.30808-6/358610713_980637530030044_2851149631732271683_n.jpg?stp=dst-jpg_p843x403&_nc_cat=101&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=4gAY8BoXN_AAX9XAM1p&_nc_ht=scontent-atl3-2.xx&oh=00_AfCNC9N8jHJQ6Bbzeww39gmUVr4bDW8ZKfynYp_4yxN_rw&oe=64AFBFF4)
+  ![](https://scontent-atl3-2.xx.fbcdn.net/v/t39.30808-6/358610713_980637530030044_2851149631732271683_n.jpg?stp=dst-jpg_p843x403&_nc_cat=101&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=4gAY8BoXN_AAX9XAM1p&_nc_ht=scontent-atl3-2.xx&oh=00_AfCNC9N8jHJQ6Bbzeww39gmUVr4bDW8ZKfynYp_4yxN_rw&oe=64AFBFF4)
 * LOTS ND LOTS OF DEALS
 
   **TARGET CIRCLE WEEK IS LIVE**
@@ -25,7 +25,7 @@ description: "Target deals as on 9th  "
 
   AD
 
-  ![May be an image of text that says 'Ocircle week here July 9-15'](https://scontent-atl3-1.xx.fbcdn.net/v/t39.30808-6/358552390_980627013364429_6869366969902334162_n.jpg?_nc_cat=109&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=bUPaiOkjNJ4AX-fGmdV&_nc_oc=AQmko82ifOoEqWSfa-Ypp_PVWz6M_A42S5tFv5GXvYgMTi9FykpvD75HqA9BVPoIV3psL47DPObuAhGDkKcBPFA3&_nc_ht=scontent-atl3-1.xx&oh=00_AfBkJ0YFQK7s66aHBDDpwl4CApFdnNZQi2njNaAUJ65-KA&oe=64AF97C7)
+  ![](https://scontent-atl3-1.xx.fbcdn.net/v/t39.30808-6/358552390_980627013364429_6869366969902334162_n.jpg?_nc_cat=109&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=bUPaiOkjNJ4AX-fGmdV&_nc_oc=AQmko82ifOoEqWSfa-Ypp_PVWz6M_A42S5tFv5GXvYgMTi9FykpvD75HqA9BVPoIV3psL47DPObuAhGDkKcBPFA3&_nc_ht=scontent-atl3-1.xx&oh=00_AfBkJ0YFQK7s66aHBDDpwl4CApFdnNZQi2njNaAUJ65-KA&oe=64AF97C7)
 * Ninja DualBrew Coffee Maker, Single-Serve, Coffee Pod, and 12-Cup Drip Coffee Maker - CFP201
 
   **![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/tb5/1.5/16/1f4b2.png)119.99 with $80 Off Target Circle Offer**
