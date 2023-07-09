@@ -15,6 +15,15 @@ description: "Target deals as on 9th  "
   [https://shopstyle.it/l/bYubc](https://shopstyle.it/l/bYubc?fbclid=IwAR32gUZ0rTXwHDLdlegTLC8ykb7efAuETEte9slOkS_KoLSNsRqxU3DFN3Q) ad
 
 
+* Kitchen ITEMS DEALS FOR Target’s Circle Week!
+
+  https://mavely.app.link/e/mSYboxztiBb ad
+
+
+
+  ![May be an image of grinder, hand drill, coffee maker, drill press, water heater, kitchen appliance, can opener, socket and text that says '6 days left $50 off Keurig K-Duo Single-Serve & Carafe Coffee Maker Save offer 6 days left $130 off KitchenAid Ultra Power Plus 4.5qt Tilt-Head Stand Mixer Save offer 6 days left 10%off Caraway Cookware Save offer 6 days left 25% off Select by Calphalon Save offer 6 days left $50 off Keurig K-Cafe Special Edition Single-Serve K-Cup Pod'](https://scontent-atl3-2.xx.fbcdn.net/v/t39.30808-6/358108704_10160728883853058_3551228786634245895_n.jpg?stp=cp6_dst-jpg_p843x403&_nc_cat=104&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=bOAg6wB-9X0AX_YBQ3R&_nc_ht=scontent-atl3-2.xx&oh=00_AfBJs3aQTLK7TR1PjmIKLPBASrd5IU7AWttJBoepQbBZkw&oe=64B0A922)
+
+
 * POOLS SUPPLIES 50% OFF!
 
   Clip 50% off coupon - login in your acc
@@ -23,7 +32,7 @@ description: "Target deals as on 9th  "
 
   ad
 
-  ![6' x 22" Deluxe Rectangular Family Pool Blue - Sun Squad™](https://target.scene7.com/is/image/Target/GUEST_a692847f-6219-4ce8-9874-78d353632c44?qlt=65&fmt=webp&hei=154&wid=154)
+  ![](https://target.scene7.com/is/image/Target/GUEST_a692847f-6219-4ce8-9874-78d353632c44?qlt=65&fmt=webp&hei=154&wid=154)
 * LOTS of appliances on sale!
 
   Target Circle Week Sale!
