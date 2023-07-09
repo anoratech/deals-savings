@@ -284,4 +284,14 @@ description: TRENDING HOT DEALS
 
   <!--EndFragment-->![Costway 4 Seat Kids Picnic Table w/Umbrella Garden Yard Folding Children Bench Outdoor](https://i5.walmartimages.com/asr/319519d4-12f2-4123-9a27-079a8442189e_1.11945bbe85f2fb2e805e4b80af2dc112.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+  <!--StartFragment-->
+
+  ‼️Walmart Back To School Deals‼️
+
+  https://mavely.app.link/e/qXtGrZfgiBb ad
+
+  <!--StartFragment-->
+
+  ![May be an image of text](https://scontent.fccu3-1.fna.fbcdn.net/v/t39.30808-6/358089362_2959154000882797_8078889519381955378_n.jpg?stp=dst-jpg_p526x296&_nc_cat=105&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=uvwMPjA8b_kAX8NBQS6&_nc_ht=scontent.fccu3-1.fna&oh=00_AfD9LlO2R7Ce0O9mKwO0N4PhqWwhZ0onz4orkrW5gqPvyg&oe=64AEEC13)
+
   <!--EndFragment-->
