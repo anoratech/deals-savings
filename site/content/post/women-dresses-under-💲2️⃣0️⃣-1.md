@@ -44,3 +44,13 @@ image: img/eae4c541-ae4f-4cf0-8656-b1f2486a2660.jpg
   ![MakeMeChic Women\&#39;s Sleeveless V Neck Tie Waist Short Flowy Swing Dress](https://m.media-amazon.com/images/I/71YeKfVZ6DL._AC_UY879_.jpg)
 
   <!--EndFragment-->
+* Summer Dresses for Women Beach Floral Tshirt Sundress Sleeveless Pockets Casual Loose Tank Dress 
+  https://amzn.to/3rdDz0u 
+  SIZE S-XXXL 
+  $18xx ONLY 
+
+  (AD)<!--StartFragment-->
+
+  ![Summer Dresses for Women Beach Floral Tshirt Sundress Sleeveless Pockets Casual Loose Tank Dress](https://m.media-amazon.com/images/I/81SoFQNZ90L._AC_UY741_.jpg)
+
+  <!--EndFragment-->
