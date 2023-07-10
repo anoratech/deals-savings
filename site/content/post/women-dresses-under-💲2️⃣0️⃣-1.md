@@ -26,3 +26,12 @@ image: img/eae4c541-ae4f-4cf0-8656-b1f2486a2660.jpg
   ![Womens Summer Dresses Beach Casual Tshirt Plus Size Floral Short Sleeve Loose Flowy Sundresses](https://m.media-amazon.com/images/I/918Y0qN75ML._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* Floerns Women’s Summer Floral Cherry Print A Line Short Cami Dress
+  SIZE- XS- L
+  PRICE- $16xx ONLY\
+  https://amzn.to/3pK18xF 
+  (AD)<!--StartFragment-->
+
+  ![Floerns Women\&#39;s Summer Floral Cherry Print A Line Short Cami Dress](https://m.media-amazon.com/images/I/81gWSKmzAnL._AC_UY741_.jpg)
+
+  <!--EndFragment-->
