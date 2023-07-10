@@ -35,3 +35,12 @@ image: img/eae4c541-ae4f-4cf0-8656-b1f2486a2660.jpg
   ![Floerns Women\&#39;s Summer Floral Cherry Print A Line Short Cami Dress](https://m.media-amazon.com/images/I/81gWSKmzAnL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* MakeMeChic Women’s Sleeveless V Neck Tie Waist Short Flowy Swing Dress
+  PRICE- $10xx ONLY
+  SIZE S- XL\
+  https://amzn.to/3JRpBrP 
+  (AD)<!--StartFragment-->
+
+  ![MakeMeChic Women\&#39;s Sleeveless V Neck Tie Waist Short Flowy Swing Dress](https://m.media-amazon.com/images/I/71YeKfVZ6DL._AC_UY879_.jpg)
+
+  <!--EndFragment-->
