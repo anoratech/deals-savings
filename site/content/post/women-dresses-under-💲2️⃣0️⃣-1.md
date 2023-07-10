@@ -14,8 +14,6 @@ image: img/eae4c541-ae4f-4cf0-8656-b1f2486a2660.jpg
 
   ![ZWRXW Maxi Dresses for Women 2023 Casual Plus Size Floral Print Empire Waist Long Dress Short Sleeve Dress with Pockets](https://m.media-amazon.com/images/I/61djlY0qr7S._AC_UX679_.jpg)
 
-  <!--EndFragment-->
-
   ![]()
 * Womens Summer Dresses Beach Casual Tshirt Plus Size Floral Short Sleeve Loose Flowy Sundresses
   SIZE S- 5XL
@@ -24,8 +22,6 @@ image: img/eae4c541-ae4f-4cf0-8656-b1f2486a2660.jpg
   (AD)<!--StartFragment-->
 
   ![Womens Summer Dresses Beach Casual Tshirt Plus Size Floral Short Sleeve Loose Flowy Sundresses](https://m.media-amazon.com/images/I/918Y0qN75ML._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * Floerns Women’s Summer Floral Cherry Print A Line Short Cami Dress
   SIZE- XS- L
   PRICE- $16xx ONLY\
@@ -33,8 +29,6 @@ image: img/eae4c541-ae4f-4cf0-8656-b1f2486a2660.jpg
   (AD)<!--StartFragment-->
 
   ![Floerns Women\&#39;s Summer Floral Cherry Print A Line Short Cami Dress](https://m.media-amazon.com/images/I/81gWSKmzAnL._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * MakeMeChic Women’s Sleeveless V Neck Tie Waist Short Flowy Swing Dress
   PRICE- $10xx ONLY
   SIZE S- XL\
@@ -42,8 +36,6 @@ image: img/eae4c541-ae4f-4cf0-8656-b1f2486a2660.jpg
   (AD)<!--StartFragment-->
 
   ![MakeMeChic Women\&#39;s Sleeveless V Neck Tie Waist Short Flowy Swing Dress](https://m.media-amazon.com/images/I/71YeKfVZ6DL._AC_UY879_.jpg)
-
-  <!--EndFragment-->
 * Summer Dresses for Women Beach Floral Tshirt Sundress Sleeveless Pockets Casual Loose Tank Dress 
   https://amzn.to/3rdDz0u 
   SIZE S-XXXL 
@@ -52,5 +44,3 @@ image: img/eae4c541-ae4f-4cf0-8656-b1f2486a2660.jpg
   (AD)<!--StartFragment-->
 
   ![Summer Dresses for Women Beach Floral Tshirt Sundress Sleeveless Pockets Casual Loose Tank Dress](https://m.media-amazon.com/images/I/81SoFQNZ90L._AC_UY741_.jpg)
-
-  <!--EndFragment-->
