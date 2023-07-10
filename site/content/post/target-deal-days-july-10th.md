@@ -52,3 +52,15 @@ AD
   🌿🌿AD
 
   ![](img/whatsapp-image-2023-07-10-at-17.04.02.jpg)
+* <!--StartFragment-->
+
+  🎯🎯Nespresso Vertuo Pop+ Coffee Maker and Espresso Machine\
+  NOW- $99.99 (REG- $129.99)\
+  🅾🅽 🅳🆁🅾🅿 https://mavely.app.link/e/doVdwOr0jBb\
+  (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![No photo description available.](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/358148212_5766964700107566_506318061714960031_n.jpg?stp=dst-jpg_p843x403&_nc_cat=103&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=hsHo_AYx53gAX-lMjJ5&_nc_ht=scontent.fccu11-1.fna&oh=00_AfCPskJoWtV1R7P0BaeswW-fZpN-YyhJhfKGl13x7D6IKg&oe=64B00582)
+
+  <!--EndFragment-->
