@@ -1,0 +1,8 @@
+---
+title: WALMART 10TH JULY HOT DEALS
+date: 2023-07-10T04:36:20.348Z
+tags: "WALMART "
+Category: OTHERS
+description: TRENDING GREAT DEALS
+---
+*
