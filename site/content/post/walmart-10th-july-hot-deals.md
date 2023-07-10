@@ -13,7 +13,7 @@ description: TRENDING GREAT DEALS
   ![](https://i5.walmartimages.com/asr/8ae44859-c0d0-43c0-bcb5-ff4cd327d8c0.f7225bde09b824c66517c78d78cc10d0.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
   ![]()
-*   DHP Sunnybrook Rustic 5-Piece Dining Set, Rustic /Espresso ![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/t5c/1/16/1f4b2.png)213
+*   DHP Sunnybrook Rustic 5-Piece Dining Set, Rustic /Espresso $213
 
    [https://shopstyle.it/l/bYwji](https://shopstyle.it/l/bYwji?fbclid=IwAR1QvkGe4y0wiQJgNCCPU6dLWDnljCK0B1wxurekSrNiV1p0jstKlfVJ-nY)
 
