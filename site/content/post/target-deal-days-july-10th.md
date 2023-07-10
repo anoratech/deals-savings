@@ -46,3 +46,9 @@ AD
   Target Online Dorm Home Appliances Sale🎯🎯🎯🎯 ad
 
   ![](img/whatsapp-image-2023-07-10-at-17.04.02.jpg)
+* https://mavely.app.link/e/WhzDHBMNjBb
+  Baby & Kids Summer Deals from $5 at Target 🎯🎯🎯🎯
+  🎀🎀🅷🆄🅶🅴 🅳🅸🆂🅲🅾🆄🅽🆃🎀🎀
+  🌿🌿AD
+
+  ![](img/whatsapp-image-2023-07-10-at-17.04.02.jpg)
