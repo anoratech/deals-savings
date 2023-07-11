@@ -8,6 +8,24 @@ image: img/walmart-labor-day-sale-3.2-01-scaled.jpg
 ---
 <!--StartFragment-->
 
+Rockland Luggage Journey 4 Piece Softside Expandable Luggage Set F32
+
+Now $69.70
+
+was $219.00
+
+Price when purchased online
+
+https://shopstyle.it/l/bYAAc
+
+ad
+
+<!--StartFragment-->
+
+![May be an image of suitcase and text](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/359817335_760011126134271_4189382908870822141_n.jpg?stp=dst-jpg_p526x296&_nc_cat=101&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=Cwpm9Py48jEAX9LeUuO&_nc_ht=scontent.fccu31-1.fna&oh=00_AfDO_A4hkNT6wcE7ydVWE_L6hxrcX1RCRm6HBTNbBGdAig&oe=64B2007E)
+
+<!--EndFragment-->
+
 5 Surprise Mini Brands Series 4 Mystery Capsule Real Miniature Brands Collectible Toy by ZURU
 
 Now $3.00
