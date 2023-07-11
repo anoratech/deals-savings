@@ -8,6 +8,24 @@ image: img/walmart-labor-day-sale-3.2-01-scaled.jpg
 ---
 <!--StartFragment-->
 
+WALMART+ EARLY ACCESS DEAL!
+
+88% Off
+
+Cate & Chloe Bianca 18k White Gold Hoop Female Earrings with Swarovski Crystals
+
+Huge drop
+
+**Now $15.99**
+
+was $135.00
+
+https://shopstyle.it/l/bYAz2 ad 
+
+![May be an image of ring](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/358392104_2960097264121804_6086717025192416001_n.jpg?stp=dst-jpg_p526x296&_nc_cat=106&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=IE_dPKAfg5sAX_GwPny&_nc_ht=scontent.fccu31-1.fna&oh=00_AfBI1rIGYjiylmDyyzf0s53Gi4ZvTVw3Qqt3zaK006HL5Q&oe=64B1E774)
+
+<!--EndFragment-->
+
 LaCoo 2 Pack Patio Lero Gravity Chair Outdoor Lounge Chair Textilene Fabric Adjustable Recline Chair Seating
 
 Capacity 2, Blue
