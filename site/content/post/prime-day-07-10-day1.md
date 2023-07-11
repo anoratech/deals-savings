@@ -148,7 +148,7 @@ image: img/acb8df24-300d-44ff-bab9-823ee5157ded.jpg
   ![](https://m.media-amazon.com/images/I/71VsQTsx26L._AC_SL1267_.jpg)
 
   <!--EndFragment-->
-* ‼️PicassoTiles 60 Piece Set ‼️
+* ‼️PicassoTiles 60 Piece Set‼️
   50%OFF
   https://amzn.to/3pHyY6w
   AD\
