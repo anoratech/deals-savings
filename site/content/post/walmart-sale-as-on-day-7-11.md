@@ -8,6 +8,24 @@ image: img/walmart-labor-day-sale-3.2-01-scaled.jpg
 ---
 <!--StartFragment-->
 
+Galanz 1.7 Cu ft Single Door Mini Fridge, Black
+
+**Now $84.00**
+
+was $109.99
+
+Price when purchased online
+
+[https://shopstyle.it/l/bYycx](https://shopstyle.it/l/bYycx?fbclid=IwAR3u3USmdVEtPquu6mlus-A3zhZol4yWAqeFC7oZlRFqUTFr2icVn88kXYg)
+
+ad
+
+<!--EndFragment-->
+
+![May be an image of speaker, water heater and text that says 'Galanz'](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/358092438_2960088054122725_8028707106304641219_n.jpg?stp=dst-jpg_p526x296&_nc_cat=107&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=65WgWMjlIXoAX-CI4Mj&_nc_ht=scontent.fccu31-1.fna&oh=00_AfCoLU_efTAyLnfXl5ordrs3NvZpkUBYXjBrfHX42WtARQ&oe=64B15F62)
+
+<!--EndFragment-->
+
 Coach Dreams Eau De Parfum, Perfume for Women, 3 oz
 
 **Now $39.95**
