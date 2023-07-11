@@ -12,14 +12,9 @@ image: img/acb8df24-300d-44ff-bab9-823ee5157ded.jpg
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81VGcUoaNtL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 💟💟PRIME DAY EXCLUSIVE 💟💟
   Bissell Little Green, Floorcare, and Air Purifier 
   https://amzn.to/3D9P5gm 
 
   (AD)
-
-![]()
-
-.
+*
