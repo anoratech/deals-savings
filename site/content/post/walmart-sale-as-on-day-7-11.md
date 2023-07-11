@@ -8,6 +8,24 @@ image: img/walmart-labor-day-sale-3.2-01-scaled.jpg
 ---
 <!--StartFragment-->
 
+LaCoo 2 Pack Patio Lero Gravity Chair Outdoor Lounge Chair Textilene Fabric Adjustable Recline Chair Seating
+
+Capacity 2, Blue
+
+**Now $79.99**
+
+was $169.99
+
+[https://shopstyle.it/l/bYylD](https://shopstyle.it/l/bYylD?fbclid=IwAR1CWXvdD87HRKSbeNgCP4Zv4_grimHU0uGErnyfSW9qEfrSC0cpnI55myo)
+
+ad
+
+<!--EndFragment-->
+
+![No photo description available.](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/358652561_2960098174121713_4322395595768176479_n.jpg?stp=dst-jpg_p526x296&_nc_cat=100&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=eJHprnx5GQ0AX9IHUN-&_nc_ht=scontent.fccu31-1.fna&oh=00_AfA7ztz-JoxTCm6j8A3q9-kaWUBuYv4OTPwhk_rxRt7H1A&oe=64B1EF64)
+
+<!--EndFragment-->
+
 BAZIC Elementary School Kit Supply Box 86ct
 
 **Now $33.59**
