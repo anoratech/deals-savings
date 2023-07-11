@@ -8,6 +8,19 @@ image: img/walmart-labor-day-sale-3.2-01-scaled.jpg
 ---
 <!--StartFragment-->
 
+Toddler Girls Stripe Dress 1- 6 Years on Clearance\
+Now $9.39\
+was $11.85\
+Price when purchased online\
+<https://shopstyle.it/l/bYAoZ>\
+ad
+
+<!--StartFragment-->
+
+![No photo description available.](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/358455350_2960443624087168_306813657369118266_n.jpg?stp=dst-jpg_p526x296&_nc_cat=104&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=KfDHkRKVamUAX8WicjC&_nc_ht=scontent.fccu31-1.fna&oh=00_AfCpSPFHSrvGNW9af94-_l_lw9kXpyb41e8rqVMzOO1FTA&oe=64B19F13)
+
+<!--EndFragment-->
+
 Hatchimals CollEGGtibles Wolf Family Carton with Surprise Playset\
 Now $5.00\
 was $19.97\
