@@ -8,6 +8,18 @@ image: img/walmart-labor-day-sale-3.2-01-scaled.jpg
 ---
 <!--StartFragment-->
 
+![May be an image of text](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/358441639_2960432217421642_7342867417785193968_n.jpg?stp=dst-jpg_p526x296&_nc_cat=107&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=-Jco0Y8iwT4AX8ytYTR&_nc_ht=scontent.fccu31-1.fna&oh=00_AfCcw2hG2dBDPNVolirJVvrqj2P93pAr00V-GpZPxx3Ufw&oe=64B174A7)
+
+<!--EndFragment-->
+
+Cricut Joy Smart Machine with DIY Vinyl Decal Sampler & Essential Tools Starter Bundle\
+Now $159.99\
+was $265.35\
+<https://shopstyle.it/l/bYApF>\
+ad
+
+<!--EndFragment-->
+
 Home Cardio Workout Bicycle Machine
 
 **Now $199.99**
