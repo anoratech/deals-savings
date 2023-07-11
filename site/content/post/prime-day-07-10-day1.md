@@ -121,3 +121,15 @@ image: img/acb8df24-300d-44ff-bab9-823ee5157ded.jpg
   ![](https://m.media-amazon.com/images/I/81VGcUoaNtL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ♨️♨️PRIME DAY EXCLUSIVE ♨️♨️\
+  Echo Devices and Smart Home Bundles\
+  <https://amzn.to/3pJyrB0>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Amazon Deal: Echo Devices and Smart Home bundles](https://external.fccu11-1.fna.fbcdn.net/emg1/v/t13/9652607679958052470?url=https%3A%2F%2Fm.media-amazon.com%2Fimages%2FG%2F01%2Fkindle%2F2019%2Feditorial%2Ffsa_DpgHoTnltskQ_FlexibleProductImage_2x._CLa%257C600%2C315%257C318bo8H6J0L.png%257C285%2C0%2C315%2C315%2B0%2C0%2C300%2C315_.jpg&fb_obo=1&utld=media-amazon.com&stp=c0.5000x0.5000f_dst-jpg_flffffff_p500x261_q75&ccb=13-1&oh=06_AbGuG1XXDMWq1YBk6Z5Z5JR0rqaawVE4g2r6bOHyBsp7qg&oe=64AE9B69&_nc_sid=4e60e3)
+
+  <!--EndFragment-->
