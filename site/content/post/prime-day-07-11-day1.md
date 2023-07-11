@@ -17,4 +17,14 @@ image: img/acb8df24-300d-44ff-bab9-823ee5157ded.jpg
   https://amzn.to/3D9P5gm 
 
   (AD)
-*
+* <!--StartFragment-->
+
+  PRIME DAY EXCLUSIVE ♨️♨️
+
+  Echo Devices and Smart Home Bundles
+
+  https://amzn.to/3pJyrB0
+
+  (AD)
+
+  <!--EndFragment-->
