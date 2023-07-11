@@ -8,6 +8,19 @@ image: img/walmart-labor-day-sale-3.2-01-scaled.jpg
 ---
 <!--StartFragment-->
 
+Children Frog Potty Toilet Training\
+Now $12.68\
+was $16.73\
+Price when purchased online\
+<https://shopstyle.it/l/bYAqc>\
+ad
+
+<!--EndFragment-->
+
+![May be an image of amphibian and toy](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/358447920_2960445867420277_7706545220005060763_n.jpg?stp=dst-jpg_p526x296&_nc_cat=101&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=uZAiEA_VGowAX-TfxQB&_nc_ht=scontent.fccu31-1.fna&oh=00_AfCqD0rEoit6aIJRVR9fLYaU2fEb2ebnGBOYOV7rNw-0HA&oe=64B1D987)
+
+<!--EndFragment-->
+
 onn. Bluetooth True Wireless Headphones with Charging Case, White,
 
 **Now $9.88**
