@@ -8,6 +8,24 @@ image: img/walmart-labor-day-sale-3.2-01-scaled.jpg
 ---
 <!--StartFragment-->
 
+5 Surprise Mini Brands Series 4 Mystery Capsule Real Miniature Brands Collectible Toy by ZURU
+
+Now $3.00
+
+was $7.47
+
+Price when purchased online
+
+https://shopstyle.it/l/bYAz9
+
+ad
+
+<!--EndFragment-->
+
+![5 Surprise Mini Brands Series 4 Mystery Capsule Real Miniature Brands Collectible Toy by ZURU](https://i5.walmartimages.com/asr/c95623aa-d976-4013-9b3c-446b8de4b16e.afc0f1eb3bcb8a360b057dc17301df22.png?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+<!--EndFragment-->
+
 Galanz 1.7 Cu ft Single Door Mini Fridge, Black
 
 **Now $84.00**
