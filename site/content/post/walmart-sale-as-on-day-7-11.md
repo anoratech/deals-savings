@@ -8,6 +8,22 @@ image: img/walmart-labor-day-sale-3.2-01-scaled.jpg
 ---
 <!--StartFragment-->
 
+BAZIC Elementary School Kit Supply Box 86ct
+
+**Now $33.59**
+
+was $47.99
+
+[https://shopstyle.it/l/bYynD](https://shopstyle.it/l/bYynD?fbclid=IwAR09mXHxSnhg5ZVpLI6KCSrc8VdtNQ0DUmWXJ5eji4JJenYix-5eCgFWxY4)
+
+ad
+
+<!--EndFragment-->
+
+![May be an image of diary and text](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/358153978_2960100104121520_3049925010608467580_n.jpg?stp=dst-jpg_p526x296&_nc_cat=100&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=EQKyH8JUaRoAX9VpfVD&_nc_ht=scontent.fccu31-1.fna&oh=00_AfBqRdCh-cCfFhJVl0mYk_ghbjsbbP_dzZ3VDBHd5gvSTg&oe=64B16A7D)
+
+<!--EndFragment-->
+
 Lifetime Heavy-Duty 80 Gallon Plastic Deck Box, Beige
 
 **Now $77.00**
