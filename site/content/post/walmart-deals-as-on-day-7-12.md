@@ -127,4 +127,18 @@ ad
 
 ![SMILE MART Modern Velvet Adjustable Swivel Office Chair, Pink](https://i5.walmartimages.com/asr/b709acf1-14bc-484d-b4b8-8c69d1dae7d4.5e2459ba3fa8c39e336150c8b9a905d4.png?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Soft Fluffy Area Rug
+
+Now $42.99
+
+was $68.99
+
+https://go.shopyourlikes.com/pi/12c8cf160158783ea77b36c0a9c465c16245cbcb?afId=711386&afCreativeId=2996
+
+ad
+
+![Noahas Soft Fluffy Area Rug for Living Room Bedroom Shaggy Accent Carpets for Kids Girls Rooms Pink, 5 x 8 Feet](https://i5.walmartimages.com/asr/a5a7eb20-6057-46d2-bdf9-53d501ecfe73.e5f2298a9a6f9964f7ac7cc9438f05fa.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
 <!--EndFragment-->
