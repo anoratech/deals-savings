@@ -95,6 +95,21 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   <!--StartFragment-->
 
   ![May be an image of pallette and text](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/358538710_2961224797342384_3961051812652602987_n.jpg?stp=dst-jpg_p526x296&_nc_cat=106&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=ItKSe48nKjQAX-LzDxc&_nc_ht=scontent.fccu31-1.fna&oh=00_AfC0J1cHVA0w2uQHwvuTpYEiLuhQpdvG3pYBP_j2Ep9lmw&oe=64B3FD5A)
+* <!--StartFragment-->
+
+  Kids Water Table
+
+  50% oFF
+
+  𝓟𝓻𝓲𝓬𝓮 𝓭𝓻𝓸𝓹
+
+  https://amzn.to/3NRof1v
+
+  ad
+
+  <!--EndFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71x848Z11FL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
 * 💦Huggies 288-Count Baby Wipes 💦
