@@ -7,6 +7,18 @@ description: "(ad) Codes and hot deals go FAST, if the price is different or
   code doesn’t work you missed it  "
 image: img/360_f_324422176_lgn7ntefynaukidu0ppls1u8zb8wsks4.jpg
 ---
+Melissa & Doug 20 Wooden Animal Magnets in a Box
+
+50% off
+
+Prime day deal
+
+https://amzn.to/3DbeG8z
+
+ad
+
+![](img/1098ec53-f259-4c78-8eb1-e6ba7e8711aa.jpeg)
+
 Minnie Mouse Recycling Truck
 
 Price drop
