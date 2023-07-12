@@ -78,6 +78,23 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   <!--EndFragment-->
 
   ![](https://m.media-amazon.com/images/I/81Xrg4lbuWL._AC_SL1500_.jpg)
+* <!--StartFragment-->
+
+  Professional All in One Makeup Kit MU12 (WHITEC)
+
+  63% Off
+
+  𝓟𝓻𝓲𝓶𝓮 𝓭𝓪𝔂 𝓭𝓮𝓪𝓵
+
+  https://amzn.to/46NDBga
+
+  AD
+
+
+
+  <!--StartFragment-->
+
+  ![May be an image of pallette and text](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/358538710_2961224797342384_3961051812652602987_n.jpg?stp=dst-jpg_p526x296&_nc_cat=106&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=ItKSe48nKjQAX-LzDxc&_nc_ht=scontent.fccu31-1.fna&oh=00_AfC0J1cHVA0w2uQHwvuTpYEiLuhQpdvG3pYBP_j2Ep9lmw&oe=64B3FD5A)
 
   <!--EndFragment-->
 * 💦Huggies 288-Count Baby Wipes 💦
