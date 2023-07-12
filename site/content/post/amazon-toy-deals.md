@@ -9,6 +9,18 @@ image: img/360_f_324422176_lgn7ntefynaukidu0ppls1u8zb8wsks4.jpg
 ---
 <!--StartFragment-->
 
+ 12-Inch Maisha Brown Beaver 
+
+https://amzn.to/3PTg8Ef 
+
+a﻿d 
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/61-4vk-DJdL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 Build N Learn Activity Table with 30 Pieces,
 
 [https://amzn.to/3XK2LrT](https://amzn.to/3XK2LrT?fbclid=IwAR0YTIRk2ETDUP2nXQWW1KgrAcN6Zy2avoN-ZOJfjnzalYVOlTM-IRFKcUE)
