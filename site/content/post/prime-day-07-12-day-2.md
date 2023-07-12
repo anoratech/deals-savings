@@ -37,6 +37,19 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   <!--EndFragment-->
 
   ![](https://m.media-amazon.com/images/I/616j0VgQq4L._AC_SL1500_.jpg)
+* <!--StartFragment-->
+
+  Ailltopd Portable Carpet Cleaner Machine
+
+  𝓟𝓻𝓲𝓶𝓮 𝓭𝓪𝔂 𝓭𝓮𝓪𝓵
+
+  https://amzn.to/3NOB8t9
+
+  ad
+
+  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61U2N9iUCDL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
 * 💦Huggies 288-Count Baby Wipes 💦
