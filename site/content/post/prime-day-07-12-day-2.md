@@ -13,168 +13,6 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   AD\
 
   ![](https://m.media-amazon.com/images/I/71-gW+T7rTL._SL1500_.jpg)
-* <!--StartFragment-->
-
-  Homgava Two Person Hammock with Stand Heavy Duty,
-
-  https://amzn.to/46Ofttx
-
-  𝒫𝓇𝒾𝒸𝑒 𝒹𝓇𝑜𝓅
-
-  ad
-
-  ![No photo description available.](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/360133497_2961219884009542_8734671263370398929_n.jpg?stp=dst-jpg_p526x296&_nc_cat=100&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=yc8HmtBPrWMAX_EW4eq&_nc_ht=scontent.fccu31-1.fna&oh=00_AfBfYsxXzPho0CzW7OYMjBpL0bBobVtqVi7sXPaYgQGenQ&oe=64B2F3D3)
-* <!--StartFragment-->
-
-  3 Fold Spa Bed
-
-  Price Drop
-
-  https://amzn.to/3PPexPJ
-
-  ad
-
-  <!--EndFragment-->
-
-  ![](https://m.media-amazon.com/images/I/616j0VgQq4L._AC_SL1500_.jpg)
-* <!--StartFragment-->
-
-  Ailltopd Portable Carpet Cleaner Machine
-
-  𝓟𝓻𝓲𝓶𝓮 𝓭𝓪𝔂 𝓭𝓮𝓪𝓵
-
-  https://amzn.to/3NOB8t9
-
-  ad
-
-  <!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/61U2N9iUCDL._AC_SL1500_.jpg)
-* <!--StartFragment-->
-
-  Build N Learn Activity Table with 30 Pieces,
-
-  https://amzn.to/3XK2LrT
-
-  41% Off
-
-  ad
-
-  <!--EndFragment-->
-
-  ![](https://m.media-amazon.com/images/I/61oFk+YfusL._AC_SL1500_.jpg)
-* <!--StartFragment-->
-
-  Instant Pop Up Tent,
-
-  𝓟𝓻𝓲𝓶𝓮 𝓭𝓪𝔂 𝓭𝓮𝓪𝓵
-
-  𝓟𝓻𝓲𝓬𝓮 𝓭𝓻𝓸𝓹
-
-  https://amzn.to/3O82mMC
-
-  ad
-
-  <!--EndFragment-->
-
-  ![](https://m.media-amazon.com/images/I/81Xrg4lbuWL._AC_SL1500_.jpg)
-* <!--StartFragment-->
-
-  Professional All in One Makeup Kit MU12 (WHITEC)
-
-  63% Off
-
-  𝓟𝓻𝓲𝓶𝓮 𝓭𝓪𝔂 𝓭𝓮𝓪𝓵
-
-  https://amzn.to/46NDBga
-
-  AD
-
-
-
-  <!--StartFragment-->
-
-  ![May be an image of pallette and text](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/358538710_2961224797342384_3961051812652602987_n.jpg?stp=dst-jpg_p526x296&_nc_cat=106&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=ItKSe48nKjQAX-LzDxc&_nc_ht=scontent.fccu31-1.fna&oh=00_AfC0J1cHVA0w2uQHwvuTpYEiLuhQpdvG3pYBP_j2Ep9lmw&oe=64B3FD5A)
-* <!--StartFragment-->
-
-  Kids Water Table
-
-  50% oFF
-
-  𝓟𝓻𝓲𝓬𝓮 𝓭𝓻𝓸𝓹
-
-  https://amzn.to/3NRof1v
-
-  ad
-
-  <!--EndFragment-->
-
-  ![](https://m.media-amazon.com/images/I/71x848Z11FL._AC_SL1500_.jpg)
-* <!--StartFragment-->
-
-  Lucky Brand Men's Venice Burnout Notch Neck Tee Shirt
-
-  ℙ𝕣𝕚𝕞𝕖 𝕕𝕒𝕪 𝕕𝕖𝕒𝕝
-
-  51% Off
-
-  https://amzn.to/46L7PQz
-
-  ad
-
-   
-
-  ![Lucky Brand Men\&#39;s Venice Burnout Notch Neck Tee Shirt](https://m.media-amazon.com/images/I/917vcFp1ybL._AC_UX679_.jpg)
-* <!--StartFragment-->
-
-  Baby Sleep Machine Plays 6 Sounds & Lullabies,
-
-  https://amzn.to/3XNosqN
-
-  40% Off ℙ𝕣𝕚𝕞𝕖 𝕕𝕒𝕪 𝕕𝕖𝕒𝕝
-
-  ad
-
-  <!--EndFragment-->
-
-  ![Homedics MyBaby SoundSpa Lullaby Sound Machine \&amp; Projector – Baby Sleep Machine Plays 6 Sounds \&amp; Lullabies, Projects Soothing Images - Auto-Off Timer Perfect for Naptime, Adjustable White Noise Volume](https://m.media-amazon.com/images/I/5138ROMooRL._SX425_.jpg)
-* <!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/71rimxfInpL._AC_SL1500_.jpg)
-
-  <!--EndFragment--> ﻿
-
-  Apple Watch Series 8 https://amzn.to/46J0KjG ad
-* <!--StartFragment-->
-
-  Cotton & Calm Kitchen Towels and Dishcloths Sets-12 Pack
-
-  https://amzn.to/3JPS7dl
-
-  ad
-
-  <!--EndFragment-->
-
-  ![](https://m.media-amazon.com/images/I/71Ac94NItNL._AC_SL1000_.jpg)
-* <!--StartFragment-->
-
-  Hula Home Hair Spray Bottle
-
-  ℙ𝕣𝕚𝕔𝕖 𝕕𝕣𝕠𝕡
-
-  𝔾𝕣𝕒𝕓 & 𝕘𝕠
-
-  https://amzn.to/46MryzG
-
-  40% Off
-
-  ad
-
-  <!--EndFragment-->
-
-  ![](https://m.media-amazon.com/images/I/61hBDatnE8S._SL1500_.jpg)
-
-  <!--EndFragment-->
 * 💦Huggies 288-Count Baby Wipes 💦
   ✂️𝗦&𝗦✂️
   https://amzn.to/3XNlO4p
@@ -213,13 +51,13 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   https://amzn.to/43fIICx
   AD\
 
-  ![The Children\&#39;s Place Girls\&#39; Short Sleeve High Low Tee](https://m.media-amazon.com/images/I/71-evdib9JL._AC_UX425_.jpg)
+  ![](https://m.media-amazon.com/images/I/71-evdib9JL._AC_UX425_.jpg)
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   🧦🧦Fruit of the Loom Girls' 10-Pair Everyday Soft No Show Socks 🧦🧦
   https://amzn.to/3pN3tYz
   AD\
 
-  ![Fruit of the Loom Girls\&#39; 10-Pair Everyday Soft No Show Socks](https://m.media-amazon.com/images/I/718GLjr2T5S._AC_UY500_.jpg)
+  ![](https://m.media-amazon.com/images/I/718GLjr2T5S._AC_UY500_.jpg)
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   🧦🧦Fruit of the Loom boys Half Cushion Socks 🧦🧦
   🔥 52% OFF 🔥 
@@ -330,7 +168,7 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   https://amzn.to/44CBQ3m
   AD\
 
-  ![NORTIV 8 Women\&#39;s Winter Snow Boots Slip on Insulated Fur Lightweight Cold Weather Boots](https://m.media-amazon.com/images/I/613baJ8IJsL._AC_UY500_.jpg)
+  ![](https://m.media-amazon.com/images/I/613baJ8IJsL._AC_UY500_.jpg)
 * 🏃‍♀️Just Grab n Go🏃
   For Prime Day 
   💦So Many Shower Curtain 💦
@@ -344,6 +182,9 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   AD\
 
   ![](https://m.media-amazon.com/images/I/71k8Q8OEczL._SL1500_.jpg)
+
+  <!--EndFragment-->
+
 * ‼️ Prime Exclusive Deal ‼️
   🎀Baby Bassinet Bedside Sleeper Bedside Crib Easy Folding Portable Crib, Grey🎀
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
