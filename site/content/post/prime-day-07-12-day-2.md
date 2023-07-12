@@ -138,6 +138,13 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   <!--EndFragment-->
 
   ![Homedics MyBaby SoundSpa Lullaby Sound Machine \&amp; Projector – Baby Sleep Machine Plays 6 Sounds \&amp; Lullabies, Projects Soothing Images - Auto-Off Timer Perfect for Naptime, Adjustable White Noise Volume](https://m.media-amazon.com/images/I/5138ROMooRL._SX425_.jpg)
+* <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71rimxfInpL._AC_SL1500_.jpg)
+
+  <!--EndFragment--> ﻿
+
+  Apple Watch Series 8 https://amzn.to/46J0KjG ad
 
   <!--EndFragment-->
 * 💦Huggies 288-Count Baby Wipes 💦
