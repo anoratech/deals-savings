@@ -50,6 +50,19 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61U2N9iUCDL._AC_SL1500_.jpg)
+* <!--StartFragment-->
+
+  Build N Learn Activity Table with 30 Pieces,
+
+  https://amzn.to/3XK2LrT
+
+  41% Off
+
+  ad
+
+  <!--EndFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61oFk+YfusL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
 * 💦Huggies 288-Count Baby Wipes 💦
