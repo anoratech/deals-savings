@@ -286,3 +286,12 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   ![](https://m.media-amazon.com/images/I/81Vhv6+EIcL._SL1500_.jpg)
 
   <!--EndFragment-->
+* 🔥🔥PRIME DAY DEAL 🔥🔥
+  ‼️‼️ 𝔾ℝ𝔼𝔸𝕋 𝔻ℝ𝕆ℙ ‼️‼️
+  Fire TV Stick with Alexa Voice Remote (includes TV controls) 
+  https://amzn.to/3OaKQr2 
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61v5vPpgDLL._AC_SL1000_.jpg)
+
+  <!--EndFragment-->
