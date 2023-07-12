@@ -182,9 +182,6 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   AD\
 
   ![](https://m.media-amazon.com/images/I/71k8Q8OEczL._SL1500_.jpg)
-
-  <!--EndFragment-->
-
 * ‼️ Prime Exclusive Deal ‼️
   🎀Baby Bassinet Bedside Sleeper Bedside Crib Easy Folding Portable Crib, Grey🎀
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
@@ -274,3 +271,18 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   AD\
 
   ![](https://m.media-amazon.com/images/I/61PI8akrKOL._AC_SL1500_.jpg)
+* <!--StartFragment-->
+
+  Prime Day Deal🚨
+
+  Baby Einstein Activity Jumper 🐛
+
+  https://amzn.to/3XKisPL
+
+  (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81Vhv6+EIcL._SL1500_.jpg)
+
+  <!--EndFragment-->
