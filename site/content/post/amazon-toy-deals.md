@@ -106,3 +106,12 @@ ad
 ![No photo description available.](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/360090227_721064663364360_2392220318619062662_n.jpg?stp=dst-jpg_p526x296&_nc_cat=111&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=eI7dzU4Zn-wAX9Lu4ba&_nc_ht=scontent.fccu31-1.fna&oh=00_AfC4IKfP7UVcuImyUPThjGcLTTRmX2R7lxlz9Yj93HwSKg&oe=64B35A99)
 
 <!--EndFragment-->
+
+* <!--StartFragment-->
+
+  🛑𝙋𝙍𝙄𝙈𝙀 𝘿𝘼𝙔 𝙀𝙓𝘾𝙇𝙐𝙎𝙄𝙑𝙀🔥🔥\
+  GRAB & GO 🏃🏃\
+  <https://amzn.to/46HzhyJ>\
+  (AD)
+
+  <!--EndFragment-->
