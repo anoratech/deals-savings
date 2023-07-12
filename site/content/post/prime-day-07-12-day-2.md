@@ -125,6 +125,19 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
    
 
   ![Lucky Brand Men\&#39;s Venice Burnout Notch Neck Tee Shirt](https://m.media-amazon.com/images/I/917vcFp1ybL._AC_UX679_.jpg)
+* <!--StartFragment-->
+
+  Baby Sleep Machine Plays 6 Sounds & Lullabies,
+
+  https://amzn.to/3XNosqN
+
+  40% Off ℙ𝕣𝕚𝕞𝕖 𝕕𝕒𝕪 𝕕𝕖𝕒𝕝
+
+  ad
+
+  <!--EndFragment-->
+
+  ![Homedics MyBaby SoundSpa Lullaby Sound Machine \&amp; Projector – Baby Sleep Machine Plays 6 Sounds \&amp; Lullabies, Projects Soothing Images - Auto-Off Timer Perfect for Naptime, Adjustable White Noise Volume](https://m.media-amazon.com/images/I/5138ROMooRL._SX425_.jpg)
 
   <!--EndFragment-->
 * 💦Huggies 288-Count Baby Wipes 💦
