@@ -95,4 +95,22 @@ ad
 
 ![Costway 10'x30'Party Wedding Tent Canopy Heavy duty Pavilion 5 Sidewall](https://i5.walmartimages.com/asr/80dedf8b-9e08-47d9-b301-36ba81bfd93c.c01f5f03e00b59ff45882ea3a8f78606.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+9 Pcs Brown Granite Pots and Pans Set,
+
+Now $69.99
+
+was $220.00
+
+Price when purchased online
+
+https://go.shopyourlikes.com/pi/0d9d891a6774985c3bc7acd241a28b4f8df4bea8?afId=711386&afCreativeId=2996
+
+ad
+
+<!--EndFragment-->
+
+![Carote Nonstick Granite Cookware Sets, 9 Pcs Brown Granite Pots and Pans Set, Induction Stone Kitchen Cooking Set](https://i5.walmartimages.com/asr/c66581ab-3662-4cf0-bb02-5d1ad5a04aa0.e402c1ee95e17ecbe18c127ebf9e512b.png?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
