@@ -38,4 +38,17 @@ ad
 
 ![Frigidaire 10.3 Cu. ft. Chest Freezer, EFRF1003, White](https://i5.walmartimages.com/seo/Frigidaire-10-3-Cu-ft-Chest-Freezer-EFRF1003-White_9def0c52-cfc2-4be3-b1cc-c7fe067184be.125d07925ecd056b96801f64fefc3601.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+\
+TCL 65" Class 5-Series 4K UHD QLED Dolby Vision HDR Roku Smart TV - 65S531\
+Now $398.00\
+was $528.00\
+https://shopstyle.it/l/bYEn1\
+ad
+
+<!--EndFragment-->
+
+![TCL 65" Class 5-Series 4K UHD QLED Dolby Vision HDR Roku Smart TV - 65S531](https://i5.walmartimages.com/seo/TCL-65-Class-5-Series-4K-UHD-QLED-Dolby-Vision-HDR-Roku-Smart-TV-65S531_c817136d-8463-4523-b303-f52c994d397f.2338c1f17ac16affa44b081688e00559.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
 <!--EndFragment-->
