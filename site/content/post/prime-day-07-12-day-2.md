@@ -4,6 +4,7 @@ date: 2023-07-12T08:19:13.533Z
 tags: AMAZON
 Category: MANY MORE
 description: HOT DEALS
+image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
 ---
 * 🏃🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃🏃‍♀️
   💜💕BIC Soleil Smooth Scent Women’s 💜💕for 2 packs 
