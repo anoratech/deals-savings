@@ -110,6 +110,21 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   <!--EndFragment-->
 
   ![](https://m.media-amazon.com/images/I/71x848Z11FL._AC_SL1500_.jpg)
+* <!--StartFragment-->
+
+  Lucky Brand Men's Venice Burnout Notch Neck Tee Shirt
+
+  ℙ𝕣𝕚𝕞𝕖 𝕕𝕒𝕪 𝕕𝕖𝕒𝕝
+
+  51% Off
+
+  https://amzn.to/46L7PQz
+
+  ad
+
+   
+
+  ![Lucky Brand Men\&#39;s Venice Burnout Notch Neck Tee Shirt](https://m.media-amazon.com/images/I/917vcFp1ybL._AC_UX679_.jpg)
 
   <!--EndFragment-->
 * 💦Huggies 288-Count Baby Wipes 💦
