@@ -145,6 +145,17 @@ image: img/whatsapp-image-2023-07-12-at-2.23.56-pm.jpeg
   <!--EndFragment--> ﻿
 
   Apple Watch Series 8 https://amzn.to/46J0KjG ad
+* <!--StartFragment-->
+
+  Cotton & Calm Kitchen Towels and Dishcloths Sets-12 Pack
+
+  https://amzn.to/3JPS7dl
+
+  ad
+
+  <!--EndFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71Ac94NItNL._AC_SL1000_.jpg)
 
   <!--EndFragment-->
 * 💦Huggies 288-Count Baby Wipes 💦
