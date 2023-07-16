@@ -70,6 +70,22 @@ ad
 
 ![Costway 8PCS Patio Furniture Set Cushioned Sofa Coffee Table](https://i5.walmartimages.com/asr/8635eaa4-83ef-4d88-91ec-825fef0c99f7.c232622a8bf855296912e5d835c0245b.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+3-Piece Outdoor Patio Furniture Wicker Bistro Set
+
+Now $131.99
+
+was $169.99
+
+https://shopstyle.it/l/bYO54
+
+ad
+
+<!--EndFragment-->
+
+![Dextrus 3-Piece Outdoor Patio Furniture Wicker Bistro Set, All-Weather Rattan Conversation Chairs for Backyard, Balcony and Deck with Soft Cushions, Glass Side Table (Light Brown+Navy Blue)](https://i5.walmartimages.com/asr/f1a7d19c-2415-4010-8007-0a345f783999.99add1c544fe69e394b1f7d766b41b7a.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
 <!--EndFragment-->
 
 <!--EndFragment-->
