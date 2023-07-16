@@ -54,6 +54,22 @@ ad
 
 ![Better Homes & Gardens River Oaks 3-Piece Sofa & Nesting Table Set with Patio Cover](https://i5.walmartimages.com/asr/972d94d7-cce3-46dd-a463-4fc449bbf8e8_4.45b1caf55978cad7f91e106de4e48411.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Costway 8PCS Patio Furniture Set Cushioned Sofa Coffee Table
+
+Now $395.99
+
+was $549.00
+
+https://shopstyle.it/l/bYO5T
+
+ad
+
+<!--EndFragment-->
+
+![Costway 8PCS Patio Furniture Set Cushioned Sofa Coffee Table](https://i5.walmartimages.com/asr/8635eaa4-83ef-4d88-91ec-825fef0c99f7.c232622a8bf855296912e5d835c0245b.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
 <!--EndFragment-->
 
 <!--EndFragment-->
