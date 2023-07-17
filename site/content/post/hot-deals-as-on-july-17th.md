@@ -103,3 +103,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/71P1Jg-9blL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* Waist Bag for Women
+  🚫🚫NO CODE NEEDED 🚫🚫
+  https://amzn.to/3K1uYot
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/617ckEm+A-L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
