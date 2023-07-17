@@ -58,3 +58,53 @@ image: img/whatsapp-image-2023-07-17-at-2.19.52-am.jpeg
   (AD)<!--StartFragment-->
 
   ![Womens Tops 3/4 Sleeve Crewneck Cute Shirts Casual Print Trendy Tops Three Guarter Length T Shirt Summer Pullover](https://m.media-amazon.com/images/I/71-q85-FPcL._AC_UX679_.jpg)
+* PRICE DROP
+  https://mavely.app.link/e/jNndr4VXAAb
+  Hanes Women’s Slub Jersey Shirred V-Neck T Shirt
+  AD<!--StartFragment-->
+
+  ![Hanes Women's Slub Jersey Shirred V-Neck T Shirt](https://i5.walmartimages.com/asr/a29ca2be-022e-45a2-ac9a-a7d746b04ca6_1.d7a2597f4a9b4568ce23f99329bbdd41.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
+  <!--EndFragment-->
+* https://mavely.app.link/e/hk0mWacYAAb
+  Hanes Women's Long Sleeve V-Neck Tee
+  Now $12.00
+  was $17.00 AD<!--StartFragment-->
+
+  ![Hanes Women's Long Sleeve V-Neck Tee](https://i5.walmartimages.com/asr/81ae04b6-542e-40e4-8fa5-d3bbb8e3a7d4.f1fe1bf3572bf7e73de171feebf8b955.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
+  <!--EndFragment-->
+* https://amzn.to/3r3mG8K
+  OQQ Women's 3 Piece Tank Tops Ribbed Seamless Workout Exercise Shirts Yoga Crop Tops
+  AD<!--StartFragment-->
+
+  ![OQQ Women\&#39;s 3 Piece Tank Tops Ribbed Seamless Workout Exercise Shirts Yoga Crop Tops](https://m.media-amazon.com/images/I/51d6OtIphjL._AC_UY679_.jpg)
+
+  <!--EndFragment-->
+* https://amzn.to/3NQKl56
+  ETCYY Womens Cap Sleeve Tops 2023 Trendy Floral Print Summer Tops Loose Fit Lace T Shirts Blouses
+  AD<!--StartFragment-->
+
+  ![ETCYY Womens Cap Sleeve Tops 2023 Trendy Floral Print Summer Tops Loose Fit Lace T Shirts Blouses](https://m.media-amazon.com/images/I/61Uv5Y+nd9L._AC_UY679_.jpg)
+
+  <!--EndFragment-->
+* https://amzn.to/3PFHz3Y
+  Womens Tank Tops Sleeveless Yoga Shirts Summer Tops Loose Fit
+  AD<!--StartFragment-->
+
+  ![Womens Tank Tops Sleeveless Yoga Shirts Summer Tops Loose Fit Running Athletic Shirts](https://m.media-amazon.com/images/I/61-zY7Mt77L._AC_UY679_.jpg)
+
+  <!--EndFragment-->
+* https://mavely.app.link/e/oGU2FJRovBb    Hanes Women's Long Sleeve Crewneck Tee AD<!--StartFragment-->
+
+  ![Hanes Women's Long Sleeve Crewneck Tee](https://i5.walmartimages.com/asr/aeb7bbb0-55fb-48c6-a8db-854af1dcae66.7e2929c9fb668bbf9f1fa12d43604943.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+  <!--EndFragment-->
+
+  \
+
+  <!--EndFragment-->
+*
+*
+*
+*
