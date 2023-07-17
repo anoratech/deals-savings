@@ -17,3 +17,12 @@ image: img/whatsapp-image-2023-07-17-at-2.19.52-am.jpeg
   <!--EndFragment-->
 
   ![]()
+* Women's Blouse Floral Print T-Shirt 
+  $12xx ONLY
+  SIZE S- L
+  https://amzn.to/44OGBai
+  (AD)<!--StartFragment-->
+
+  ![CEASIKERY Women\&#39;s Blouse Floral Print T-Shirt Comfy Casual Tops for Women](https://m.media-amazon.com/images/I/71vpim0u17L._AC_UY879_.jpg)
+
+  <!--EndFragment-->
