@@ -38,157 +38,44 @@ R﻿UN.......
   𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
 
   ![Clorox Bleach-Free Disinfecting and Cleaning Wipes, 105 Count, 3 Pack](https://i5.walmartimages.com/asr/08b844ee-a988-4c1e-a210-b7fb0561ed48.0ea455d6681e78793d76dda63fec4656.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-* <!--StartFragment-->
+* ₱Ɽł₵Ɇ ĐⱤØ₱❣❣
+  https://mavely.app.link/e/xMHJxAY5mBb
+  Callen Silver Wood 4 Drawer Storage Cabinet Silver – Baxton Studio🎯
+  📌AD<!--StartFragment-->
 
-  Back to school supplies under $1 \
-  [https://mavely.app.link/e/iyU5ThjIuBb](https://mavely.app.link/e/iyU5ThjIuBb?fbclid=IwAR3hHOt_GVrufN3rKjC-ySUtR5GDBwH7_mxEzor_ZtXaJoG5L_mgAN8X8MY)\
-  AD
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![Free vector realistic back to school background](https://img.freepik.com/free-vector/realistic-back-school-background_52683-87650.jpg?t=st=1689588201~exp=1689588801~hmac=684995cd9ecd8eba752fb9a7e8cc8ab08f2f6dab1c79a3f0b6dd9aef03e2aa88)
+  ![Callen Silver Wood 4 Drawer Storage Cabinet Silver - Baxton Studio, image 1 of 13 slides](https://target.scene7.com/is/image/Target/GUEST_d9e88f08-3626-44ff-8a6d-5e73d1c5d9bc?wid=475&hei=475&fit=constrain&qlt=80&fmt=webp)
 
   <!--EndFragment-->
-* <!--StartFragment-->
+* ₱Ɽł₵Ɇ ĐⱤØ₱❣❣
+  https://mavely.app.link/e/3ZjI1TR5mBb
+  4 Drawer Skinny Tower Dark Gray - Brightroom™
+  AD<!--StartFragment-->
 
-  [ttps://mavely.app.link/e/etxXHboQpBb](https://mavely.app.link/e/etxXHboQpBb?fbclid=IwAR3CLYF9qU_58vZXicDluVHQ1Z8t4iBKIUFk2_z_Kmhf2yT7RxSi0nnb-wY)
-
-  𝒢𝓇𝒶𝒷 𝒾𝓉….
-
-  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![May be an image of toy and text](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/359364184_6895769147113793_4242089881508540063_n.jpg?stp=dst-jpg_p526x296&_nc_cat=109&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=NJX5v0JeCAIAX92XR97&_nc_oc=AQn65MY7geaqWWu4suRHdOdbQzev3WZUAURwDBjujOiXPGjbmsyhKWXfKHwkZCZZQJEBWV7-3iAWy-ekEfg1BlOv&_nc_ht=scontent.fpat1-1.fna&oh=00_AfBYNJUp21iHZ_UOafCEBo9rPgThMcY5tOttjWrvobdw5A&oe=64BA0790)
+  ![4 Drawer Skinny Tower Dark Gray - Brightroom\&#8482;, image 1 of 5 slides](https://target.scene7.com/is/image/Target/GUEST_9521ee48-2468-4fc0-9d1c-bfe4d9e8b994?wid=475&hei=475&fit=constrain&qlt=80&fmt=webp)
 
   <!--EndFragment-->
-* <!--StartFragment-->
+* ❣ ℍ𝕆𝕋 𝔻𝔼𝔸𝕃🏃‍♀🏃‍♀
+  ₱Ɽł₵Ɇ ĐⱤØ₱❣❣
+  https://mavely.app.link/e/pfQCloK5mBb
+  Stackable Single Shoe Rack Black – Room Essential AD<!--StartFragment-->
 
-  ₱Ɽł₵Ɇ ĐⱤØ₱
-
-  𝒢𝓇𝒶𝒷 𝐼𝓉
-
-  [https://mavely.app.link/e/lsr0P4golBb](https://mavely.app.link/e/lsr0P4golBb?fbclid=IwAR0yUGEy_VIdBpRRI14noRL192gFO3QoAtQNSJ5KG1FuPgW7fLE6WIOA8Gg)
-
-  Fujifilm Instax Mini 12 Camera AD
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![May be an image of polaroid and text](https://scontent.fpat1-2.fna.fbcdn.net/v/t39.30808-6/359178686_6886145024742872_4065688423398206776_n.jpg?_nc_cat=108&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=9pnza03kyy8AX-lAp4L&_nc_ht=scontent.fpat1-2.fna&oh=00_AfDzdTXGi5gSNuJeI8hEsGnyIAMlyiPKdxLTaL1UsN9R6Q&oe=64B962B1)
+  ![Stackable Single Shoe Rack Black - Room Essentials\&#8482;, image 1 of 5 slides](https://target.scene7.com/is/image/Target/GUEST_0741884e-6ae4-4c0e-a672-4e9ce8aeae68?wid=475&hei=475&fit=constrain&qlt=80&fmt=webp)
 
   <!--EndFragment-->
-* <!--StartFragment-->
+* ₱Ɽł₵Ɇ ĐⱤØ₱❣❣
+  https://mavely.app.link/e/H1x2ZlL4mBb
+  Clinique High Impact Mascara – 0.28oz – Ulta Beauty 
+  📌AD<!--StartFragment-->
 
-  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒
-
-  𝐻O𝓉 𝒟𝑒𝒶𝓁
-
-  [https://mavely.app.link/e/6H9KINRKjBb](https://l.facebook.com/l.php?u=https%3A%2F%2Fmavely.app.link%2Fe%2F6H9KINRKjBb%3Ffbclid%3DIwAR0ETD4V4vmuJDkmNgWqRiPNfuAbKmMiVCyte4ItCiBj_uB5N6pOpeodSiU&h=AT15Nx97E_Jq4aBKow2piHVA1WPuVVNDzOkMMHz__3qm-sm5s-QU9OAAeba4oR5--7Lwy9OytUwPYAKspfrLtu6u72_-6b5ZoAUJf8qwJRlrpeU1-ZxYvfRdDYpj8BrZM_Htwm7JHeZrjwprTaAm&__tn__=-UK-R&c%5B0%5D=AT0t1GNXs7W-5uQVnljUOH2XAIRZnpxb9aIl-xDk386O1spyjZ0qVO1fLYKvtjYyZdIw8QsAEJb9jLKL4-5WgYw-fZdf1bgNBtPAYDEXGCqWIk0oh962zidCOJJXABvRjhMbRSYHwVp6aQ)
-
-  Mr. Pen- Assorted Colored Binder Clips, Paper Clips, Rubber Bands AD
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![May be an image of ‎text that says \&ldquo;‎Mr. Clips Assorted Colored Clips and Rubber Bands O د கக‎"‎](https://scontent.fpat1-2.fna.fbcdn.net/v/t39.30808-6/358140715_6882556368435071_8437036520114234794_n.jpg?stp=dst-jpg_p526x296&_nc_cat=104&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=lsc7Ap9AYD0AX-TDNhm&_nc_ht=scontent.fpat1-2.fna&oh=00_AfAznkVssj9FT2h85PPfO5tsHh5eBZc3MhJ0AtgsmskY6A&oe=64B92710)
+  ![Clinique High Impact Mascara - 0.28oz - Ulta Beauty, image 1 of 10 slides](https://target.scene7.com/is/image/Target/GUEST_8bc3d1e9-9f0f-4300-8144-f39c5bf22998?wid=475&hei=475&fit=constrain&qlt=80&fmt=webp)
 
   <!--EndFragment-->
-* <!--StartFragment-->
+* ₱Ɽł₵Ɇ ĐⱤØ₱❣❣
+  🎀  𝒢𝓇𝒶𝒷 𝐼𝓉  🎀
+  https://mavely.app.link/e/dbruEjyUlBb
+  Open Box | Apple iPad Air 3 | 10.5-inch Retina Display | 64GB | Latest OS, Wi-Fi Only, Bundle: Case, Pre-Installed Tempered Glass, Bluetooth Headset, Stylus Pen, Rapid ChargeR  AD<!--StartFragment-->
 
-  [ps://mavely.app.link/e/0CTnxEvY4Ab](https://mavely.app.link/e/0CTnxEvY4Ab?fbclid=IwAR3z8hmu0cwFvE5G00DFw12EbR0SIHxFhWCpHSLncDv5iI8qJ3iGjxYbwCw)
-
-  𝐍𝐨𝐰 $𝟏𝟓.𝟗𝟕 𝐖𝐚𝐬 $𝟑𝟓
-
-  CRCKT Kids Rectangular Sleeping Bag, °50F Rating, Multi-Color Dino Print AD
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![No photo description available.](https://scontent.fpat1-2.fna.fbcdn.net/v/t39.30808-6/357398400_6850930381597670_4443553241602381890_n.jpg?stp=dst-jpg_p526x296&_nc_cat=102&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=YA78LW8bXqgAX-XcEf7&_nc_ht=scontent.fpat1-2.fna&oh=00_AfBeMyo5WMIoQ9knBsujYzOHhSxWCeWnqhwVb6foyoUGYQ&oe=64B939BE)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  [https://mavely.app.link/e/CNXrqZxyqBb](https://mavely.app.link/e/CNXrqZxyqBb?fbclid=IwAR2ypycjY_M5C2pCGNvsds7ZFsNN6u3i0GL7Krw1bmiXI8PqVEDOYWDgzcA)
-
-  𝒢𝓇𝒶𝒷 𝒾𝓉….
-
-  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![May be an image of text that says \&ldquo;Rechargeable 1000 1000Max Max 700 500 500+ 300 Min\&rdquo;](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/359816501_6897246310299410_518940803557647132_n.jpg?stp=dst-jpg_p526x296&_nc_cat=103&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=5HexiTcU2ZgAX-VviGZ&_nc_ht=scontent.fpat1-1.fna&oh=00_AfAgn2Zhgf0BKRVAIBWbhcJtyHWhzhCq3VhzW5KDUiZXJw&oe=64BAED50)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  [https://mavely.app.link/e/Qdjw2pjAiAb](https://mavely.app.link/e/Qdjw2pjAiAb?fbclid=IwAR3NOGcKT2prJMt02CNw7tpumoPEm0kBqUcOAGNivnkR7TgpSw6dXH5NPbo)
-
-  𝐍𝐨𝐰 $𝟏𝟎.𝟗𝟖 𝐖𝐚𝐬 $𝟏𝟕.𝟓𝟎 FamilyCare Insect Repellent I, Smooth & Dry, 4 oz, 2 ct
-
-  AD
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![May be an image of hair product and text that says \&ldquo;VALUE PACK Johnson OFF! familycare INSECT REPELLENT1 smooth & dry TWO CANS 8 OZ. (227 g)\&rdquo;](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/357032953_6850952544928787_9198139451897556557_n.jpg?stp=dst-jpg_p526x296&_nc_cat=111&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=YBSlMMyHzggAX_wz2JW&_nc_oc=AQlMLtm9JV5eQ2physwcZ5v2JB-OsLLQTdmDqn2VLQjROiXCjBP1pb_urBynzUwgdVz4lBX8VGVHW4kDIppH9tNU&_nc_ht=scontent.fpat1-1.fna&oh=00_AfDxfUvp6I02U7mq6NRz_-jX8407r4aPDePkm5h4nZN2JA&oe=64BADFF0)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  [https://mavely.app.link/e/fJliAWxnYAb](https://l.facebook.com/l.php?u=https%3A%2F%2Fmavely.app.link%2Fe%2FfJliAWxnYAb%3Ffbclid%3DIwAR0ctV0Y-YYg2l1HEzt2yfM8ItKD_PIa50GvrsAynTKq3Fu3Vec-Gxxbjts&h=AT0m0INM8DgPzzFcZP-EvknzQVzGKmkIiUoJWo8qQYFIh-ByGgit70TJlsrHRsTGn7Kffp_HNKiYo0OMfZS2XS4FB-FEd5YYn1qSWb3Xuua3fx236FAf9mRq66X6MnwU5-CjGx0NdWHJ8sxS9nCz&__tn__=-UK-R&c%5B0%5D=AT1cTB2S9cxn_KSbVtgjhd8xsDraRKv4zLF1j-ZQjOCny4WpCqylEs2ADlLdI2mOhoxOmn0zhG1_Vyp0W0ymvFzud0Ssl2dmcn82ButYxFyj7HLpgkjcVgtN2n0SQQDGx7zaimrRCuTGwZcZBVclAOZVju-MQf6mv2Y5PsA)
-
-  Mainstays 32’’ Metal Construction Portable Folding Chair Bungee Chair
-
-  𝕎𝔸𝕃𝕄𝔸ℝ𝕋 𝕊𝔸𝕃𝔼
-
-  AD
-
-  𝕃𝕀𝕄𝕀𝕋𝔼𝔻 𝕋𝕀𝕄𝔼 𝔻𝔼𝔸𝕃
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![No photo description available.](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/356663124_6837109079646467_2337448604632278775_n.jpg?stp=dst-jpg_p526x296&_nc_cat=109&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=r-8d-YxmLLQAX9TIT_t&_nc_ht=scontent.fpat1-1.fna&oh=00_AfB4IJHWwPPoEcNdrSIyc0p3dsCd1M1i0hjYn35U1aGXCA&oe=64B9930F)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  [https://mavely.app.link/e/vW4c6YLBqBb](https://mavely.app.link/e/vW4c6YLBqBb?fbclid=IwAR19ottun3lrD3bmHmX3tE4CkDwaKrR-k5B9yZO-8JQS77u3cd7tRsiSzYA)
-
-  Ozark Trail Adult Unisex Multicolor Cooler Float
-
-  𝒢𝓇𝒶𝒷 𝒾𝓉….
-
-  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![May be an image of text](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/359178636_6897367970287244_7104333162036166955_n.jpg?stp=dst-jpg_p526x296&_nc_cat=105&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=JLuEiurKkJYAX8ul-yE&_nc_ht=scontent.fpat1-1.fna&oh=00_AfDovmcqJ7x_xmVaDrCXqyS6GGsRhGh_F_7ablNQRrNIyw&oe=64B9CCEA)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  [https://mavely.app.link/e/A5BWtMaJ1Ab](https://mavely.app.link/e/A5BWtMaJ1Ab?fbclid=IwAR1n55hatVU2ceh5Pi3B5gFi1iKg3_ww7vBZ64DGUAiao35VHeMZ5QtH8jY)
-
-  Brilliance Fine Jewelry Created Ruby and Diamond Accent Birthstone Pendant Necklace in Sterling Silver with 10kt Yellow Gold, 18″
-
-  𝕎𝔸𝕃𝕄𝔸ℝ𝕋 𝕊𝔸𝕃𝔼 AD
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![May be an image of jewellery](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/356878793_6844012038956171_1978958077273280365_n.jpg?stp=dst-jpg_p526x296&_nc_cat=100&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=BPb5gA2C-lQAX8U26q6&_nc_ht=scontent.fpat1-1.fna&oh=00_AfAHxomtvJnxptMw04pgScRY9nJM0wbX06bv2GhuZC06dg&oe=64B92807)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  [https://mavely.app.link/e/e6YtywdqYAb](https://l.facebook.com/l.php?u=https%3A%2F%2Fmavely.app.link%2Fe%2Fe6YtywdqYAb%3Ffbclid%3DIwAR0WxiP595UbtGD-fWUExW7MVyyXYbNgq-l5F3AW0bhUKFSnezht5FzTAmc&h=AT0Cv_F2C5oyHTIg-NbUxC4nQaIZWaNuyTaX6p2oc7Bo3jwaB3nmAAdHJ7om1WY8JZC_dRyElOXiWFBEWendk4Fjs3wF-tafCTEWtdjUVnu2-Wwk26iPnieBhtKlna0OKaktR1C2L8NX9fDqQ5fI&__tn__=-UK-R&c%5B0%5D=AT2YlxTdijIMhz2esf4nUKciupT0HZeJ9zkf_1pQeLkIMIWRbyxuQsDygaFhITljRWDOHu325EdSY1FEOi03rEhZ3ZnRzNtbrx_n_ITn860-uGithW5tGeywq7GbkfAjVKdB3phUmXzvW_OZ4RMNyvhmZV3ccx5cgTDFkYc)
-
-  LeapFrog Touch and Learn World Map
-
-  𝕎𝔸𝕃𝕄𝔸ℝ𝕋 𝕊𝔸𝕃𝔼
-
-  AD
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![May be an image of map, toy and text](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/356830646_6837229192967789_9200825645088745226_n.jpg?stp=dst-jpg_p526x296&_nc_cat=105&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=B6brv-5_kI8AX8uAtjR&_nc_ht=scontent.fpat1-1.fna&oh=00_AfD14nG_3fDBeXQt9lPbRQDssFTIsx7ZcANyS4D77Vw6_Q&oe=64BA5932)
+  ![Open Box | Apple iPad Air 3 | 10.5-inch Retina Display | 64GB | Latest OS, Wi-Fi Only, Bundle: Case, Pre-Installed Tempered Glass, Bluetooth Headset, Stylus Pen, Rapid Charger](https://i5.walmartimages.com/asr/2650b7fe-834b-414f-953c-d82d48f5ec7d.00817b7fec6af8204b0df0e25943c5fb.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
   <!--EndFragment-->
 *
