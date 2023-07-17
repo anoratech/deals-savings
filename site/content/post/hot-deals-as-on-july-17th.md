@@ -159,3 +159,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/81EPefa+DUL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 🅾🅽 🅳🆁🅾🅿
+  Hanes Men's Athletic shorts 🩳
+  https://amzn.to/44OqZ6i
+  (AD)<!--StartFragment-->
+
+  ![Hanes Men\&#39;s Athletic Shorts, Favorite Cotton Jersey Shorts, Pull-On Knit Shorts with Pockets, Knit Gym Shorts, 7.5\&#34; Inseam](https://m.media-amazon.com/images/I/71kNczpdIDL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
