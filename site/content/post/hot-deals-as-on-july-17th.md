@@ -144,3 +144,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/71UA+bueIqL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* (っ◔◡◔)っ ♥ PRICE DROP ♥
+  All-Purpose Portable Compact First Aid Kit 
+  https://amzn.to/44LZc6D
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/817vU1ZDWGL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
