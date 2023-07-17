@@ -44,3 +44,12 @@ image: img/whatsapp-image-2023-07-17-at-2.19.52-am.jpeg
   ![PRETTYGARDEN Women\&#39;s Chiffon Blouse Solid Color Long Sleeve Button Down Elegant Jacquard Shirts Tops](https://m.media-amazon.com/images/I/71fSno3NtcL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* Women's Slim-Fit Tank, Pack of 2
+  SIZE XS- XL
+  $14xx ONLY
+  https://amzn.to/3pKjDlN
+  (AD)<!--StartFragment-->
+
+  ![Amazon Essentials Women\&#39;s Slim-Fit Tank, Pack of 2](https://m.media-amazon.com/images/I/61Q13fPs1lL._AC_UY741_.jpg)
+
+  <!--EndFragment-->
