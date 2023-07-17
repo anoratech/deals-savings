@@ -15,3 +15,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   <!--EndFragment-->
 
   ![]()
+* (っ◔◡◔)っ ♥ PRICE DROP ♥
+  Hefty Party On Disposable Plastic Cups, Red, 18 Ounce, 30 Count
+  https://amzn.to/46ORt9M
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81kn1TzOsmL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
