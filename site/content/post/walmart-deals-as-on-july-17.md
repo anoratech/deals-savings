@@ -78,4 +78,3 @@ R﻿UN.......
   ![Open Box | Apple iPad Air 3 | 10.5-inch Retina Display | 64GB | Latest OS, Wi-Fi Only, Bundle: Case, Pre-Installed Tempered Glass, Bluetooth Headset, Stylus Pen, Rapid Charger](https://i5.walmartimages.com/asr/2650b7fe-834b-414f-953c-d82d48f5ec7d.00817b7fec6af8204b0df0e25943c5fb.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
   <!--EndFragment-->
-*
