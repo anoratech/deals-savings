@@ -8,6 +8,36 @@ image: data:image/jpeg;base64,/9j/4AAQSkZJRgABAQAAAQABAAD/2wCEAAoHCBUUFBcVFRQXFx
 ---
 R﻿UN.......
 
+* https://mavely.app.link/e/ydQEnSIcuBb
+  Ainfox 6 Pcs Outdoor Patio Furniture Sofa Set Clearance, Red
+  𝒢𝓇𝒶𝒷 𝒾𝓉…. 
+  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
+
+  ![Ainfox 6 Pcs Outdoor Patio Furniture Sofa Set Clearance, Red](https://i5.walmartimages.com/asr/32d58a99-5572-4e0b-bfc1-9dad709cece3.c1ccdd367bee008657e5dfdf69d0fb03.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+* https://mavely.app.link/e/bkUBB00auBb
+  40″ Flying Saucer Tree Swing Indoor/Outdoor Round Mat Tree Swing
+  𝒢𝓇𝒶𝒷 𝒾𝓉…. 
+  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
+
+  ![40" Flying Saucer Tree Swing Indoor/Outdoor Round Mat Tree Swing](https://assets.wfcdn.com/im/09763857/resize-h755-w755%5Ecompr-r85/2465/246572783/40%22+Flying+Saucer+Tree+Swing+Indoor%2FOutdoor+Round+Mat+Tree+Swing.jpg)
+* https://mavely.app.link/e/HZMGqpv8tBb
+  Zak Designs 12 Pieces Dinnerware Set Melamine Plastic Plates and Bowls, Service for 4, Durable and Dishwasher Safe, Medallion Warm
+  𝒢𝓇𝒶𝒷 𝒾𝓉…. 
+  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
+
+  ![Zak Designs 12 Pieces Dinnerware Set Melamine Plastic Plates and Bowls, Service for 4, Durable and Dishwasher Safe, Medallion Warm](https://i5.walmartimages.com/asr/4d7154eb-cf45-4d2c-8e32-359409a23804.1adb8d64462628fb14762607340a22f4.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+* https://mavely.app.link/e/DTyE6rH7tBb
+  16oz Park Straw Bottle ONLY $4.98
+  𝒢𝓇𝒶𝒷 𝒾𝓉…. 
+  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
+
+  ![Zak Designs Marvel Comics 16 Ounce Reusable Plastic Water Bottle, The Avengers](https://i5.walmartimages.com/asr/a059d6c0-35e5-48f7-b903-760e7f45d057.80ff5dc179458d43b0f44efae7225b40.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+* https://mavely.app.link/e/87y6X4AWtBb
+  Clorox Bleach-Free Disinfecting and Cleaning Wipes, 105 Count
+  𝒢𝓇𝒶𝒷 𝒾𝓉…. 
+  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
+
+  ![Clorox Bleach-Free Disinfecting and Cleaning Wipes, 105 Count, 3 Pack](https://i5.walmartimages.com/asr/08b844ee-a988-4c1e-a210-b7fb0561ed48.0ea455d6681e78793d76dda63fec4656.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 * <!--StartFragment-->
 
   Back to school supplies under $1 \
@@ -21,7 +51,7 @@ R﻿UN.......
   <!--EndFragment-->
 * <!--StartFragment-->
 
-  [https://mavely.app.link/e/etxXHboQpBb](https://mavely.app.link/e/etxXHboQpBb?fbclid=IwAR3CLYF9qU_58vZXicDluVHQ1Z8t4iBKIUFk2_z_Kmhf2yT7RxSi0nnb-wY)
+  [ttps://mavely.app.link/e/etxXHboQpBb](https://mavely.app.link/e/etxXHboQpBb?fbclid=IwAR3CLYF9qU_58vZXicDluVHQ1Z8t4iBKIUFk2_z_Kmhf2yT7RxSi0nnb-wY)
 
   𝒢𝓇𝒶𝒷 𝒾𝓉….
 
@@ -36,7 +66,7 @@ R﻿UN.......
 
   ₱Ɽł₵Ɇ ĐⱤØ₱
 
-   𝒢𝓇𝒶𝒷 𝐼𝓉 
+  𝒢𝓇𝒶𝒷 𝐼𝓉
 
   [https://mavely.app.link/e/lsr0P4golBb](https://mavely.app.link/e/lsr0P4golBb?fbclid=IwAR0yUGEy_VIdBpRRI14noRL192gFO3QoAtQNSJ5KG1FuPgW7fLE6WIOA8Gg)
 
@@ -53,18 +83,18 @@ R﻿UN.......
 
   𝐻O𝓉 𝒟𝑒𝒶𝓁
 
-  [https://mavely.app.link/e/6H9KINRKjBb](https://l.facebook.com/l.php?u=https%3A%2F%2Fmavely.app.link%2Fe%2F6H9KINRKjBb%3Ffbclid%3DIwAR0ETD4V4vmuJDkmNgWqRiPNfuAbKmMiVCyte4ItCiBj_uB5N6pOpeodSiU&h=AT15Nx97E_Jq4aBKow2piHVA1WPuVVNDzOkMMHz__3qm-sm5s-QU9OAAeba4oR5--7Lwy9OytUwPYAKspfrLtu6u72_-6b5ZoAUJf8qwJRlrpeU1-ZxYvfRdDYpj8BrZM_Htwm7JHeZrjwprTaAm&__tn__=-UK-R&c[0]=AT0t1GNXs7W-5uQVnljUOH2XAIRZnpxb9aIl-xDk386O1spyjZ0qVO1fLYKvtjYyZdIw8QsAEJb9jLKL4-5WgYw-fZdf1bgNBtPAYDEXGCqWIk0oh962zidCOJJXABvRjhMbRSYHwVp6aQ)
+  [https://mavely.app.link/e/6H9KINRKjBb](https://l.facebook.com/l.php?u=https%3A%2F%2Fmavely.app.link%2Fe%2F6H9KINRKjBb%3Ffbclid%3DIwAR0ETD4V4vmuJDkmNgWqRiPNfuAbKmMiVCyte4ItCiBj_uB5N6pOpeodSiU&h=AT15Nx97E_Jq4aBKow2piHVA1WPuVVNDzOkMMHz__3qm-sm5s-QU9OAAeba4oR5--7Lwy9OytUwPYAKspfrLtu6u72_-6b5ZoAUJf8qwJRlrpeU1-ZxYvfRdDYpj8BrZM_Htwm7JHeZrjwprTaAm&__tn__=-UK-R&c%5B0%5D=AT0t1GNXs7W-5uQVnljUOH2XAIRZnpxb9aIl-xDk386O1spyjZ0qVO1fLYKvtjYyZdIw8QsAEJb9jLKL4-5WgYw-fZdf1bgNBtPAYDEXGCqWIk0oh962zidCOJJXABvRjhMbRSYHwVp6aQ)
 
   Mr. Pen- Assorted Colored Binder Clips, Paper Clips, Rubber Bands AD
 
   <!--EndFragment--><!--StartFragment-->
 
-  ![May be an image of ‎text that says "‎Mr. Clips Assorted Colored Clips and Rubber Bands O د கக‎"‎](https://scontent.fpat1-2.fna.fbcdn.net/v/t39.30808-6/358140715_6882556368435071_8437036520114234794_n.jpg?stp=dst-jpg_p526x296&_nc_cat=104&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=lsc7Ap9AYD0AX-TDNhm&_nc_ht=scontent.fpat1-2.fna&oh=00_AfAznkVssj9FT2h85PPfO5tsHh5eBZc3MhJ0AtgsmskY6A&oe=64B92710)
+  ![May be an image of ‎text that says \&ldquo;‎Mr. Clips Assorted Colored Clips and Rubber Bands O د கக‎"‎](https://scontent.fpat1-2.fna.fbcdn.net/v/t39.30808-6/358140715_6882556368435071_8437036520114234794_n.jpg?stp=dst-jpg_p526x296&_nc_cat=104&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=lsc7Ap9AYD0AX-TDNhm&_nc_ht=scontent.fpat1-2.fna&oh=00_AfAznkVssj9FT2h85PPfO5tsHh5eBZc3MhJ0AtgsmskY6A&oe=64B92710)
 
   <!--EndFragment-->
 * <!--StartFragment-->
 
-  [https://mavely.app.link/e/0CTnxEvY4Ab](https://mavely.app.link/e/0CTnxEvY4Ab?fbclid=IwAR3z8hmu0cwFvE5G00DFw12EbR0SIHxFhWCpHSLncDv5iI8qJ3iGjxYbwCw)
+  [ps://mavely.app.link/e/0CTnxEvY4Ab](https://mavely.app.link/e/0CTnxEvY4Ab?fbclid=IwAR3z8hmu0cwFvE5G00DFw12EbR0SIHxFhWCpHSLncDv5iI8qJ3iGjxYbwCw)
 
   𝐍𝐨𝐰 $𝟏𝟓.𝟗𝟕 𝐖𝐚𝐬 $𝟑𝟓
 
@@ -85,7 +115,7 @@ R﻿UN.......
 
   <!--EndFragment--><!--StartFragment-->
 
-  ![May be an image of text that says "Rechargeable 1000 1000Max Max 700 500 500+ 300 Min"](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/359816501_6897246310299410_518940803557647132_n.jpg?stp=dst-jpg_p526x296&_nc_cat=103&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=5HexiTcU2ZgAX-VviGZ&_nc_ht=scontent.fpat1-1.fna&oh=00_AfAgn2Zhgf0BKRVAIBWbhcJtyHWhzhCq3VhzW5KDUiZXJw&oe=64BAED50)
+  ![May be an image of text that says \&ldquo;Rechargeable 1000 1000Max Max 700 500 500+ 300 Min\&rdquo;](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/359816501_6897246310299410_518940803557647132_n.jpg?stp=dst-jpg_p526x296&_nc_cat=103&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=5HexiTcU2ZgAX-VviGZ&_nc_ht=scontent.fpat1-1.fna&oh=00_AfAgn2Zhgf0BKRVAIBWbhcJtyHWhzhCq3VhzW5KDUiZXJw&oe=64BAED50)
 
   <!--EndFragment-->
 * <!--StartFragment-->
@@ -98,12 +128,12 @@ R﻿UN.......
 
   <!--EndFragment--><!--StartFragment-->
 
-  ![May be an image of hair product and text that says "VALUE PACK Johnson OFF! familycare INSECT REPELLENT1 smooth & dry TWO CANS 8 OZ. (227 g)"](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/357032953_6850952544928787_9198139451897556557_n.jpg?stp=dst-jpg_p526x296&_nc_cat=111&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=YBSlMMyHzggAX_wz2JW&_nc_oc=AQlMLtm9JV5eQ2physwcZ5v2JB-OsLLQTdmDqn2VLQjROiXCjBP1pb_urBynzUwgdVz4lBX8VGVHW4kDIppH9tNU&_nc_ht=scontent.fpat1-1.fna&oh=00_AfDxfUvp6I02U7mq6NRz_-jX8407r4aPDePkm5h4nZN2JA&oe=64BADFF0)
+  ![May be an image of hair product and text that says \&ldquo;VALUE PACK Johnson OFF! familycare INSECT REPELLENT1 smooth & dry TWO CANS 8 OZ. (227 g)\&rdquo;](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/357032953_6850952544928787_9198139451897556557_n.jpg?stp=dst-jpg_p526x296&_nc_cat=111&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=YBSlMMyHzggAX_wz2JW&_nc_oc=AQlMLtm9JV5eQ2physwcZ5v2JB-OsLLQTdmDqn2VLQjROiXCjBP1pb_urBynzUwgdVz4lBX8VGVHW4kDIppH9tNU&_nc_ht=scontent.fpat1-1.fna&oh=00_AfDxfUvp6I02U7mq6NRz_-jX8407r4aPDePkm5h4nZN2JA&oe=64BADFF0)
 
   <!--EndFragment-->
 * <!--StartFragment-->
 
-  [https://mavely.app.link/e/fJliAWxnYAb](https://l.facebook.com/l.php?u=https%3A%2F%2Fmavely.app.link%2Fe%2FfJliAWxnYAb%3Ffbclid%3DIwAR0ctV0Y-YYg2l1HEzt2yfM8ItKD_PIa50GvrsAynTKq3Fu3Vec-Gxxbjts&h=AT0m0INM8DgPzzFcZP-EvknzQVzGKmkIiUoJWo8qQYFIh-ByGgit70TJlsrHRsTGn7Kffp_HNKiYo0OMfZS2XS4FB-FEd5YYn1qSWb3Xuua3fx236FAf9mRq66X6MnwU5-CjGx0NdWHJ8sxS9nCz&__tn__=-UK-R&c[0]=AT1cTB2S9cxn_KSbVtgjhd8xsDraRKv4zLF1j-ZQjOCny4WpCqylEs2ADlLdI2mOhoxOmn0zhG1_Vyp0W0ymvFzud0Ssl2dmcn82ButYxFyj7HLpgkjcVgtN2n0SQQDGx7zaimrRCuTGwZcZBVclAOZVju-MQf6mv2Y5PsA)
+  [https://mavely.app.link/e/fJliAWxnYAb](https://l.facebook.com/l.php?u=https%3A%2F%2Fmavely.app.link%2Fe%2FfJliAWxnYAb%3Ffbclid%3DIwAR0ctV0Y-YYg2l1HEzt2yfM8ItKD_PIa50GvrsAynTKq3Fu3Vec-Gxxbjts&h=AT0m0INM8DgPzzFcZP-EvknzQVzGKmkIiUoJWo8qQYFIh-ByGgit70TJlsrHRsTGn7Kffp_HNKiYo0OMfZS2XS4FB-FEd5YYn1qSWb3Xuua3fx236FAf9mRq66X6MnwU5-CjGx0NdWHJ8sxS9nCz&__tn__=-UK-R&c%5B0%5D=AT1cTB2S9cxn_KSbVtgjhd8xsDraRKv4zLF1j-ZQjOCny4WpCqylEs2ADlLdI2mOhoxOmn0zhG1_Vyp0W0ymvFzud0Ssl2dmcn82ButYxFyj7HLpgkjcVgtN2n0SQQDGx7zaimrRCuTGwZcZBVclAOZVju-MQf6mv2Y5PsA)
 
   Mainstays 32’’ Metal Construction Portable Folding Chair Bungee Chair
 
@@ -148,7 +178,7 @@ R﻿UN.......
   <!--EndFragment-->
 * <!--StartFragment-->
 
-  [https://mavely.app.link/e/e6YtywdqYAb](https://l.facebook.com/l.php?u=https%3A%2F%2Fmavely.app.link%2Fe%2Fe6YtywdqYAb%3Ffbclid%3DIwAR0WxiP595UbtGD-fWUExW7MVyyXYbNgq-l5F3AW0bhUKFSnezht5FzTAmc&h=AT0Cv_F2C5oyHTIg-NbUxC4nQaIZWaNuyTaX6p2oc7Bo3jwaB3nmAAdHJ7om1WY8JZC_dRyElOXiWFBEWendk4Fjs3wF-tafCTEWtdjUVnu2-Wwk26iPnieBhtKlna0OKaktR1C2L8NX9fDqQ5fI&__tn__=-UK-R&c[0]=AT2YlxTdijIMhz2esf4nUKciupT0HZeJ9zkf_1pQeLkIMIWRbyxuQsDygaFhITljRWDOHu325EdSY1FEOi03rEhZ3ZnRzNtbrx_n_ITn860-uGithW5tGeywq7GbkfAjVKdB3phUmXzvW_OZ4RMNyvhmZV3ccx5cgTDFkYc)
+  [https://mavely.app.link/e/e6YtywdqYAb](https://l.facebook.com/l.php?u=https%3A%2F%2Fmavely.app.link%2Fe%2Fe6YtywdqYAb%3Ffbclid%3DIwAR0WxiP595UbtGD-fWUExW7MVyyXYbNgq-l5F3AW0bhUKFSnezht5FzTAmc&h=AT0Cv_F2C5oyHTIg-NbUxC4nQaIZWaNuyTaX6p2oc7Bo3jwaB3nmAAdHJ7om1WY8JZC_dRyElOXiWFBEWendk4Fjs3wF-tafCTEWtdjUVnu2-Wwk26iPnieBhtKlna0OKaktR1C2L8NX9fDqQ5fI&__tn__=-UK-R&c%5B0%5D=AT2YlxTdijIMhz2esf4nUKciupT0HZeJ9zkf_1pQeLkIMIWRbyxuQsDygaFhITljRWDOHu325EdSY1FEOi03rEhZ3ZnRzNtbrx_n_ITn860-uGithW5tGeywq7GbkfAjVKdB3phUmXzvW_OZ4RMNyvhmZV3ccx5cgTDFkYc)
 
   LeapFrog Touch and Learn World Map
 
@@ -161,43 +191,4 @@ R﻿UN.......
   ![May be an image of map, toy and text](https://scontent.fpat1-1.fna.fbcdn.net/v/t39.30808-6/356830646_6837229192967789_9200825645088745226_n.jpg?stp=dst-jpg_p526x296&_nc_cat=105&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=B6brv-5_kI8AX8uAtjR&_nc_ht=scontent.fpat1-1.fna&oh=00_AfD14nG_3fDBeXQt9lPbRQDssFTIsx7ZcANyS4D77Vw6_Q&oe=64BA5932)
 
   <!--EndFragment-->
-* https://mavely.app.link/e/ydQEnSIcuBb
-  Ainfox 6 Pcs Outdoor Patio Furniture Sofa Set Clearance, Red
-  𝒢𝓇𝒶𝒷 𝒾𝓉…. 
-  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
-
-  ![Ainfox 6 Pcs Outdoor Patio Furniture Sofa Set Clearance, Red](https://i5.walmartimages.com/asr/32d58a99-5572-4e0b-bfc1-9dad709cece3.c1ccdd367bee008657e5dfdf69d0fb03.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
-
-  <!--EndFragment-->
-* https://mavely.app.link/e/bkUBB00auBb
-  40″ Flying Saucer Tree Swing Indoor/Outdoor Round Mat Tree Swing
-  𝒢𝓇𝒶𝒷 𝒾𝓉…. 
-  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
-
-  ![40" Flying Saucer Tree Swing Indoor/Outdoor Round Mat Tree Swing](https://assets.wfcdn.com/im/09763857/resize-h755-w755%5Ecompr-r85/2465/246572783/40%22+Flying+Saucer+Tree+Swing+Indoor%2FOutdoor+Round+Mat+Tree+Swing.jpg)
-
-  <!--EndFragment-->
-* https://mavely.app.link/e/HZMGqpv8tBb
-  Zak Designs 12 Pieces Dinnerware Set Melamine Plastic Plates and Bowls, Service for 4, Durable and Dishwasher Safe, Medallion Warm
-  𝒢𝓇𝒶𝒷 𝒾𝓉…. 
-  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
-
-  ![Zak Designs 12 Pieces Dinnerware Set Melamine Plastic Plates and Bowls, Service for 4, Durable and Dishwasher Safe, Medallion Warm](https://i5.walmartimages.com/asr/4d7154eb-cf45-4d2c-8e32-359409a23804.1adb8d64462628fb14762607340a22f4.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
-* https://mavely.app.link/e/DTyE6rH7tBb
-  16oz Park Straw Bottle ONLY $4.98
-  𝒢𝓇𝒶𝒷 𝒾𝓉…. 
-  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
-
-  ![Zak Designs Marvel Comics 16 Ounce Reusable Plastic Water Bottle, The Avengers](https://i5.walmartimages.com/asr/a059d6c0-35e5-48f7-b903-760e7f45d057.80ff5dc179458d43b0f44efae7225b40.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
-
-  <!--EndFragment-->
-* https://mavely.app.link/e/87y6X4AWtBb
-  Clorox Bleach-Free Disinfecting and Cleaning Wipes, 105 Count
-  𝒢𝓇𝒶𝒷 𝒾𝓉…. 
-  𝑅𝑒𝒹𝓊𝒸𝑒𝒹 𝒫𝓇𝒾𝒸𝑒 AD<!--StartFragment-->
-
-  ![Clorox Bleach-Free Disinfecting and Cleaning Wipes, 105 Count, 3 Pack](https://i5.walmartimages.com/asr/08b844ee-a988-4c1e-a210-b7fb0561ed48.0ea455d6681e78793d76dda63fec4656.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
+*
