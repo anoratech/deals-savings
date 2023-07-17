@@ -63,3 +63,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/71fYdkAZLML._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ⤵️⤵️𝓟𝓡𝓘𝓒𝓔 𝓓𝓡𝓞𝓟 🔽🔽
+  😋😋Doritos Nacho Cheese Flavored Tortilla Chips, 1oz Bags (40 Pack)
+  https://amzn.to/3K0vNO4
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81bPS8UN4pL._SL1500_.jpg)
+
+  <!--EndFragment-->
