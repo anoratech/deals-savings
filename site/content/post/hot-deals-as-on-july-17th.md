@@ -128,3 +128,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/81N9JaXVnRL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* USE CLIP ✂️✂️
+  Tummy Time Baby Water Play Mat👶
+  https://amzn.to/3NYFT3c
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61X+yG5-7CL._SL1200_.jpg)
+
+  <!--EndFragment-->
