@@ -53,3 +53,13 @@ image: img/whatsapp-image-2023-07-17-at-2.19.52-am.jpeg
   ![Amazon Essentials Women\&#39;s Slim-Fit Tank, Pack of 2](https://m.media-amazon.com/images/I/61Q13fPs1lL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* Women's Shirts Cold Shoulder Tops
+  USE C-O-U-P-O-N ✂️✂️
+  https://amzn.to/43sUnOD
+  SIZE S- XL
+  $12.99xx ONLY
+  (AD)<!--StartFragment-->
+
+  ![TEMOFON Women\&#39;s Shirts Cold Shoulder Tops Summer Short Sleeve Casual Twist Knot Blouse T-Shirt S-2XL](https://m.media-amazon.com/images/I/71-ZNBZwO7L._AC_UY741_.jpg)
+
+  <!--EndFragment-->
