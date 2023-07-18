@@ -1,5 +1,5 @@
 ---
-title: "HOT DEALS AS ON JULY 17TH "
+title: "HOT DEALS AS ON JULY 18TH "
 date: 2023-07-18T08:31:42.378Z
 tags: AMAZON
 Category: "MANY MORE "
