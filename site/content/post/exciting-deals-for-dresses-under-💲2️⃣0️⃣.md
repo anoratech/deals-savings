@@ -75,8 +75,6 @@ r﻿unnnn.........
   (AD)<!--StartFragment-->
 
   ![Verdusa Women\&#39;s Twist Front Cut Out Short Sleeve Round Neck Mini Tee Dress](https://m.media-amazon.com/images/I/71kJzN2+ijL._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * $12xx ONLY
   💝💝Summer Women’s Floral Ruffle Hem Mini Dress 
   SIZE S- XL
@@ -84,8 +82,6 @@ r﻿unnnn.........
   (AD)<!--StartFragment-->
 
   ![KIRUNDO Summer Women’s Floral Ruffle Hem Mini Dress Short Sleeves V Neck High Waist Loose Boho Dress](https://m.media-amazon.com/images/I/71aOXwUXTfL._AC_UX569_.jpg)
-
-  <!--EndFragment-->
 * $10xx ONLY
   SIZE S- XXL
   💞💞Women's Short Sleeve Color Block Floral Printed Long Dress
@@ -93,16 +89,12 @@ r﻿unnnn.........
   (AD)<!--StartFragment-->
 
   ![Women\&#39;s Short Sleeve Color Block Floral Printed Long Dress Polka Dot Striped Leopard Tunic High Waisted Loose Dress](https://m.media-amazon.com/images/I/61wHEGe3wLL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * $12xx ONLY 
   💓💓Women Casual Long Sleeve Crew Neck Fall Dress
   https://amzn.to/3K42tXb
   (AD)<!--StartFragment-->
 
   ![BTFBM Women Casual Long Sleeve Crew Neck Fall Dress Bohemian Relaxed Fit Floral Flowy Maxi Dresses Tiered Cocktail Dress](https://m.media-amazon.com/images/I/71AvhlN+3nL._AC_UX569_.jpg)
-
-  <!--EndFragment-->
 * $13xx ONLY 
   SIZE S- XL
   💝💝Ceboyel Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress
@@ -110,5 +102,3 @@ r﻿unnnn.........
   (AD)<!--StartFragment-->
 
   ![Ceboyel Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress Vneck Sexy Boho Dresses Trendy Beach Clothes 2023](https://m.media-amazon.com/images/I/61FnUAympWL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
