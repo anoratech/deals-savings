@@ -103,3 +103,12 @@ r﻿unnnn.........
   ![BTFBM Women Casual Long Sleeve Crew Neck Fall Dress Bohemian Relaxed Fit Floral Flowy Maxi Dresses Tiered Cocktail Dress](https://m.media-amazon.com/images/I/71AvhlN+3nL._AC_UX569_.jpg)
 
   <!--EndFragment-->
+* $13xx ONLY 
+  SIZE S- XL
+  💝💝Ceboyel Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress
+  https://amzn.to/3DgELTw
+  (AD)<!--StartFragment-->
+
+  ![Ceboyel Women Floral Spaghetti Strap Sundress Casual Summer Long Maxi Dress Vneck Sexy Boho Dresses Trendy Beach Clothes 2023](https://m.media-amazon.com/images/I/61FnUAympWL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
