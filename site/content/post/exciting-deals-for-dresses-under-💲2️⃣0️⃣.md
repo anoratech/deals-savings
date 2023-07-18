@@ -77,3 +77,12 @@ r﻿unnnn.........
   ![Verdusa Women\&#39;s Twist Front Cut Out Short Sleeve Round Neck Mini Tee Dress](https://m.media-amazon.com/images/I/71kJzN2+ijL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* $12xx ONLY
+  💝💝Summer Women’s Floral Ruffle Hem Mini Dress 
+  SIZE S- XL
+  https://amzn.to/44QlDrc
+  (AD)<!--StartFragment-->
+
+  ![KIRUNDO Summer Women’s Floral Ruffle Hem Mini Dress Short Sleeves V Neck High Waist Loose Boho Dress](https://m.media-amazon.com/images/I/71aOXwUXTfL._AC_UX569_.jpg)
+
+  <!--EndFragment-->
