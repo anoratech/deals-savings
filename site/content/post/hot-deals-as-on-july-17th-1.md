@@ -103,3 +103,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/8122GER5Q1L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳
+  SPARKLE PICK-A-SIZE PAPER TOWELS, 6 DOUBLE ROLLS
+  https://amzn.to/3OgAG8n
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81sM+JebdSL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
