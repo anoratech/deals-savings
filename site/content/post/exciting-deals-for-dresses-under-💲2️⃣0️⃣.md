@@ -95,3 +95,11 @@ r﻿unnnn.........
   ![Women\&#39;s Short Sleeve Color Block Floral Printed Long Dress Polka Dot Striped Leopard Tunic High Waisted Loose Dress](https://m.media-amazon.com/images/I/61wHEGe3wLL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* $12xx ONLY 
+  💓💓Women Casual Long Sleeve Crew Neck Fall Dress
+  https://amzn.to/3K42tXb
+  (AD)<!--StartFragment-->
+
+  ![BTFBM Women Casual Long Sleeve Crew Neck Fall Dress Bohemian Relaxed Fit Floral Flowy Maxi Dresses Tiered Cocktail Dress](https://m.media-amazon.com/images/I/71AvhlN+3nL._AC_UX569_.jpg)
+
+  <!--EndFragment-->
