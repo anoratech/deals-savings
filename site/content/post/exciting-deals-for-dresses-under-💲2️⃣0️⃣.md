@@ -86,3 +86,12 @@ r﻿unnnn.........
   ![KIRUNDO Summer Women’s Floral Ruffle Hem Mini Dress Short Sleeves V Neck High Waist Loose Boho Dress](https://m.media-amazon.com/images/I/71aOXwUXTfL._AC_UX569_.jpg)
 
   <!--EndFragment-->
+* $10xx ONLY
+  SIZE S- XXL
+  💞💞Women's Short Sleeve Color Block Floral Printed Long Dress
+  https://amzn.to/44LDAHB
+  (AD)<!--StartFragment-->
+
+  ![Women\&#39;s Short Sleeve Color Block Floral Printed Long Dress Polka Dot Striped Leopard Tunic High Waisted Loose Dress](https://m.media-amazon.com/images/I/61wHEGe3wLL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
