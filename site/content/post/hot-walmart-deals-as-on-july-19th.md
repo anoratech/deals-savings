@@ -164,3 +164,17 @@ G﻿O GO GO........
   ![May be an image of scooter, segway and text](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361644489_5772729622864407_1667088922074460336_n.jpg?stp=dst-jpg_p843x403&_nc_cat=107&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=nKDdQgSkXJMAX-b2NHL&_nc_ht=scontent.fccu11-1.fna&oh=00_AfATxGAs0B3RR9htIJSfV4qMrvjLxaYjoo0nFL1RnO_ffg&oe=64BCF7F6)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  \#🆆🅰🅻🅼🅰🆁🆃\
+  NOW- 💲231.46 (REG- 💲300)\
+  ‼️✨PRICE DROP ‼️✨\
+  𝔹𝕣𝕪𝕒𝕟𝕟𝕒 𝕃𝕠𝕧𝕖𝕤𝕖𝕒𝕥 𝟚 𝕊𝕖𝕒𝕥𝕖𝕣 𝕊𝕠𝕗𝕒 , ℂ𝕒𝕞𝕖𝕝 𝔽𝕒𝕦𝕩 𝕃𝕖𝕒𝕥𝕙𝕖𝕣\
+  <https://mavely.app.link/e/zWxdoXTlxBb>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![May be an image of living room](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361645457_5772723839531652_4153162315791639317_n.jpg?stp=dst-jpg_p843x403&_nc_cat=106&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=aWrpPFQ_opMAX_jKiH3&_nc_ht=scontent.fccu11-1.fna&oh=00_AfA8Hh2kD9tXCwmW-VSGJVoyk-fOl78595zjHMsJSlVylA&oe=64BC430C)
+
+  <!--EndFragment-->
