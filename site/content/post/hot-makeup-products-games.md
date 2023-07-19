@@ -12,34 +12,13 @@ description: "BEST AMAZON GAMES & MAKEUP ITEMS "
 
   ![](https://m.media-amazon.com/images/I/81W1-nrvdFL._SL1500_.jpg)
 
-  <!--EndFragment-->
-
   ![]()
-* <!--StartFragment-->
-
-  🏃RUNNNN COUPON ✂️✂️
-
-  2xx ONLY
-
-  wet n wild Silk Finish Lipstick
-
-  https://amzn.to/3Dkh1hr
-
-  (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/71sdLM9WoPL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * GREAT DROP ⏬⏬
   Mario + Rabbids Sparks of Hope – Standard Edition 
   https://amzn.to/43u5s1P 
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81e1WF3nBEL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 15xx ONLY 
   🅿🆁🅸🅲🅴 🅳🆁🅾🅿 
   Sink N’ Sand, Midnight Jungle Amazon Exclusive Kids Board Game 
@@ -47,21 +26,15 @@ description: "BEST AMAZON GAMES & MAKEUP ITEMS "
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/91R75RThZeL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 6xx ONLY 
   Makeup Brushes Makeup Brush Set 
   https://amzn.to/44RPyj6 
   (ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71hMhFrd6IL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * Lip Liner by Revlon 
   2xx ONLY 
   https://amzn.to/3Y0DCt9 
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61QiwCGKhHL._SL1500_.jpg)
-
-  <!--EndFragment-->
