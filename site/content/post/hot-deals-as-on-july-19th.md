@@ -140,3 +140,15 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/61JSdwodY1L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ⤵️⤵️🅳🆁🅾🅿\
+  Satin Silk Pillowcase for Hair and Skin\
+  <https://amzn.to/43JDVdU>\
+  (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61olJClLFoL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
