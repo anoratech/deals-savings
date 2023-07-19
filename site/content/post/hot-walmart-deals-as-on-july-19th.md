@@ -128,3 +128,20 @@ G﻿O GO GO........
   ![May be an image of toy](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361644369_5772879756182727_7825040084063628970_n.jpg?stp=dst-jpg_p843x403&_nc_cat=111&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=9k7tntrP8nkAX8MFmlz&_nc_ht=scontent.fccu11-1.fna&oh=00_AfBUpVD8btgHis5AhLDnIA3SuCSHaEUAzu-33oAzzxElFw&oe=64BC1D97)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  [\#WALMART](https://www.facebook.com/hashtag/walmart?__eep__=6&__cft__[0]=AZVup1k0hrRCrSD-B6EljZAIWz1xu5jWnpubn9jaFq3OMBtW_8pYZwkNS4gDOiA7_ByOf84fzma6OnaBh7Ebkl76MhFIsbVL8vcQt_nlIAui_CBCrIGDXg3XuIUGj1gV7I6OrhmyBJ0ku8guUU7MbMeF&__tn__=*NK-R)
+
+  (っ◔◡◔)っ ![♥](https://static.xx.fbcdn.net/images/emoji.php/v9/t33/1.5/16/2665.png) PRICE DROP ![♥](https://static.xx.fbcdn.net/images/emoji.php/v9/t33/1.5/16/2665.png)
+
+  * **NOW- $109.99 (REG- $169.99)**
+
+  [https://shopstyle.it/l/bYVUd](https://shopstyle.it/l/bYVUd?fbclid=IwAR2F6N8upWJ3fm1cdlQS1A3VinEpMIBeCrd10JVM6TsLTBOhZ3Xgc_acirA)
+
+  ### 3 Piece Luggage Sets (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![May be an image of suitcase](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361586134_5772882756182427_8021393095717482375_n.jpg?stp=dst-jpg_p843x403&_nc_cat=101&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=z2n517W4EbcAX-S8awp&_nc_ht=scontent.fccu11-1.fna&oh=00_AfBTwoTPL3evbyeoOIh1h4G09ujX8NvJ-VvVcPZ85_EV1Q&oe=64BC89B6)
+
+  <!--EndFragment-->
