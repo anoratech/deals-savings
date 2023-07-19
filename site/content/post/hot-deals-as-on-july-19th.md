@@ -99,3 +99,13 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/716MDnXhEuL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  🅿🆁🅸🅲🅴 🅳🆁🅾🅿\
+  HUE Women’s Ripped Knee Denim Leggings <https://amzn.to/3plzTcH> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![HUE Women\&#39;s Ripped Knee Denim Leggings](https://m.media-amazon.com/images/I/61jVO3xj9vL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
