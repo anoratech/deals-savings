@@ -8,6 +8,19 @@ image: data:image/jpeg;base64,/9j/4AAQSkZJRgABAQAAAQABAAD/2wCEAAkGBxQUExYUFBQWFx
 ---
 A﻿WESOME DEALS 
 
+* e.l.f. Flawless Finish Foundation
+
+  45% off 
+
+  Price drop 
+
+  Grab & go
+
+  <https://amzn.to/44UYCnj> 
+
+  Ad 
+
+  ![](img/fcbc4a18-3d6b-4aaa-8718-b1b33b2cc7d3.jpeg)
 * e.l.f. Monochromatic Multi Stick, 
 
   https://amzn.to/46RMWTX ad 
