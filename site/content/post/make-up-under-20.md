@@ -26,9 +26,6 @@ A﻿WESOME DEALS
   https://amzn.to/46RMWTX ad 
 
   ![](img/29009dc2-e037-4982-a6b7-70111eb1dfcd.jpeg)
-*
-*
-*
 * Mabox Eyeshadow Stick 3Pcs 
 
 Grab & go ,under $4 
