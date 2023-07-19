@@ -12,7 +12,7 @@ A﻿WESOME DEALS
 
   Grab & go 
 
-  Only $3.xx 
+  Only 3.xx 
 
   <https://amzn.to/3DkYYaR>
 
