@@ -152,3 +152,14 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/61olJClLFoL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ✂️✂️GREAT C-L-I-P✂️✂️\
+  Shoulder Bags 👜👛 Tote Satchel Hobo 3pcs Purse Set <https://amzn.to/3oZiF4K>\
+  (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Handbags for Women Shoulder Bags Tote Satchel Hobo 3pcs Purse Set](https://m.media-amazon.com/images/I/81UYkEoyIIL._AC_UY500_.jpg)
+
+  <!--EndFragment-->
