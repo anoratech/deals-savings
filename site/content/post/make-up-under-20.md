@@ -8,6 +8,17 @@ image: data:image/jpeg;base64,/9j/4AAQSkZJRgABAQAAAQABAAD/2wCEAAkGBxQUExYUFBQWFx
 ---
 A﻿WESOME DEALS 
 
+* Lip Liner by Revlon,  
+
+  79% off 
+
+  Only 2.XX
+
+  <https://amzn.to/3pLjEpC> 
+
+  Ad 
+
+  ![](img/e8713991-2083-4fe4-a95a-ac23266107f3.jpeg)
 * wet n wild Silk Finish Lipstick
 
   Price drop 
