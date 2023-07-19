@@ -122,3 +122,17 @@ G﻿O GO GO........
   ![May be an image of Superman and text that says "I zak!"](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361594680_5772733606197342_7426714652006782882_n.jpg?stp=dst-jpg_p843x403&_nc_cat=100&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=dlV2cN3qFRkAX86DMMz&_nc_ht=scontent.fccu11-1.fna&oh=00_AfD3LMDjBwrYJ4o342eN_1j-MwjoEfcZm6qatSWum5-EBg&oe=64BD583E)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  \#WALMART\
+  ‼️✨𝓟𝓡𝓘𝓒𝓔 𝓓𝓡𝓞𝓟 ‼️✨\
+  𝔹𝕝𝕦𝕖’𝕤 ℂ𝕝𝕦𝕖𝕤 & 𝕐𝕠𝕦! 𝔹𝕖𝕒𝕟𝕓𝕒𝕘 ℙ𝕝𝕦𝕤𝕙 𝔹𝕝𝕦𝕖, 𝕂𝕚𝕕𝕤 𝕋𝕠𝕪𝕤 𝕗𝕠𝕣 𝔸𝕘𝕖𝕤 𝟛 𝕌𝕡, 𝔾𝕚𝕗𝕥𝕤 𝕒𝕟𝕕 ℙ𝕣𝕖𝕤𝕖𝕟𝕥𝕤\
+  💲4\
+  <https://mavely.app.link/e/PZ9gWCAGxBb>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![May be an image of toy](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361644369_5772879756182727_7825040084063628970_n.jpg?stp=dst-jpg_p843x403&_nc_cat=111&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=9k7tntrP8nkAX8MFmlz&_nc_ht=scontent.fccu11-1.fna&oh=00_AfBUpVD8btgHis5AhLDnIA3SuCSHaEUAzu-33oAzzxElFw&oe=64BC1D97)
+
+  <!--EndFragment-->
