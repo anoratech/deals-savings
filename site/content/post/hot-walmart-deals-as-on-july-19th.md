@@ -150,3 +150,17 @@ G﻿O GO GO........
   ![May be an image of suitcase](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361586134_5772882756182427_8021393095717482375_n.jpg?stp=dst-jpg_p843x403&_nc_cat=101&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=z2n517W4EbcAX-S8awp&_nc_ht=scontent.fccu11-1.fna&oh=00_AfBTwoTPL3evbyeoOIh1h4G09ujX8NvJ-VvVcPZ85_EV1Q&oe=64BC89B6)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  \#WALMART\
+  🅿🆁🅸🅲🅴 🅳🆁🅾🅿\
+  NOW- 💲89.99 (REG- 💲259.99)\
+  Cordless Vacuum Cleaner Lightweight Stick\
+  <https://mavely.app.link/e/GGw6ToLmxBb>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![May be an image of scooter, segway and text](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361644489_5772729622864407_1667088922074460336_n.jpg?stp=dst-jpg_p843x403&_nc_cat=107&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=nKDdQgSkXJMAX-b2NHL&_nc_ht=scontent.fccu11-1.fna&oh=00_AfATxGAs0B3RR9htIJSfV4qMrvjLxaYjoo0nFL1RnO_ffg&oe=64BCF7F6)
+
+  <!--EndFragment-->
