@@ -175,3 +175,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/91xpkakyODL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ✂️✂️Use COUPON ✂️✂️
+  Duracell Coppertop AAA Batteries
+  https://amzn.to/3rj9SLK
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71fYdkAZLML._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
