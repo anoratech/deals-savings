@@ -8,6 +8,17 @@ image: data:image/jpeg;base64,/9j/4AAQSkZJRgABAQAAAQABAAD/2wCEAAkGBxQUExYUFBQWFx
 ---
 A﻿WESOME DEALS 
 
+* L.A. COLORS Day To Night 12 Color Eyeshadow Palette, Sundown 
+
+  Grab & go 
+
+  Only $3.xx 
+
+  <https://amzn.to/3DkYYaR>
+
+  Ad 
+
+  ![](img/24db1f5c-b738-4959-8066-9a962e56f51a.jpeg)
 * Lip Liner by Revlon,  
 
   79% off 
