@@ -183,3 +183,14 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/71fYdkAZLML._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  PRICE DROP 🔽🔽\
+  💕💕ℍ𝕠𝕞𝕒𝕩𝕪 𝟙𝟘𝟘% ℂ𝕠𝕥𝕥𝕠𝕟 𝕎𝕒𝕗𝕗𝕝𝕖 𝕎𝕖𝕒𝕧𝕖 𝕂𝕚𝕥𝕔𝕙𝕖𝕟 𝔻𝕚𝕤𝕙 ℂ𝕝𝕠𝕥𝕙𝕤\
+  <https://amzn.to/3NHX7lc> (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81YlKeBDwML._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
