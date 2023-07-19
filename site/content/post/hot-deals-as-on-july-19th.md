@@ -18,3 +18,14 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   <!--EndFragment-->
 
   ![]()
+* <!--StartFragment-->
+
+  ⬇️⬇️GREAT DROP ‼️💧\
+  😋😋Maruchan Ramen Creamy Chicken Flavor, 3 Oz, Pack of 24 <https://amzn.to/46pnB3B>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91TnZvel+pL._SL1500_.jpg)
+
+  <!--EndFragment-->
