@@ -8,6 +8,17 @@ image: data:image/jpeg;base64,/9j/4AAQSkZJRgABAQAAAQABAAD/2wCEAAkGBxQUExYUFBQWFx
 ---
 A﻿WESOME DEALS 
 
+* wet n wild Silk Finish Lipstick
+
+  Price drop 
+
+  Under $1 
+
+  [https://amzn.to/44PF3MX ](https://amzn.to/44PF3MX)
+
+  Ad 
+
+  ![](img/ebcfddc7-c09c-4fcc-81d3-7be3875926f3.jpeg)
 * e.l.f. Flawless Finish Foundation
 
   45% off 
