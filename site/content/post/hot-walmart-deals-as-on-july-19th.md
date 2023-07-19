@@ -111,37 +111,14 @@ G﻿O GO GO........
   ![Doosl PS5 Controller Charger Station, Fast Charging Dock for PlayStation 5 Dualsense Controllers with Charging Cable and LED Indicator, White](https://i5.walmartimages.com/asr/6c08f2b2-b8c4-464b-8ad2-fbfcb0320d83.1cb7015ea4e577b43ce58d711053f876.png?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 * <!--StartFragment-->
 
-  \#WALMART
-
-  ![‼️](https://static.xx.fbcdn.net/images/emoji.php/v9/tfe/1.5/16/203c.png)![✨](https://static.xx.fbcdn.net/images/emoji.php/v9/t7b/1.5/16/2728.png)𝓟𝓡𝓘𝓒𝓔 𝓓𝓡𝓞𝓟 ![‼️](https://static.xx.fbcdn.net/images/emoji.php/v9/tfe/1.5/16/203c.png)![✨](https://static.xx.fbcdn.net/images/emoji.php/v9/t7b/1.5/16/2728.png)
-
-  𝔹𝕝𝕦𝕖’𝕤 ℂ𝕝𝕦𝕖𝕤 & 𝕐𝕠𝕦! 𝔹𝕖𝕒𝕟𝕓𝕒𝕘 ℙ𝕝𝕦𝕤𝕙 𝔹𝕝𝕦𝕖, 𝕂𝕚𝕕𝕤 𝕋𝕠𝕪𝕤 𝕗𝕠𝕣 𝔸𝕘𝕖𝕤 𝟛 𝕌𝕡, 𝔾𝕚𝕗𝕥𝕤 𝕒𝕟𝕕 ℙ𝕣𝕖𝕤𝕖𝕟𝕥𝕤
-
-  ![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/tb5/1.5/16/1f4b2.png)4 ![🏃](https://static.xx.fbcdn.net/images/emoji.php/v9/t94/1.5/16/1f3c3.png)![🏃](https://static.xx.fbcdn.net/images/emoji.php/v9/t94/1.5/16/1f3c3.png)
-
-  [https://mavely.app.link/e/PZ9gWCAGxBb](https://mavely.app.link/e/PZ9gWCAGxBb?fbclid=IwAR0igNdUVNIiEDEtUoeq9d1haXsrvqK_Qqh82c1c5llMhSLwNEfZhayp-80)
-
-  (AD)
+  \#WALMART\
+  💲4.98 🏃🏃\
+  Zak Designs Marvel Comics The Avengers 16 Fluid Ounces Reusable Leakproof Plastic Water Bottle\
+  <https://shopstyle.it/l/bYU0Y>\
+  (ad)
 
   <!--EndFragment--><!--StartFragment-->
 
-  ![May be an image of toy](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361644369_5772879756182727_7825040084063628970_n.jpg?stp=dst-jpg_p843x403&_nc_cat=111&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=9k7tntrP8nkAX8MFmlz&_nc_ht=scontent.fccu11-1.fna&oh=00_AfBUpVD8btgHis5AhLDnIA3SuCSHaEUAzu-33oAzzxElFw&oe=64BC1D97)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  [\#WALMART](https://www.facebook.com/hashtag/walmart?__eep__=6&__cft__[0]=AZVup1k0hrRCrSD-B6EljZAIWz1xu5jWnpubn9jaFq3OMBtW_8pYZwkNS4gDOiA7_ByOf84fzma6OnaBh7Ebkl76MhFIsbVL8vcQt_nlIAui_CBCrIGDXg3XuIUGj1gV7I6OrhmyBJ0ku8guUU7MbMeF&__tn__=*NK-R)
-
-  (っ◔◡◔)っ ![♥](https://static.xx.fbcdn.net/images/emoji.php/v9/t33/1.5/16/2665.png) PRICE DROP ![♥](https://static.xx.fbcdn.net/images/emoji.php/v9/t33/1.5/16/2665.png)
-
-  * **NOW- $109.99 (REG- $169.99)**
-
-  [https://shopstyle.it/l/bYVUd](https://shopstyle.it/l/bYVUd?fbclid=IwAR2F6N8upWJ3fm1cdlQS1A3VinEpMIBeCrd10JVM6TsLTBOhZ3Xgc_acirA)
-
-  ### 3 Piece Luggage Sets (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![May be an image of suitcase](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361586134_5772882756182427_8021393095717482375_n.jpg?stp=dst-jpg_p843x403&_nc_cat=101&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=z2n517W4EbcAX-S8awp&_nc_ht=scontent.fccu11-1.fna&oh=00_AfBTwoTPL3evbyeoOIh1h4G09ujX8NvJ-VvVcPZ85_EV1Q&oe=64BC89B6)
+  ![May be an image of Superman and text that says "I zak!"](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/361594680_5772733606197342_7426714652006782882_n.jpg?stp=dst-jpg_p843x403&_nc_cat=100&cb=99be929b-59f725be&ccb=1-7&_nc_sid=5cd70e&_nc_ohc=dlV2cN3qFRkAX86DMMz&_nc_ht=scontent.fccu11-1.fna&oh=00_AfD3LMDjBwrYJ4o342eN_1j-MwjoEfcZm6qatSWum5-EBg&oe=64BD583E)
 
   <!--EndFragment-->
