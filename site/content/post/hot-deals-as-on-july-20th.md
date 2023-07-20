@@ -146,3 +146,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/81kn1TzOsmL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 🔽⤵️GREAT DROP ‼️⏬
+  Take & Toss 8 Oz Bowls with Lids - 6 Pack
+  https://amzn.to/3K2fKQ1
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61TvwsrAFuL._SL1500_.jpg)
+
+  <!--EndFragment-->
