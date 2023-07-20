@@ -57,3 +57,12 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/712OEDcWJUL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 𝗚𝗥𝗔𝗕 & 𝗚𝗢🏃🏃
+  BACK TO SCHOOL 🎒
+  Basics Woodcased #2 Pencils
+  https://amzn.to/46WwX71
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81yb+HGKXrL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
