@@ -122,3 +122,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![Columbia Men\&#39;s Steens Mountain 2.0 Full Zip Fleece Jacket](https://m.media-amazon.com/images/I/61dSpEcQdgL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* 6xx ONLY 
+  Makeup Brushes Makeup Brush Set 
+  https://amzn.to/44RPyj6 
+  (ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71hMhFrd6IL._SL1500_.jpg)
+
+  <!--EndFragment-->
