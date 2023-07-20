@@ -82,3 +82,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/81-uCj4epoL._SL1500_.jpg)
 
   <!--EndFragment-->
+* 🔽🏃𝗣𝗥𝗜𝗖𝗘 𝗗𝗥𝗢𝗣 ⏬⏬
+  💝💝First Response Gold Digital Pregnancy Test
+  https://amzn.to/3XVMSyB
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/818jjvi5aXL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
