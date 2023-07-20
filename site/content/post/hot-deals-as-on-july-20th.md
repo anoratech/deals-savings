@@ -154,3 +154,11 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/61TvwsrAFuL._SL1500_.jpg)
 
   <!--EndFragment-->
+* Wood-Cased Pencils
+  UNDER 4️⃣ BUCKS 
+  https://amzn.to/3PZVPVM
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71cW-JLfDbL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
