@@ -48,3 +48,12 @@ description: Prices/Codes valid at time of posting. May change/expire at any tim
   ![](https://m.media-amazon.com/images/I/91r04foxa9L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ✂️✂️C-O-U-P-O-N ✂️✂️
+   2 Pack LCD Writing Tablet 
+  https://amzn.to/3DhL0qt
+
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/712OEDcWJUL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
