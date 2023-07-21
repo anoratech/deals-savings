@@ -10,6 +10,24 @@ G﻿O GO GO.......
 
 <!--StartFragment-->
 
+Epson Expression Home XP-4205 Wireless Color Printer with Scanner and Copier
+
+Now $62.00
+
+was $114.99
+
+Price when purchased online
+
+https://shopstyle.it/l/bY2QZ
+
+ad
+
+<!--EndFragment-->
+
+![Epson Expression Home XP-4205 Wireless Color Printer with Scanner and Copier](https://i5.walmartimages.com/asr/cc93bc50-3711-4599-9a72-02dcb27c6d7e.1a46a5e7f8bf16f6fd343b63615a5d82.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+<!--EndFragment-->
+
 Microsoft Xbox Stereo Headset
 
 **Now $46.49**
