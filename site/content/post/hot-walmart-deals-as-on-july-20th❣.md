@@ -10,6 +10,20 @@ G﻿O GO GO.......
 
 <!--StartFragment-->
 
+(24 Cans) Dole All Natural 100% Pineapple Juice, 6 fl oz Can
+
+Now $10.72
+
+was $28.98
+
+https://shopstyle.it/l/bY2TB
+
+ad
+
+![(24 Cans) Dole All Natural 100% Pineapple Juice, 6 fl oz Can](https://i5.walmartimages.com/asr/40160611-1a4a-41ce-b8bb-694c67860cd1.16845834ff921a4c4405173535b02785.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+<!--EndFragment-->
+
 Go Lite OTC Hearing Aids
 
 Now $169.00
