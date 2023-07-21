@@ -68,3 +68,11 @@ r﻿unnn.....
   ![Amazon Essentials Men\&#39;s Regular-Fit Tank Top](https://m.media-amazon.com/images/I/81aRHcnI65L._AC_UX569_.jpg)
 
   <!--EndFragment-->
+* 𝗚𝗥𝗔𝗕 & 𝗚𝗢 🏃🏃
+  💞💞DUDE Wipes Flushable Wipes - 1 Pack, 48 Wipes
+  https://amzn.to/43CBsRk
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71-wWitztHL._SL1500_.jpg)
+
+  <!--EndFragment-->
