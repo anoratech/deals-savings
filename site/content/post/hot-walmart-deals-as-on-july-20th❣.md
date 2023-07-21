@@ -96,8 +96,6 @@ ad
 
 ![Google Nest Hub Max - Chalk](https://i5.walmartimages.com/asr/526ecff4-93ad-4c9e-ba23-8f978b464720_6.0b55176e7333ec52b485cd434d7e3728.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
-
-
 Bounce Pro 14' Trampoline with Flashlight Zone
 
 Now $219.00
@@ -157,9 +155,6 @@ ad
   https://mavely.app.link/e/ioUKkNGvBBb FREE SHIP!   AD<!--StartFragment-->
 
   ![Nova Storage Bench](https://assets.wfcdn.com/im/59386090/resize-h755-w755%5Ecompr-r85/9606/96067261/Nova+Storage+Bench.jpg)
-
-  <!--EndFragment-->
-
 * 🍬  𝒢𝓇𝒶𝒷 𝐼𝓉  🌷
   🦜₱Ɽł₵Ɇ ĐⱤØ₱🧚‍♀
   ❣ ℍ𝕆𝕋 𝔻𝔼𝔸𝕃🏃‍♀🏃‍♀
@@ -247,3 +242,18 @@ ad
   Encanto Toddler Girls Sneakers, Sizes 11-5 AD<!--StartFragment-->
 
   ![Disney Encanto Mirabel Girls High Top Hook and Loop Sneakers. (Toddler Little Kids)](https://i5.walmartimages.com/asr/0a486529-323f-4525-bc09-af44e0520f58.2d6b9fa33cd899649ddd5b2219173b6d.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+* <!--StartFragment-->
+
+  RUNNNN 🏃🏃 #WALMART
+
+  🅿🆁🅸🅲🅴 🅳🆁🅾🅿
+
+  💲74.99 (REG- 💲189.99)
+
+  Bioby Electric Baby Swing Chair with Remote Control
+
+  https://mavely.app.link/e/XtBbEUi3ABb
+
+  (AD)
+
+  <!--EndFragment-->
