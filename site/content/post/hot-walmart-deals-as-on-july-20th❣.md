@@ -10,6 +10,20 @@ G﻿O GO GO.......
 
 <!--StartFragment-->
 
+Go Lite OTC Hearing Aids
+
+Now $169.00
+
+was $199.00
+
+https://shopstyle.it/l/bY2Tu
+
+ad
+
+![Go Lite OTC Hearing Aids](https://i5.walmartimages.com/asr/2033ca75-1955-4d57-ab17-6a36560bafc2.90c0d5acec2db40ca3b1a6c4e75ffe35.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+<!--EndFragment-->
+
 Push and Pull Toy
 
 Now $15.00
