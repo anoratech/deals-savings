@@ -49,3 +49,12 @@ r﻿unnn.....
   ![Under Armour Men\&#39;s Sportstyle Logo Short Sleeve T-Shirt](https://m.media-amazon.com/images/I/715rxYtGhGL._AC_UX569_.jpg)
 
   <!--EndFragment-->
+* ♦️♦️ℙℝ𝕀ℂ𝔼 𝔻𝕆𝕎ℕ⏬⏬
+  SIZE M- XXL, $12xx ONLY 
+  Men’s 2 in 1 Running Shorts 🩳
+  https://amzn.to/3q2IZev
+  (AD)<!--StartFragment-->
+
+  ![CYF Men’s 2 in 1 Running Shorts with Pockets Quick Dry Breathable Active Gym Workout Shorts](https://m.media-amazon.com/images/I/61Chgfyt9VL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
