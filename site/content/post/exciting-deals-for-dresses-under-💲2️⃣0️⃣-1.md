@@ -72,3 +72,12 @@ R﻿uuuunnnnnn.....
   ![Women\&#39;s Summer Casual Boho Dress Fashion Solid Chiffon Dresses Short Sleeve High Waist Tshirt Dress Flowy Beach Sundresses](https://m.media-amazon.com/images/I/71jPL8YCsBL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* ⏬⏬PRICE DOWN ⤵️⤵️
+  Riviera Sun Strapless Tube Short Dress
+  SIZE S- 3XL , $17xx ONLY 
+  https://amzn.to/3rDjkJY
+  (AD)<!--StartFragment-->
+
+  ![Riviera Sun Strapless Tube Short Dress Summer Dresses](https://m.media-amazon.com/images/I/81JHmNVtnKL._AC_UY741_.jpg)
+
+  <!--EndFragment-->
