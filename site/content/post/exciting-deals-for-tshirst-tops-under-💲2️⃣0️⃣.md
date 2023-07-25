@@ -14,8 +14,6 @@ image: img/e0e0028b-133d-4d12-a64f-06aaf82688dd.jpg
 
   ![Hanes Women\&#39;s Short Sleeve V-Neck Graphic T-Shirt](https://m.media-amazon.com/images/I/71yd-zFMvkL._AC_UX679_.jpg)
 
-  <!--EndFragment-->
-
   ![]()
 * 🅿🆁🅸🅲🅴 🅳🆁🅾🅿
   SIZE S- XXL, $10xx ONLY 
@@ -24,8 +22,6 @@ image: img/e0e0028b-133d-4d12-a64f-06aaf82688dd.jpg
   (AD)<!--StartFragment-->
 
   ![WIHOLL Womens Tie Neck Chiffon Blouses Summer Causal Ruffle Trim Sleeveless Tops Shirts](https://m.media-amazon.com/images/I/71Q-L8mnqqL._AC_UY879_.jpg)
-
-  <!--EndFragment-->
 * (っ◔◡◔)っ ♥ PRICE DROP ♥
   Athletic Sleeveless Tank Tops
   💲17xx ONLY
@@ -33,8 +29,6 @@ image: img/e0e0028b-133d-4d12-a64f-06aaf82688dd.jpg
   (AD)<!--StartFragment-->
 
   ![MARZXIN Athletic Sleeveless Tank Tops for Women Workout Shirts Quick Dry Crop Tops](https://m.media-amazon.com/images/I/61XI-jz+XqL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * ⏬⏬GREAT DROP ‼️⤵️
   $13xx ONLY
   💕💕Favorite Long Length Tees
@@ -42,8 +36,6 @@ image: img/e0e0028b-133d-4d12-a64f-06aaf82688dd.jpg
   (AD)<!--StartFragment-->
 
   ![](blob:https://web.whatsapp.com/5ce651e8-dde5-4bc6-aa1b-2152c2307bb8)
-
-  <!--EndFragment-->
 * ⏬⏬ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ⤵️⤵️
   SIZE S- XXL, $18xx ONLY
   Women's Floral Print Puff Sleeve Kimono Cardigan
@@ -51,5 +43,3 @@ image: img/e0e0028b-133d-4d12-a64f-06aaf82688dd.jpg
   (AD)<!--StartFragment-->
 
   ![Women\&#39;s Floral Print Puff Sleeve Kimono Cardigan Loose Cover Up Casual Blouse Tops](https://m.media-amazon.com/images/I/810yz3XJoYS._AC_UY741_.jpg)
-
-  <!--EndFragment-->
