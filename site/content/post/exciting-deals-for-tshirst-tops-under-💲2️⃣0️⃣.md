@@ -35,3 +35,12 @@ image: img/e0e0028b-133d-4d12-a64f-06aaf82688dd.jpg
   ![MARZXIN Athletic Sleeveless Tank Tops for Women Workout Shirts Quick Dry Crop Tops](https://m.media-amazon.com/images/I/61XI-jz+XqL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* ⏬⏬GREAT DROP ‼️⤵️
+  $13xx ONLY
+  💕💕Favorite Long Length Tees
+  https://mavely.app.link/e/dgEhltvhIBb
+  (AD)<!--StartFragment-->
+
+  ![](blob:https://web.whatsapp.com/5ce651e8-dde5-4bc6-aa1b-2152c2307bb8)
+
+  <!--EndFragment-->
