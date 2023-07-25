@@ -17,3 +17,12 @@ image: img/e0e0028b-133d-4d12-a64f-06aaf82688dd.jpg
   <!--EndFragment-->
 
   ![]()
+* 🅿🆁🅸🅲🅴 🅳🆁🅾🅿
+  SIZE S- XXL, $10xx ONLY 
+  💕💕Womens Tie Neck Chiffon Blouses Summer Causal Ruffle Trim Sleeveless Tops Shirts
+  https://amzn.to/3qaWpVT
+  (AD)<!--StartFragment-->
+
+  ![WIHOLL Womens Tie Neck Chiffon Blouses Summer Causal Ruffle Trim Sleeveless Tops Shirts](https://m.media-amazon.com/images/I/71Q-L8mnqqL._AC_UY879_.jpg)
+
+  <!--EndFragment-->
