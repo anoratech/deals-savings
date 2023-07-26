@@ -40,3 +40,11 @@ image: img/436c57c1-b7dd-4010-8e74-9fb3e99ff5cd.jpg
   ![](https://m.media-amazon.com/images/I/716vnCtR0UL._SL1500_.jpg)
 
   <!--EndFragment-->
+* Lip Liner by Revlon 
+  2xx ONLY 
+  https://amzn.to/3Y0DCt9 
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61QiwCGKhHL._SL1500_.jpg)
+
+  <!--EndFragment-->
