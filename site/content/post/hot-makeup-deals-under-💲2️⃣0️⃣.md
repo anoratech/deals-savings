@@ -48,3 +48,11 @@ image: img/436c57c1-b7dd-4010-8e74-9fb3e99ff5cd.jpg
   ![](https://m.media-amazon.com/images/I/61QiwCGKhHL._SL1500_.jpg)
 
   <!--EndFragment-->
+* 6xx ONLY 
+  Makeup Brushes Makeup Brush Set 
+  https://amzn.to/44RPyj6 
+  (ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71hMhFrd6IL._SL1500_.jpg)
+
+  <!--EndFragment-->
