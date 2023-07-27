@@ -59,3 +59,15 @@ image: img/whatsapp-image-2023-07-27-at-3.48.07-pm.jpeg
   ![](https://m.media-amazon.com/images/I/61ZqtISESEL._AC_SL1000_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  USE C-O-U-P-O-N ✂️✂️\
+  👉👉4 Pack Scented Candles Gift Set\
+  <https://amzn.to/3rBMg56>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81GQ9BEUSDL._AC_SL1407_.jpg)
+
+  <!--EndFragment-->
