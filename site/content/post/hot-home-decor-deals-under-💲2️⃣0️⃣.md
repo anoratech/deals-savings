@@ -49,41 +49,21 @@ image: img/whatsapp-image-2023-07-27-at-3.48.07-pm.jpeg
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61JRr9U7KgS._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ✂️✂️C-O-U-P-O-N ✂️✂️
   Vintage Decor Daisy Decor
   https://amzn.to/44J21Wa
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61ZqtISESEL._AC_SL1000_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  USE C-O-U-P-O-N ✂️✂️\
-  👉👉4 Pack Scented Candles Gift Set\
-  <https://amzn.to/3rBMg56>\
-  (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/81GQ9BEUSDL._AC_SL1407_.jpg)
-
-  <!--EndFragment-->
 * ⏬⏬ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ‼️‼️
   🦋 🦋 3D Butterfly Wall Decor 48 Pcs
   https://amzn.to/3DlVYeo
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81EzGFybf9L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ✂️✂️USE C-O-U-P-O-N ✂️✂️
   Fluffy Bedroom Rug Carpet,4x5.3
   https://amzn.to/3Q5RErs
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81jbe3OpfGL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
