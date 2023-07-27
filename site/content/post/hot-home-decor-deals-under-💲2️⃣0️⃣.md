@@ -51,3 +51,11 @@ image: img/whatsapp-image-2023-07-27-at-3.48.07-pm.jpeg
   ![](https://m.media-amazon.com/images/I/61JRr9U7KgS._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ✂️✂️C-O-U-P-O-N ✂️✂️
+  Vintage Decor Daisy Decor
+  https://amzn.to/44J21Wa
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61ZqtISESEL._AC_SL1000_.jpg)
+
+  <!--EndFragment-->
