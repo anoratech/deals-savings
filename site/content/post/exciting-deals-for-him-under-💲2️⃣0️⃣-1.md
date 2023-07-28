@@ -122,4 +122,18 @@ ad
 
 ![Hanes Men's Super Value Pack Assorted Boxer Briefs, 10 Pack](https://i5.walmartimages.com/seo/Hanes-Men-s-Super-Value-Pack-Assorted-Boxer-Briefs-10-Pack_a0ef15d2-4f90-48f4-9c8a-0e9a58bdf2c8.b074c48a634d69299c868b4a03552bb5.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Mens Ankle Socks
+
+https://amzn.to/44YZK9e
+
+Price Drop + coupon
+
+ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/71+WZhWuCnL._AC_UX522_.jpg)
+
 <!--EndFragment-->
