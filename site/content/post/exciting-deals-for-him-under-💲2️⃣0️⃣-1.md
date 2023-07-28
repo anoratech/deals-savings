@@ -106,4 +106,20 @@ ad
 
 ![Myrurgia Yacht Man Metal Eau De Toilette Spray for Men 3.4 oz](https://i5.walmartimages.com/seo/Myrurgia-Yacht-Man-Metal-Eau-De-Toilette-Spray-for-Men-3-4-oz_52a99e9a-f941-43b6-aaf6-557face379a6.6ccc8d8a1ce8e216c5ec65cafc989517.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+Hanes Men's Super Value Pack Assorted Boxer Briefs, 10 Pack
+
+Now $19.98
+
+was $29.98
+
+https://shopstyle.it/l/bZkfc
+
+ad
+
+<!--EndFragment-->
+
+![Hanes Men's Super Value Pack Assorted Boxer Briefs, 10 Pack](https://i5.walmartimages.com/seo/Hanes-Men-s-Super-Value-Pack-Assorted-Boxer-Briefs-10-Pack_a0ef15d2-4f90-48f4-9c8a-0e9a58bdf2c8.b074c48a634d69299c868b4a03552bb5.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 <!--EndFragment-->
