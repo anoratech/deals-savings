@@ -52,8 +52,6 @@ image: img/whatsapp-image-2023-07-31-at-1.17.00-pm.jpeg
   (AD)<!--StartFragment-->
 
   ![CCTOO Women\&#39;s Summer Maxi Dresses Sexy Cut Out High Waist Crew Neck Short Puff Sleeve A Line Tiered Midi Dress](https://m.media-amazon.com/images/I/71CWt1UO1rL._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * SIZE S- XXL , $17xx ONLY
    💝Womens Summer Dresses
   🅿🆁🅸🅲🅴 🅳🆁🅾🅿
@@ -61,8 +59,6 @@ image: img/whatsapp-image-2023-07-31-at-1.17.00-pm.jpeg
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71sBv-hdG0L._AC_SY741._SX._UX._SY._UY_.jpg)
-
-  <!--EndFragment-->
 * C-O-U-P-O-N ✂️✂️
   SIZE S-XL, 
   ♦️Women's Summer Casual Boho Dress
@@ -70,8 +66,6 @@ image: img/whatsapp-image-2023-07-31-at-1.17.00-pm.jpeg
   (AD)<!--StartFragment-->
 
   ![Women\&#39;s Summer Casual Boho Dress Fashion Solid Chiffon Dresses Short Sleeve High Waist Tshirt Dress Flowy Beach Sundresses](https://m.media-amazon.com/images/I/71jPL8YCsBL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * ⏬⏬PRICE DOWN ⤵️⤵️
   Riviera Sun Strapless Tube Short Dress
   SIZE S- 3XL , $17xx ONLY 
@@ -79,8 +73,6 @@ image: img/whatsapp-image-2023-07-31-at-1.17.00-pm.jpeg
   (AD)<!--StartFragment-->
 
   ![Riviera Sun Strapless Tube Short Dress Summer Dresses](https://m.media-amazon.com/images/I/81JHmNVtnKL._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * P♥R♥I♥C♥E♥ ♥D♥R♥O♥P
   SIZE S- XL, $17xx ONLY 
   💝Women's Summer Cocktail Midi Dresses
@@ -88,5 +80,3 @@ image: img/whatsapp-image-2023-07-31-at-1.17.00-pm.jpeg
   (AD)<!--StartFragment-->
 
   ![IFFEI Women\&#39;s Summer Cocktail Midi Dresses 2023 Short Sleeve Round Neck Ruched Twist Knot Casual Evening Party Bodycon Dress](https://m.media-amazon.com/images/I/61fAUQNNxNL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
