@@ -54,3 +54,12 @@ image: img/whatsapp-image-2023-07-31-at-1.17.00-pm.jpeg
   ![CCTOO Women\&#39;s Summer Maxi Dresses Sexy Cut Out High Waist Crew Neck Short Puff Sleeve A Line Tiered Midi Dress](https://m.media-amazon.com/images/I/71CWt1UO1rL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* SIZE S- XXL , $17xx ONLY
+   💝Womens Summer Dresses
+  🅿🆁🅸🅲🅴 🅳🆁🅾🅿
+  https://amzn.to/44ucEMN
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71sBv-hdG0L._AC_SY741._SX._UX._SY._UY_.jpg)
+
+  <!--EndFragment-->
