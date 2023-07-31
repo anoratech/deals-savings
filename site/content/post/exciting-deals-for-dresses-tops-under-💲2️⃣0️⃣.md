@@ -80,3 +80,54 @@ image: img/whatsapp-image-2023-07-31-at-1.17.00-pm.jpeg
   (AD)<!--StartFragment-->
 
   ![IFFEI Women\&#39;s Summer Cocktail Midi Dresses 2023 Short Sleeve Round Neck Ruched Twist Knot Casual Evening Party Bodycon Dress](https://m.media-amazon.com/images/I/61fAUQNNxNL._AC_UX679_.jpg)
+
+  * ❣ ℍ𝕆𝕋 𝔻𝔼𝔸𝕃🏃‍♀🏃‍♀
+    ₱Ɽł₵Ɇ ĐⱤØ₱❣❣AD
+    walmart
+    https://mavely.app.link/e/MUbpd61tnBb
+    Fantaslook Blouses for Women Dressy V Neck Ruffle Sleeve Summer Tops Casual Flowy Shirts<!--StartFragment-->
+
+    ![Fantaslook Blouses for Women Dressy V Neck Ruffle Sleeve Summer Tops Casual Flowy Shirts](https://i5.walmartimages.com/asr/f82661b0-ad54-4638-acc7-9f2e3f449d63.4e7650b89069066997f61ffa83a0b3e8.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+    <!--EndFragment-->
+  * 🏃‍♀🏃‍♀ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ🏃‍♀🏃‍♀
+    https://mavely.app.link/e/GRY69ZiJGBb
+    Time and Tru Women’s Sleeveless Tiered Knit Dress 
+    AD<!--StartFragment-->
+
+    ![Time and Tru Women's Sleeveless Tiered Knit Dress](https://i5.walmartimages.com/seo/Time-and-Tru-Women-s-Sleeveless-Tiered-Knit-Dress_7667a97a-9c81-474f-a13c-739cf788120d.414b009822df4bcbd92b8551a80e104b.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+    <!--EndFragment-->
+  * 🏃‍♀🏃‍♀ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ🏃‍♀🏃‍♀
+    https://mavely.app.link/e/HFtXJ6aJGBb
+    Free Assembly Women’s Shift Mini Dress with Blouson Sleeves AD<!--StartFragment-->
+
+    ![Free Assembly Women's Shift Mini Dress with Blouson Sleeves](https://i5.walmartimages.com/seo/Free-Assembly-Women-s-Shift-Mini-Dress-with-Blouson-Sleeves_463bb49b-88af-48f9-8cdd-51e09d3d8aaa.c4fc382adc51254146684a63ec7cbf54.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
+    <!--EndFragment-->
+  * 🏃‍♀🏃‍♀ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ🏃‍♀🏃‍♀
+    https://mavely.app.link/e/ta4o992IGBb
+    Time and Tru Women’s Knit Halter Dress
+    Now $9.58
+    Was $12.98
+    AD<!--StartFragment-->
+
+    ![Time and Tru Women's Knit Halter Dress](https://i5.walmartimages.com/seo/Time-and-Tru-Women-s-Knit-Halter-Dress_9b9d9746-9f32-4a36-b9f9-2ef9ad8ae8bd.0cfdbcf32cb5c199efadfd5be821a3f5.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+    <!--EndFragment-->
+  * 🏃‍♀🏃‍♀ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ🏃‍♀🏃‍♀
+    https://mavely.app.link/e/0wogIuTIGBb
+    Chaps Women’s Cap Sleeve Jersey Knit Dress 
+    AD<!--StartFragment-->
+
+    ![Chaps Women's Cap Sleeve Jersey Knit Dress](https://i5.walmartimages.com/asr/c72fe6f2-53eb-4399-9371-e76c8ef7ad16.7230feb8aa233b47e87f75f81653ee69.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
+    <!--EndFragment-->
+  * 🏃‍♀🏃‍♀ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ🏃‍♀🏃‍♀
+    https://mavely.app.link/e/b5OyxJMIGBb
+    Time and Tru Women’s Short Sleeve Tiered Knit Dress –
+    AD<!--StartFragment-->
+
+    ![Time and Tru Women's Short Sleeve Tiered Knit Dress](https://i5.walmartimages.com/seo/Time-and-Tru-Women-s-Short-Sleeve-Tiered-Knit-Dress_0ba1979e-4a70-46de-bfd7-c65e1e773330.5e5aa542d62face2094bc47d417e6468.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
+
+    <!--EndFragment-->
