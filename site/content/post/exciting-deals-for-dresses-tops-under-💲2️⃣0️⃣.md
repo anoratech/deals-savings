@@ -63,3 +63,12 @@ image: img/whatsapp-image-2023-07-31-at-1.17.00-pm.jpeg
   ![](https://m.media-amazon.com/images/I/71sBv-hdG0L._AC_SY741._SX._UX._SY._UY_.jpg)
 
   <!--EndFragment-->
+* C-O-U-P-O-N ✂️✂️
+  SIZE S-XL, 
+  ♦️Women's Summer Casual Boho Dress
+  https://amzn.to/43EgyS5
+  (AD)<!--StartFragment-->
+
+  ![Women\&#39;s Summer Casual Boho Dress Fashion Solid Chiffon Dresses Short Sleeve High Waist Tshirt Dress Flowy Beach Sundresses](https://m.media-amazon.com/images/I/71jPL8YCsBL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
