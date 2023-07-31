@@ -81,3 +81,12 @@ image: img/whatsapp-image-2023-07-31-at-1.17.00-pm.jpeg
   ![Riviera Sun Strapless Tube Short Dress Summer Dresses](https://m.media-amazon.com/images/I/81JHmNVtnKL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* P♥R♥I♥C♥E♥ ♥D♥R♥O♥P
+  SIZE S- XL, $17xx ONLY 
+  💝Women's Summer Cocktail Midi Dresses
+  https://amzn.to/43CxQ1U
+  (AD)<!--StartFragment-->
+
+  ![IFFEI Women\&#39;s Summer Cocktail Midi Dresses 2023 Short Sleeve Round Neck Ruched Twist Knot Casual Evening Party Bodycon Dress](https://m.media-amazon.com/images/I/61fAUQNNxNL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
