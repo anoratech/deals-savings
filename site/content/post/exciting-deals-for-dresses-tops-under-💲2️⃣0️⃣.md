@@ -45,3 +45,12 @@ image: img/whatsapp-image-2023-07-31-at-1.17.00-pm.jpeg
   AD\
 
   ![Image of item 0](https://i5.walmartimages.com/seo/The-Pioneer-Woman-Scoop-Neck-Dress-with-Short-Sleeves-Women-s_de8e3ab7-9541-45ce-9038-c5acc7221b44.14c2e1999599488ecc6906802c558c44.jpeg?odnHeight=330&odnWidth=330&odnBg=FFFFFF)
+* ⤵️⤵️ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ‼️‼️
+  SIZE S- XL, $12xx ONLY
+  💕💕Women's Summer Maxi Dresses
+  https://amzn.to/3Y7bG6Y
+  (AD)<!--StartFragment-->
+
+  ![CCTOO Women\&#39;s Summer Maxi Dresses Sexy Cut Out High Waist Crew Neck Short Puff Sleeve A Line Tiered Midi Dress](https://m.media-amazon.com/images/I/71CWt1UO1rL._AC_UY741_.jpg)
+
+  <!--EndFragment-->
