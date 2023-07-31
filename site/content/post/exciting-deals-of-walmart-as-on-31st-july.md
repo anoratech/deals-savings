@@ -89,8 +89,6 @@ H﻿OT DEALS....
 * https://mavely.app.link/e/1FKi3KT2RBb
   HONEIER Collapsible Laundry Basket 2pcs
   (38% OFF) 
-  Was: $15.99
-  Now: $9.99
   ✨𝕃𝕀𝕄𝕀𝕋𝔼𝔻 𝕋𝕀𝕄𝔼 𝔻𝔼𝔸𝕃✨
   👆₱Ɽł₵Ɇ ĐⱤØ₱ AD<!--StartFragment-->
 
@@ -98,8 +96,7 @@ H﻿OT DEALS....
 * 7 Colors LED Face Mask Therapy with Goggles
   https://mavely.app.link/e/NW2JN5n3RBb
   (40% OFF) 
-  Was $49.99
-  Now $29.99
+
   ✨𝕃𝕀𝕄𝕀𝕋𝔼𝔻 𝕋𝕀𝕄𝔼 𝔻𝔼𝔸𝕃✨
   👆₱Ɽł₵Ɇ ĐⱤØ₱👆
   ❣ 𝒲𝒶𝓁𝓂𝒶𝓇𝓉 𝒟𝑒𝒶𝓁  🏃‍♀🏃‍♀
@@ -108,8 +105,6 @@ H﻿OT DEALS....
   ![7 Colors PDT LED Light Therapy Skin Beauty Machine,LED Face Mask for Removal Wrinkle Anti Aging With Goggles](https://i5.walmartimages.com/asr/ad5367d5-e471-4b63-9d13-eea224295cdb.cf5f0c69f9341d3b89fe7d0bcfb684d7.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 * 37inch Outdoor Square BBQ Grill Fire Pit Table with Spark Screen
   https://mavely.app.link/e/5xazLmQ3RBb
-  Was $185.99
-  Now $119.99
   ✨𝕃𝕀𝕄𝕀𝕋𝔼𝔻 𝕋𝕀𝕄𝔼 𝔻𝔼𝔸𝕃✨
   👆₱Ɽł₵Ɇ ĐⱤØ₱👆
   ❣ 𝒲𝒶𝓁𝓂𝒶𝓇𝓉 𝒟𝑒𝒶𝓁  🏃‍♀🏃‍♀
@@ -118,8 +113,7 @@ H﻿OT DEALS....
   ![37inch Wood Fire Pits Outdoor Metal Firepit Square Table Backyard Patio Garden Stove Wood Burning BBQ Grill Fire Pit with Spark Screen, Log Grate, Wood Fire Poker](https://i5.walmartimages.com/asr/9610eb46-bf52-4b34-9791-8df5922b7468.da92ed7067f0a2e06c59989687a7f1c4.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 * Lusimo Full Size Bed Frame 14 inch No Box Spring Needed
   https://mavely.app.link/e/UOT4Uup4RBb
-  Was: $129.99
-  Now: $84.49
+
   ✨𝕃𝕀𝕄𝕀𝕋𝔼𝔻 𝕋𝕀𝕄𝔼 𝔻𝔼𝔸𝕃✨
   👆₱Ɽł₵Ɇ ĐⱤØ₱👆
   ❣ 𝒲𝒶𝓁𝓂𝒶𝓇𝓉 𝒟𝑒𝒶𝓁  🏃‍♀🏃‍♀
@@ -142,60 +136,3 @@ H﻿OT DEALS....
   🥳AD<!--StartFragment-->
 
   ![Minecraft Green Creeper 9 Can Mini Fridge 6.7L 1 Door Ambient Lighting 10.4 in H 10 in W 10 in D](https://i5.walmartimages.com/seo/Minecraft-Green-Creeper-9-Can-Mini-Fridge-6-7L-1-Door-Ambient-Lighting-10-4-in-H-10-in-W-10-in-D_b07d2143-ca58-4487-ac80-be9a8eae4bda.00c18b30e8b5692a40100a1c0362a5c7.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
-* <!--StartFragment-->
-
-  \#KOHLS SALE 🏃🏃
-
-  🅿🆁🅸🅲🅴 🅳🆁🅾🅿
-
-  NOW- 💲4.80 (REG- 💲32)
-
-  💝💝Juniors' Plus Size SO® Henley Tank Top
-
-  https://mavely.app.link/e/rJee1ljSSBb
-
-  (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![No photo description available.](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/364686231_5781833278620708_4815726429926190277_n.jpg?stp=dst-jpg_s851x315&_nc_cat=111&cb=99be929b-59f725be&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=Wu-JcXRmyaQAX_17JaK&_nc_ht=scontent.fccu11-1.fna&oh=00_AfACkbV2tpDbLwmRmyNRCgtS0yJjX4p-R0j30qlsfF7tpA&oe=64CD423F)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  \#WALMART
-
-  🎀🎀Sharpie Permanent Markers, Fine Point, Black, 12 Count
-
-  (っ◔◡◔)っ ♥ PRICE DROP ♥
-
-  NOW- 💲7.97
-
-  https://mavely.app.link/e/LGTkhFETSBb
-
-  (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![No photo description available.](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/363836114_5781843821952987_2105493527188831986_n.jpg?stp=dst-jpg_s851x315&_nc_cat=111&cb=99be929b-59f725be&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=KH2nGQxxN6oAX-RefZJ&_nc_ht=scontent.fccu11-1.fna&oh=00_AfA9bQVb0p8aM59WkqtF0GZAA8xg-TuDGJthcaoSrJWVeQ&oe=64CC60AB)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  \#WALMART
-
-  NOW- $10 (REG- $24.99)
-
-  🅾🅽 🅳🆁🅾🅿
-
-  𝕄𝕚𝕟𝕟𝕚𝕖'𝕤 ℍ𝕒𝕡𝕡𝕪 ℍ𝕖𝕝𝕡𝕖𝕣𝕤 𝔹𝕠𝕨𝕥𝕚𝕢𝕦𝕖 𝕊𝕙𝕠𝕡𝕡𝕚𝕟𝕘 ℂ𝕒𝕣𝕥
-
-  https://mavely.app.link/e/oj9GavBUSBb
-
-  (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![No photo description available.](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/364205634_5781851771952192_2924951375925224616_n.jpg?stp=dst-jpg_s851x315&_nc_cat=110&cb=99be929b-59f725be&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=cuuezsqDbdkAX96yG-K&_nc_ht=scontent.fccu11-1.fna&oh=00_AfDsiuHnAMhxAUoQeW_rqGfBA2SGENT4CF5kz1gDdQxUeQ&oe=64CBC57B)
-
-  <!--EndFragment-->
