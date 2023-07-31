@@ -161,3 +161,22 @@ H﻿OT DEALS....
   ![No photo description available.](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/364686231_5781833278620708_4815726429926190277_n.jpg?stp=dst-jpg_s851x315&_nc_cat=111&cb=99be929b-59f725be&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=Wu-JcXRmyaQAX_17JaK&_nc_ht=scontent.fccu11-1.fna&oh=00_AfACkbV2tpDbLwmRmyNRCgtS0yJjX4p-R0j30qlsfF7tpA&oe=64CD423F)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  \#WALMART
+
+  🎀🎀Sharpie Permanent Markers, Fine Point, Black, 12 Count
+
+  (っ◔◡◔)っ ♥ PRICE DROP ♥
+
+  NOW- 💲7.97
+
+  https://mavely.app.link/e/LGTkhFETSBb
+
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![No photo description available.](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/363836114_5781843821952987_2105493527188831986_n.jpg?stp=dst-jpg_s851x315&_nc_cat=111&cb=99be929b-59f725be&ccb=1-7&_nc_sid=dbeb18&_nc_ohc=KH2nGQxxN6oAX-RefZJ&_nc_ht=scontent.fccu11-1.fna&oh=00_AfA9bQVb0p8aM59WkqtF0GZAA8xg-TuDGJthcaoSrJWVeQ&oe=64CC60AB)
+
+  <!--EndFragment-->
