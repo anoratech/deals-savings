@@ -1,5 +1,5 @@
 ---
-title: Exciting deals for Dresses & Tops Under 💲2️⃣0️⃣
+title: Exciting deals for Dresses  Under 💲2️⃣0️⃣
 date: 2023-07-31T07:48:28.732Z
 tags: AMAZON,WALMART
 Category: DRESSES
