@@ -79,3 +79,16 @@ Runnnnn.....
   ![WIHOLL Womens Tie Neck Chiffon Blouses Summer Causal Ruffle Trim Sleeveless Tops Shirts](https://m.media-amazon.com/images/I/71Q-L8mnqqL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  (っ◔◡◔)っ ♥ PRICE DROP ♥\
+  Athletic Sleeveless Tank Tops\
+  17xx ONLY\
+  <https://amzn.to/3QbVYFn>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![MARZXIN Athletic Sleeveless Tank Tops for Women Workout Shirts Quick Dry Crop Tops](https://m.media-amazon.com/images/I/61XI-jz+XqL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
