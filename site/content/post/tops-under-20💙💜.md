@@ -105,3 +105,16 @@ Runnnnn.....
   ![Women\&#39;s Floral Print Puff Sleeve Kimono Cardigan Loose Cover Up Casual Blouse Tops](https://m.media-amazon.com/images/I/810yz3XJoYS._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ⏬⏬GREAT DROP ‼️⤵️\
+  13xx ONLY\
+  💕💕Favorite Long Length Tees\
+  <https://mavely.app.link/e/dgEhltvhIBb>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://cloud.media-jane.com/q_auto,f_auto,w_600,h_600,dpr_2,c_limit/v1/img/deals/1892430_square.jpg)
+
+  <!--EndFragment-->
