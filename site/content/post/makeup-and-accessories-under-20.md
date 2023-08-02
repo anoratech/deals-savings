@@ -186,8 +186,6 @@ ad
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81W1-nrvdFL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * 🏃RUNNNN 
   2xx ONLY 
   COUPON ✂️✂️
@@ -196,37 +194,27 @@ ad
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71sdLM9WoPL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * 6xx ONLY 
   Makeup Brushes Makeup Brush Set 
   https://amzn.to/44RPyj6 
   (ad)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71hMhFrd6IL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * UNDER 4️⃣ BUCKS 
   Foundation Brush Flat Top Kabuki 
   https://amzn.to/3K3XlCc
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/716vnCtR0UL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * ⤵️⤵️GREAT DROP ⏬⏬
   Maybelline Fit Me Blush
   https://amzn.to/3pMglyt
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71zZdKXtSXS._SL1500_.jpg)
-
-  <!--EndFragment-->
 * OMG RUNNNN 🏃🏃
   💄💄Lipstick By Wet n Wild
   https://amzn.to/3Dng7kp
   (AD)<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71xzRVmNIsL._SL1500_.jpg)
-
-  <!--EndFragment-->
