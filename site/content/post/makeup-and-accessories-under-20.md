@@ -66,4 +66,20 @@ ad
 
 ![](https://m.media-amazon.com/images/I/718USHoJmcL._SL1500_.jpg)
 
+<!--StartFragment-->
+
+Maybelline Super Stay Full Coverage Powder Foundation Makeup
+
+69% Off
+
+Grab & go
+
+https://amzn.to/45bLVVi
+
+ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/91RGHNU1lxL._SL1500_.jpg)
+
 <!--EndFragment-->
