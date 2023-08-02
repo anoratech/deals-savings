@@ -198,3 +198,11 @@ ad
   ![](https://m.media-amazon.com/images/I/71sdLM9WoPL._SL1500_.jpg)
 
   <!--EndFragment-->
+* 6xx ONLY 
+  Makeup Brushes Makeup Brush Set 
+  https://amzn.to/44RPyj6 
+  (ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71hMhFrd6IL._SL1500_.jpg)
+
+  <!--EndFragment-->
