@@ -1,5 +1,5 @@
 ---
-title: HOT DEALS AS ON AUGUST 1st
+title: HOT DEALS AS ON AUGUST 2nd
 date: 2023-08-02T05:48:38.597Z
 tags: AMAZON
 Category: MANY MORE......
