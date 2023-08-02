@@ -50,4 +50,20 @@ ad
 
 ![](https://m.media-amazon.com/images/I/61KT-k7ep4S._SL1500_.jpg)
 
+<!--StartFragment-->
+
+wet n wild Color Icon Eyeshadow Makeup Palette 10 Pan, V.I. Purple
+
+50% Off
+
+Grab & go
+
+https://amzn.to/3QlglA8
+
+ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/718USHoJmcL._SL1500_.jpg)
+
 <!--EndFragment-->
