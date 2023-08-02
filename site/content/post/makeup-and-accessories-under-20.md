@@ -22,4 +22,18 @@ ad
 
 ![](https://m.media-amazon.com/images/I/814tUkPJnZL._SL1500_.jpg)
 
+<!--StartFragment-->
+
+Rimmel Stay Matte Lip Liquid, Plum This Show, 0.21 Fl Oz (Pack of 1)
+
+79% Off
+
+Grab & go
+
+https://amzn.to/3DCo05w
+
+ad
+
+![Rimmel Stay Matte Lip Liquid, Plum This Show, 0.21 Fl Oz (Pack of 1)](https://m.media-amazon.com/images/I/31ecKLNho5L._SX300_SY300_QL70_FMwebp_.jpg)
+
 <!--EndFragment-->
