@@ -40,3 +40,11 @@ image: img/whatsapp-image-2023-08-03-at-12.52.37-am.jpeg
   ![](https://m.media-amazon.com/images/I/81GQ9BEUSDL._AC_SL1407_.jpg)
 
   <!--EndFragment-->
+* ⏬⏬PRICE DROP ‼️‼️
+  Family Rustic Wall Decor 
+  https://amzn.to/3O2Q07n
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61JRr9U7KgS._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
