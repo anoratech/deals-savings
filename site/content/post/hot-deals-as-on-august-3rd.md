@@ -49,3 +49,12 @@ description: "HOT DEALS "
   ![](https://m.media-amazon.com/images/I/81S7NjGk8ML._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ⏬⏬𝓖𝓡𝓔𝓐𝓣 𝓓𝓡𝓞𝓟 ⏬⏬
+  BIC Xtra-Smooth Mechanical Pencils With Erasers 
+  https://amzn.to/3DDcd70
+
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81dhLhGOxGL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
