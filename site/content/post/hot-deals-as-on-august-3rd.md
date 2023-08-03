@@ -5,4 +5,13 @@ tags: AMAZON
 Category: MANY MORE...
 description: "HOT DEALS "
 ---
-*
+* 😋😋Nature Valley Crunchy Granola Bars, Oats 'n Honey, 1.49 oz, 24 ct, 48 bars
+  🅾🅽 🅳🆁🅾🅿
+  https://amzn.to/3qhuROO
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81jqOpL8LWL._SL1500_.jpg)
+
+  <!--EndFragment-->
+
+  ![]()
