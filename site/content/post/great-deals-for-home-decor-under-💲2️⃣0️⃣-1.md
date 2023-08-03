@@ -16,3 +16,11 @@ image: img/whatsapp-image-2023-08-03-at-12.52.37-am.jpeg
   <!--EndFragment-->
 
   ![]()
+* ✂️✂️USE C-O-U-P-O-N ✂️✂️
+  Fluffy Bedroom Rug Carpet,4x5.3
+  https://amzn.to/3Q5RErs
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81jbe3OpfGL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
