@@ -77,3 +77,12 @@ description: "HOT DEALS "
   ![](https://m.media-amazon.com/images/I/81B56MpZMOL._SL1500_.jpg)
 
   <!--EndFragment-->
+* GRAB & GO 🏃🏃
+  Pencil Case Big Capacity Bag 
+  https://amzn.to/3Qoh2Zr 
+
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81zeAKYIdML._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
