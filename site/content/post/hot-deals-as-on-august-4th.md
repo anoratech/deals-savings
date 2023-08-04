@@ -5,4 +5,18 @@ tags: AMAZON
 Category: MANY MORE...
 description: "HOT DEALS "
 ---
-*
+* <!--StartFragment-->
+
+  OMG LOOK AT THE PRICE 🏃🏃\
+  🅶🆁🅴🅰🆃 🅳🅸🆂🅲🅾🆄🅽🆃\
+  Mrs. Meyer's Hand Soap Refill\
+  <https://amzn.to/3DDa0IS>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/715cIuidnIL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+
+  ![]()
