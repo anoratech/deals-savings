@@ -6,9 +6,20 @@ Category: OTHERS
 description: HOT AND TRENDING DEALS UNDER 20
 image: img/whatsapp-image-2023-08-04-at-4.29.05-pm.jpeg
 ---
-
-
 *
+* adidas Men's Athletic Cushioned Quarter Socks
+
+  Price Drop
+
+  https://amzn.to/45f8ckZ
+
+  ad
+
+  <!--EndFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81hNGGETHXL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
 * Myrurgia Yacht Man Blue Eau-de-toilette Spray, 3.4 Ounce
 
 https://amzn.to/45iSc1z
