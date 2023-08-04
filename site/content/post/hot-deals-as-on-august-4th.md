@@ -53,3 +53,11 @@ description: "HOT DEALS "
   ![](https://m.media-amazon.com/images/I/514nHui19dS._SR400,400_.jpg)
 
   > <!--EndFragment-->
+* HI 🖐️ DEAL 
+  🥪 Sandwich Cutter and Sealer - 5 PCS
+  https://amzn.to/3q9BLpn
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71Zdn9uEsBL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
