@@ -6,13 +6,33 @@ Category: OTHERS
 description: HOT AND TRENDING DEALS UNDER 20
 image: img/whatsapp-image-2023-08-04-at-4.29.05-pm.jpeg
 ---
+
+
+*
+* Myrurgia Yacht Man Blue Eau-de-toilette Spray, 3.4 Ounce
+
+https://amzn.to/45iSc1z
+
+43% Off
+
+Grab & go
+
+ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/61Aj9QsoILL._SL1000_.jpg)
+
+<!--EndFragment-->
+
 * WALMART
   7.98
   Parfums Belcam Classic Match Eau de Toilette, Cologne for Men, 2.5 Oz
   https://go.magik.ly/ml/1vkv3/
   AD\
 
-  ![Parfums Belcam Classic Match Eau de Toilette, Cologne for Men, 2.5 Oz](https://i5.walmartimages.com/asr/1560b6c2-4c17-471a-8ed2-508c49672f6a.6591a0690c1493d37267a444acaeb241.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+![Parfums Belcam Classic Match Eau de Toilette, Cologne for Men, 2.5 Oz](https://i5.walmartimages.com/asr/1560b6c2-4c17-471a-8ed2-508c49672f6a.6591a0690c1493d37267a444acaeb241.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
 * WALMART
   19.98
   Kenneth Cole Cologne Giftset For Men, 3 Pieces
