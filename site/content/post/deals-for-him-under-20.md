@@ -8,6 +8,19 @@ image: img/whatsapp-image-2023-08-04-at-4.29.05-pm.jpeg
 ---
 
 
+* Lightweight Pants
+
+  42% Off
+
+  https://amzn.to/3QlhFTH
+
+  ad
+
+  <!--EndFragment-->
+
+  ![](https://m.media-amazon.com/images/I/619iyupLCCL._AC_SX679._SX._UX._SY._UY_.jpg)
+
+  <!--EndFragment-->
 * MALE GOD Gifts for Men
 
   https://amzn.to/44R5Rgg
