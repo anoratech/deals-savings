@@ -25,11 +25,7 @@ image: img/whatsapp-image-2023-08-04-at-4.29.05-pm.jpeg
 
   ad
 
-  <!--EndFragment-->
-
   ![Smartwool Merino Sport Lined 5\&#39;\&#39; Short](https://m.media-amazon.com/images/I/618iY5OLYTL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * MALE GOD Gifts for Men
 
   https://amzn.to/44R5Rgg
@@ -113,3 +109,11 @@ ad
   AD\
 
   ![Outerstuff Men\&#39;s FIFA World Cup Primary Classic Short](https://m.media-amazon.com/images/I/71MctSE191L._AC_UX522_.jpg)
+* HUGE DROP ⏬⏬
+  Under Armour Men's Armourfleece Straight Leg Pant
+  https://amzn.to/3OhdjKL
+  (AD)<!--StartFragment-->
+
+  ![Under Armour Men\&#39;s Armourfleece Straight Leg Pant](https://m.media-amazon.com/images/I/411uZ8MGGnL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
