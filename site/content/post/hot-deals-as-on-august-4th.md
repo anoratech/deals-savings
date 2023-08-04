@@ -77,3 +77,12 @@ description: "HOT DEALS "
   ![](https://m.media-amazon.com/images/I/91N7OcnpqtL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* GRAB THIS FOR YOUR PET 🐕
+  🅿🆁🅸🅲🅴 🅳🆁🅾🅿
+  👉👉Amazon Brand - Happy Belly Animal Cookies, 13 Ounce
+  https://amzn.to/45039W4
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71907SZi8qL._SL1500_.jpg)
+
+  <!--EndFragment-->
