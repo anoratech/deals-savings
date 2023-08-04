@@ -103,3 +103,11 @@ description: "HOT DEALS "
   ![](https://m.media-amazon.com/images/I/81Kfq7F6CML._SL1500_.jpg)
 
   <!--EndFragment-->
+* GRAB & GO 🏃🏃
+  Bounty Paper Napkins, White, 200 Count (Packaging May Vary)
+  https://amzn.to/44RGxXn
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81D6Ni9fYXL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
