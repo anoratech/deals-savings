@@ -20,3 +20,16 @@ description: "HOT DEALS "
   <!--EndFragment-->
 
   ![]()
+* <!--StartFragment-->
+
+  🏃🏃OMG RUNNNNN\
+  LIMIT 3\
+  Potato Head Mrs. Potato Head Classic Toy\
+  <https://amzn.to/3Ymkq9b>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61DejljDQxL._AC_SL1200_.jpg)
+
+  <!--EndFragment-->
