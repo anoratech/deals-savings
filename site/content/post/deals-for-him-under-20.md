@@ -6,8 +6,6 @@ Category: OTHERS
 description: HOT AND TRENDING DEALS UNDER 20
 image: img/whatsapp-image-2023-08-04-at-4.29.05-pm.jpeg
 ---
-
-
 * Lightweight Pants
 
   42% Off
@@ -16,9 +14,20 @@ image: img/whatsapp-image-2023-08-04-at-4.29.05-pm.jpeg
 
   ad
 
+  ![](https://m.media-amazon.com/images/I/619iyupLCCL._AC_SX679._SX._UX._SY._UY_.jpg)
+* Smartwool Merino Sport Lined 5'' Short
+
+  https://amzn.to/44Vcy0R
+
+  85% Off
+
+  Grab & go
+
+  ad
+
   <!--EndFragment-->
 
-  ![](https://m.media-amazon.com/images/I/619iyupLCCL._AC_SX679._SX._UX._SY._UY_.jpg)
+  ![Smartwool Merino Sport Lined 5\&#39;\&#39; Short](https://m.media-amazon.com/images/I/618iY5OLYTL._AC_UX679_.jpg)
 
   <!--EndFragment-->
 * MALE GOD Gifts for Men
@@ -29,11 +38,7 @@ image: img/whatsapp-image-2023-08-04-at-4.29.05-pm.jpeg
 
   ad
 
-  <!--EndFragment-->
-
   ![](https://m.media-amazon.com/images/I/81PvNUkVAiL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * 61% off
 
 Calhoun NHL Men's Team Logo Tie Dye Boardshorts
@@ -56,11 +61,7 @@ ad
 
   ad
 
-  <!--EndFragment-->
-
   ![](https://m.media-amazon.com/images/I/81hNGGETHXL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * Myrurgia Yacht Man Blue Eau-de-toilette Spray, 3.4 Ounce
 
 https://amzn.to/45iSc1z
