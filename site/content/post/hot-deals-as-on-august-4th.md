@@ -134,3 +134,11 @@ description: "HOT DEALS "
   ![](https://m.media-amazon.com/images/I/81rMXwrx28L._SL1500_.jpg)
 
   <!--EndFragment-->
+* ⏬⏬ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ 🔽🔽
+  💗💗McCafé Premium Roast, Keurig Single Serve K-Cup Pods
+  https://amzn.to/3qfTFqj
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61VwZU4NzOL._SL1500_.jpg)
+
+  <!--EndFragment-->
