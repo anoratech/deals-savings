@@ -111,3 +111,11 @@ description: "HOT DEALS "
   ![](https://m.media-amazon.com/images/I/81D6Ni9fYXL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳
+  Razer Hammerhead True Wireless Bluetooth Gaming Earbuds
+  https://amzn.to/47lkR82
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/41XDXo5T5FL._AC_SL1000_.jpg)
+
+  <!--EndFragment-->
