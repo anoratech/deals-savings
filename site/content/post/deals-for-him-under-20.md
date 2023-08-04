@@ -134,3 +134,13 @@ ad
   ![CYF Men’s 2 in 1 Running Shorts with Pockets Quick Dry Breathable Active Gym Workout Shorts](https://m.media-amazon.com/images/I/61Chgfyt9VL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* 8xx ONLY 
+  👉👉SIZE XS- XXL
+  𝕄𝕖𝕟'𝕤 ℝ𝕖𝕘𝕦𝕝𝕒𝕣-𝔽𝕚𝕥 𝕋𝕒𝕟𝕜 𝕋𝕠𝕡
+  https://amzn.to/3Q2JNL1
+
+  (AD)<!--StartFragment-->
+
+  ![Amazon Essentials Men\&#39;s Regular-Fit Tank Top](https://m.media-amazon.com/images/I/81aRHcnI65L._AC_UX569_.jpg)
+
+  <!--EndFragment-->
