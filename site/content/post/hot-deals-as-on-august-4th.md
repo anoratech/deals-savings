@@ -94,3 +94,12 @@ description: "HOT DEALS "
   ![](https://m.media-amazon.com/images/I/718kVvgvrGS._SL1500_.jpg)
 
   <!--EndFragment-->
+* 𝙂𝙍𝘼𝘽 & 𝙂𝙊 🏃🏃
+  🅽🅾 🅲🅾🅳🅴 🅽🅴🅴🅳🅴🅳
+  Elmer's Disappearing Purple School Glue Sticks, Washable, 7 Grams, 30 Count
+  https://amzn.to/3rYrjl7
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81Kfq7F6CML._SL1500_.jpg)
+
+  <!--EndFragment-->
