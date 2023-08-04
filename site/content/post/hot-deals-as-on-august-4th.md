@@ -86,3 +86,11 @@ description: "HOT DEALS "
   ![](https://m.media-amazon.com/images/I/71907SZi8qL._SL1500_.jpg)
 
   <!--EndFragment-->
+* 👉👉GRAB IT WITH S&S
+  Bodyarmor Blue Raspberry, Sports Drink, 12 Fl Oz Bottles, 8 Pack
+  https://amzn.to/3DKppXT
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/718kVvgvrGS._SL1500_.jpg)
+
+  <!--EndFragment-->
