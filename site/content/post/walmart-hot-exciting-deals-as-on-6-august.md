@@ -5,6 +5,7 @@ tags: walmart
 Category: other
 description: |
   grab it....
+image: https://slicksavers.com/img/whatsapp-image-2023-08-02-at-11.57.11-am.jpeg
 ---
 Y﻿ou will love it....
 
