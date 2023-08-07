@@ -56,3 +56,11 @@ description: GREAT DEALS
   ![](https://m.media-amazon.com/images/I/71b6yPN6jKL._SL1500_.jpg)
 
   <!--EndFragment-->
+* 🅶🆁🅴🅰🆃 🅳🆁🅾🅿
+  💕💕40Pcs 4.5" Hair Bows Alligator Clips
+  https://amzn.to/3KSCAtV
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71ThLskeG5L._SL1200_.jpg)
+
+  <!--EndFragment-->
