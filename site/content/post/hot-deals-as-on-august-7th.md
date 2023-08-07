@@ -137,3 +137,11 @@ description: GREAT DEALS
   ![](https://m.media-amazon.com/images/I/71wslY75OaL._SL1500_.jpg)
 
   <!--EndFragment-->
+* HI 🖐️DEAL
+  𝕊𝕡𝕣𝕒𝕪𝕨𝕒𝕪 𝔾𝕝𝕒𝕤𝕤 ℂ𝕝𝕖𝕒𝕟𝕖𝕣 𝔸𝕖𝕣𝕠𝕤𝕠𝕝 𝕊𝕡𝕣𝕒𝕪, 𝟙𝟡 𝕆𝕫, ℙ𝕒𝕔𝕜 𝕠𝕗 𝟚
+  https://amzn.to/3KtP6Qa
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61onY3RUR-L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
