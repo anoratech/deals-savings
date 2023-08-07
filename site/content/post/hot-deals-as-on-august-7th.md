@@ -129,3 +129,11 @@ description: GREAT DEALS
   ![](https://m.media-amazon.com/images/I/61l1n8NVEGL._AC_SL1024_.jpg)
 
   <!--EndFragment-->
+* HI 5️⃣ DEAL 
+  e.l.f. Cosmetics Bite-Size Face Duo
+  https://amzn.to/47pk5a3
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71wslY75OaL._SL1500_.jpg)
+
+  <!--EndFragment-->
