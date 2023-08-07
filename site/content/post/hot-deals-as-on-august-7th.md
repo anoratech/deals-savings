@@ -15,3 +15,11 @@ description: GREAT DEALS
   <!--EndFragment-->
 
   ![]()
+* ✂️✂️ C-O-U-P-O-N ✂️✂️
+  😋😋Nature Valley Crunchy Granola Bars
+  https://amzn.to/3OLJdAj
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81jqOpL8LWL._SL1500_.jpg)
+
+  <!--EndFragment-->
