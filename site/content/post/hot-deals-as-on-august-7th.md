@@ -145,3 +145,11 @@ description: GREAT DEALS
   ![](https://m.media-amazon.com/images/I/61onY3RUR-L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* ✂️✂️USE C-O-U-P-O-N ✂️✂️
+  Palmer's Coconut Oil Formula Body Balm with Green Coffee Extract, 3.5 Ounce
+  https://amzn.to/3DQ8GSM
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71efjcDVKEL._SL1500_.jpg)
+
+  <!--EndFragment-->
