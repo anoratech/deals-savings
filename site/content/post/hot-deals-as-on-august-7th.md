@@ -121,3 +121,11 @@ description: GREAT DEALS
   ![](https://m.media-amazon.com/images/I/91N7OcnpqtL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 𝘼𝙇𝙈𝙊𝙎𝙏 𝙃𝘼𝙇𝙁 𝙊𝙁𝙁
+  👉🔥Thermalon Microwave Activated Moist Heat Wrap for Neck and Shoulders. 21", with ties
+  https://amzn.to/3s02ULR
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61l1n8NVEGL._AC_SL1024_.jpg)
+
+  <!--EndFragment-->
