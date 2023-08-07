@@ -64,3 +64,11 @@ description: GREAT DEALS
   ![](https://m.media-amazon.com/images/I/71ThLskeG5L._SL1200_.jpg)
 
   <!--EndFragment-->
+* GREAT C-O-U-P-O-N ✂️✂️
+  Berry Berry Kix Whole Grain Breakfast Cereal
+  https://amzn.to/3qlb9BL
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81UqZ5S65IL._SL1500_.jpg)
+
+  <!--EndFragment-->
