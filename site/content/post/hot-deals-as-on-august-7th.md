@@ -105,3 +105,11 @@ description: GREAT DEALS
   ![](https://m.media-amazon.com/images/I/71YY9JLrsIL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 🚫🚫NO CODE NEEDED 🚫🚫
+  DII Everyday Basic Kitchen Collection
+  https://amzn.to/3YsnzEG
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81swHVr6zuL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
