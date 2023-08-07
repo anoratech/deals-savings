@@ -48,3 +48,11 @@ description: GREAT DEALS
   ![](https://m.media-amazon.com/images/I/71WitlLpEgL._SL1500_.jpg)
 
   <!--EndFragment-->
+* CLIP THE C-O-U-P-O-N ✂️✂️
+  🔥🔥Dove Beauty Bar Skin Cleanser
+  https://amzn.to/3Yoxgnj
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71b6yPN6jKL._SL1500_.jpg)
+
+  <!--EndFragment-->
