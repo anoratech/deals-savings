@@ -24,3 +24,12 @@ image: img/whatsapp-image-2023-08-09-at-1.14.09-am.jpeg
   ![](https://m.media-amazon.com/images/I/81W1-nrvdFL._SL1500_.jpg)
 
   <!--EndFragment-->
+* ✂️✂️ C-O-U-P-O-N ✂️✂️
+  4xx
+  👉👉COVERGIRL Clean Matte BB Cream Medium 540 For Oily Skin
+  https://amzn.to/45kQblf
+  (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61w5wakEx9L._SL1500_.jpg)
+
+  <!--EndFragment-->
