@@ -42,3 +42,12 @@ image: img/whatsapp-image-2023-08-09-at-1.14.09-am.jpeg
   ![](https://m.media-amazon.com/images/I/81zYfRwbBfL._SL1500_.jpg)
 
   <!--EndFragment-->
+* 🚫🚫NO CODE NEEDED 🚫🚫
+  OMG RUNNNN 🏃🏃, 1xx
+  💄 Wet n Wild Silk Finish Lipstick
+  https://amzn.to/3rZyHMZ
+  (Ad)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/617coxXSjsL._SL1500_.jpg)
+
+  <!--EndFragment-->
