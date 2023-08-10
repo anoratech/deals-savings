@@ -107,3 +107,11 @@ description: HOT DEALS
   ![](https://m.media-amazon.com/images/I/31afD7sZdzL._AC_.jpg)
 
   <!--EndFragment-->
+* 🔽‼️GREAT DROP ⏬⏬
+  Rockland Journey Softside Upright Luggage Set
+  https://amzn.to/3YeH4At
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71gk7sQGaoL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
