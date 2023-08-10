@@ -75,3 +75,11 @@ description: HOT DEALS
   ![](https://m.media-amazon.com/images/I/712MgNelVsL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* UNDER 4️⃣ BUCKS 
+  Foundation Brush Flat Top Kabuki 
+  https://amzn.to/3K3XlCc
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/716vnCtR0UL._SL1500_.jpg)
+
+  <!--EndFragment-->
