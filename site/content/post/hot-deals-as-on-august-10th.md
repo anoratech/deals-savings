@@ -33,3 +33,12 @@ description: HOT DEALS
   ![](https://m.media-amazon.com/images/I/711vycAL+8L._SL1500_.jpg)
 
   <!--EndFragment-->
+* GRAB & GO🏃🏃
+  Glico Cookie And Cream Covered Cocoa Biscuit Sticks, 4.57 Ounce
+  🅾🅽 🅳🆁🅾🅿
+  https://amzn.to/3s7tGlB
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71MhicsrTZL._SL1500_.jpg)
+
+  <!--EndFragment-->
