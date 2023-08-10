@@ -83,3 +83,11 @@ description: HOT DEALS
   ![](https://m.media-amazon.com/images/I/716vnCtR0UL._SL1500_.jpg)
 
   <!--EndFragment-->
+* RUNNNN 🏃🏃🏃
+  🅷🆄🅶🅴 🅳🆁🅾🅿
+  https://amzn.to/47iF2Dx
+  (AD)<!--StartFragment-->
+
+  ![Gloria Vanderbilt Women\&#39;s Classic Amanda High Rise Tapered Jean](https://m.media-amazon.com/images/I/81Ix93KHHkL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
