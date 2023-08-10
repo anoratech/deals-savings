@@ -24,3 +24,12 @@ description: HOT DEALS
   ![](https://m.media-amazon.com/images/I/91Xp-CEqeqL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 🅷🆄🅶🅴 🅳🆁🅾🅿 
+  INFINITIPRO BY CONAIR Cool Air Curling Iron 
+  🚫🚫NO CODE NEEDED 🚫🚫
+  https://amzn.to/445awtI 
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/711vycAL+8L._SL1500_.jpg)
+
+  <!--EndFragment-->
