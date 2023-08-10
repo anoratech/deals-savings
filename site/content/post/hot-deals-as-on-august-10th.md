@@ -59,3 +59,11 @@ description: HOT DEALS
   ![](https://m.media-amazon.com/images/I/81BgWUYsurL._SL1500_.jpg)
 
   <!--EndFragment-->
+* (っ◔◡◔)っ ♥ PRICE DROP ♥
+  Flash Furniture Mindy Kids Colorful Folding Table and Chair Set, Blue, 5 Piece
+  https://amzn.to/3KA3Wot
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91heBtA9afL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
