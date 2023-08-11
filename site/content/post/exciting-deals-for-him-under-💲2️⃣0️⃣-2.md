@@ -7,6 +7,19 @@ description: HOT DEALS
 ---
 
 
+* Myrurgia Yacht Man Blue Eau-de-toilette Spray, 3.4 Ounce
+
+  54% off
+
+  Grab & go
+
+  https://amzn.to/452v7jW
+
+  Ad
+
+  ![](img/2125a0ad-2ecf-40c6-9b0f-86c664bb82a6.jpeg)
+
+
 * MALE GOD Gifts for Men
 
   Price drop ➕coupon
