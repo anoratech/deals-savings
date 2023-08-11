@@ -4,6 +4,7 @@ date: 2023-08-11T10:07:01.901Z
 tags: AMAZON
 Category: MEN
 description: HOT DEALS
+image: img/beec20b8-f376-4b8a-b4fc-70aa852d9bfe.jpeg
 ---
 * Hanes Sport Men's Mesh Pocket Shorts
 
