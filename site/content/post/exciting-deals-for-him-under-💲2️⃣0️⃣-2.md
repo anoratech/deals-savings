@@ -5,7 +5,17 @@ tags: AMAZON
 Category: MEN
 description: HOT DEALS
 ---
+* Hanes Sport Men's Mesh Pocket Shorts
 
+56% off
+
+Grab & go
+
+https://amzn.to/3QAGLhj
+
+ad
+
+![](img/cd2e3339-4cfe-4d37-babc-5e6e063b9788.jpeg)
 
 
 
