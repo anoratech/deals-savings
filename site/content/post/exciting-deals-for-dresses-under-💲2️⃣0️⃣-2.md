@@ -35,3 +35,12 @@ image: img/whatsapp-image-2023-08-13-at-11.08.31-pm.jpeg
   ![CCTOO Women\&#39;s Summer Maxi Dresses Sexy Cut Out High Waist Crew Neck Short Puff Sleeve A Line Tiered Midi Dress](https://m.media-amazon.com/images/I/71K019NnjBL._AC_UY879_.jpg)
 
   <!--EndFragment-->
+* ⏬⏬PRICE DOWN ⤵️⤵️
+  Riviera Sun Strapless Tube Short Dress
+  SIZE S- 3XL , 14xx ONLY 
+  https://amzn.to/3rDjkJY
+  (AD)<!--StartFragment-->
+
+  ![Riviera Sun Strapless Tube Short Dress Summer Dresses](https://m.media-amazon.com/images/I/81JHmNVtnKL._AC_UY741_.jpg)
+
+  <!--EndFragment-->
