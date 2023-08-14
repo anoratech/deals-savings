@@ -26,3 +26,12 @@ image: img/whatsapp-image-2023-08-13-at-11.08.31-pm.jpeg
   ![Chioni.od Summer Sun Dress for Women Casual Sleeveless Pleated Beach Dresses](https://m.media-amazon.com/images/I/61hk0IkHt4L._AC_UX569_.jpg)
 
   <!--EndFragment-->
+* ⤵️⤵️ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ‼️‼️
+  SIZE S- XL, $12xx ONLY
+  💕💕Women's Summer Maxi Dresses
+  https://amzn.to/3Y7bG6Y
+  (AD)<!--StartFragment-->
+
+  ![CCTOO Women\&#39;s Summer Maxi Dresses Sexy Cut Out High Waist Crew Neck Short Puff Sleeve A Line Tiered Midi Dress](https://m.media-amazon.com/images/I/71K019NnjBL._AC_UY879_.jpg)
+
+  <!--EndFragment-->
