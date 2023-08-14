@@ -17,3 +17,12 @@ image: img/whatsapp-image-2023-08-13-at-11.08.31-pm.jpeg
   <!--EndFragment-->
 
   ![]()
+* 🅶🆁🅴🅰🆃 🅳🆁🅾🅿
+  SIZE S-XL, 13xx
+  🌻🌻Chioni.od Summer Sun Dress for Women 
+  https://amzn.to/3OUVQZV
+  (Ad)<!--StartFragment-->
+
+  ![Chioni.od Summer Sun Dress for Women Casual Sleeveless Pleated Beach Dresses](https://m.media-amazon.com/images/I/61hk0IkHt4L._AC_UX569_.jpg)
+
+  <!--EndFragment-->
