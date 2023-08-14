@@ -44,3 +44,12 @@ image: img/whatsapp-image-2023-08-13-at-11.08.31-pm.jpeg
   ![Riviera Sun Strapless Tube Short Dress Summer Dresses](https://m.media-amazon.com/images/I/81JHmNVtnKL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* 🚫🚫NO CODE NEEDED 🚫🚫
+  SIZE S- XXL, 18xx
+  💞💞PRETTYGARDEN Women Summer Casual Ruffle Mock Neck Dress
+  https://amzn.to/454xF0T
+  (Ad)<!--StartFragment-->
+
+  ![PRETTYGARDEN Women Summer Casual Ruffle Mock Neck Dress 2023 Short Sleeve Smocked Slit Boho Floral Midi Beach Dresses](https://m.media-amazon.com/images/I/81nt85bAH6L._AC_UX569_.jpg)
+
+  <!--EndFragment-->
