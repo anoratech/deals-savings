@@ -14,8 +14,6 @@ image: img/whatsapp-image-2023-08-13-at-11.08.31-pm.jpeg
 
   ![SheIn Women\&#39;s Floral Tie Front Ruffle Mini Dress V Neck Short Sleeve A Line Flare Dresses](https://m.media-amazon.com/images/I/81XDGPZwdYL._AC_UY741_.jpg)
 
-  <!--EndFragment-->
-
   ![]()
 * 🅶🆁🅴🅰🆃 🅳🆁🅾🅿
   SIZE S-XL, 13xx
@@ -24,8 +22,6 @@ image: img/whatsapp-image-2023-08-13-at-11.08.31-pm.jpeg
   (Ad)<!--StartFragment-->
 
   ![Chioni.od Summer Sun Dress for Women Casual Sleeveless Pleated Beach Dresses](https://m.media-amazon.com/images/I/61hk0IkHt4L._AC_UX569_.jpg)
-
-  <!--EndFragment-->
 * ⤵️⤵️ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ‼️‼️
   SIZE S- XL, $12xx ONLY
   💕💕Women's Summer Maxi Dresses
@@ -33,8 +29,6 @@ image: img/whatsapp-image-2023-08-13-at-11.08.31-pm.jpeg
   (AD)<!--StartFragment-->
 
   ![CCTOO Women\&#39;s Summer Maxi Dresses Sexy Cut Out High Waist Crew Neck Short Puff Sleeve A Line Tiered Midi Dress](https://m.media-amazon.com/images/I/71K019NnjBL._AC_UY879_.jpg)
-
-  <!--EndFragment-->
 * ⏬⏬PRICE DOWN ⤵️⤵️
   Riviera Sun Strapless Tube Short Dress
   SIZE S- 3XL , 14xx ONLY 
@@ -42,8 +36,6 @@ image: img/whatsapp-image-2023-08-13-at-11.08.31-pm.jpeg
   (AD)<!--StartFragment-->
 
   ![Riviera Sun Strapless Tube Short Dress Summer Dresses](https://m.media-amazon.com/images/I/81JHmNVtnKL._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * 🚫🚫NO CODE NEEDED 🚫🚫
   SIZE S- XXL, 18xx
   💞💞PRETTYGARDEN Women Summer Casual Ruffle Mock Neck Dress
@@ -51,5 +43,3 @@ image: img/whatsapp-image-2023-08-13-at-11.08.31-pm.jpeg
   (Ad)<!--StartFragment-->
 
   ![PRETTYGARDEN Women Summer Casual Ruffle Mock Neck Dress 2023 Short Sleeve Smocked Slit Boho Floral Midi Beach Dresses](https://m.media-amazon.com/images/I/81nt85bAH6L._AC_UX569_.jpg)
-
-  <!--EndFragment-->
