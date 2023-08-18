@@ -71,3 +71,12 @@ g﻿o go go....
   ![Amazon Essentials Men\&#39;s Regular-Fit Tank Top](https://m.media-amazon.com/images/I/81aRHcnI65L._AC_UX569_.jpg)
 
   <!--EndFragment-->
+* ♦️♦️ℙℝ𝕀ℂ𝔼 𝔻𝕆𝕎ℕ⏬⏬
+  SIZE M- XXL, $12xx ONLY 
+  Men’s 2 in 1 Running Shorts 🩳
+  BUY FROM AMAZON 👉https://geni.us/ddvd8P
+  (AD)<!--StartFragment-->
+
+  ![CYF Men’s 2 in 1 Running Shorts with Pockets Quick Dry Breathable Active Gym Workout Shorts](https://m.media-amazon.com/images/I/61Chgfyt9VL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
