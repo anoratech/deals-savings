@@ -67,9 +67,25 @@ g﻿o go go....
 
   ![]()
 
+
+
   ![](<>)
 
-* ![]()
+* <!--StartFragment-->
+
+  𝗚𝗥𝗔𝗕 & 𝗚𝗢 🏃🏃\
+  💞💞DUDE Wipes Flushable Wipes - 1 Pack, 48 Wipes\
+  BUY FROM AMAZON 👉\
+  <https://geni.us/N5Yg>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71-wWitztHL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+
+  ![]()
 
   ![](<>)
 
