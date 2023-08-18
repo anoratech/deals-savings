@@ -4,6 +4,7 @@ date: 2023-08-18T04:07:12.631Z
 tags: amazon
 Category: men
 description: hot deals
+image: img/whatsapp-image-2023-08-18-at-09.54.07.jpg
 ---
 g﻿o go go....
 
