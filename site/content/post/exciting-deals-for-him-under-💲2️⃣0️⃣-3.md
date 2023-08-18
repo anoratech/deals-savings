@@ -51,30 +51,10 @@ g﻿o go go....
   (AD)<!--StartFragment-->
 
   ![COOPLUS Mens Ankle Socks Athletic Cushioned Breathable Low Cut Tab With Arch Support-6Pairs(Only Ships from Amazon)](https://m.media-amazon.com/images/I/81V8HCK8GVL._AC_UX679_.jpg)
-* 𝗚𝗥𝗔𝗕 & 𝗚𝗢 🏃🏃
-  💞💞DUDE Wipes Flushable Wipes - 1 Pack, 48 Wipes
-  BUY FROM AMAZON 👉https://geni.us/N5Yg
-  (AD)<!--StartFragment-->
+*   ![]()
 
-  ![](https://m.media-amazon.com/images/I/71-wWitztHL._AC_SL1500_.jpg)
-* $8xx ONLY 
-  👉👉SIZE XS- XXL
-  𝕄𝕖𝕟'𝕤 ℝ𝕖𝕘𝕦𝕝𝕒𝕣-𝔽𝕚𝕥 𝕋𝕒𝕟𝕜 𝕋𝕠𝕡
-  BUT FROM AMAZON 👉https://geni.us/8uAteX
 
-  (AD)<!--StartFragment-->
 
-  ![Amazon Essentials Men\&#39;s Regular-Fit Tank Top](https://m.media-amazon.com/images/I/81aRHcnI65L._AC_UX569_.jpg)
-* ♦️♦️ℙℝ𝕀ℂ𝔼 𝔻𝕆𝕎ℕ⏬⏬
-  SIZE M- XXL, $12xx ONLY 
-  Men’s 2 in 1 Running Shorts 🩳
-  BUY FROM AMAZON 👉https://geni.us/ddvd8P
-  (AD)<!--StartFragment-->
-
-  ![CYF Men’s 2 in 1 Running Shorts with Pockets Quick Dry Breathable Active Gym Workout Shorts](https://m.media-amazon.com/images/I/61Chgfyt9VL._AC_UX679_.jpg)
-* 👉👉Under Armour Men's Sportstyle Logo Short Sleeve T-Shirt
-  🅿🆁🅸🅲🅴 🅳🅾🆆🅽
-  BUY FROM AMAZON 👉https://geni.us/dRmfH6
-  (AD)<!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/715rxYtGhGL._AC_SL1500_.jpg)
+  ![Amazon Essentials Men\&#39;s Regular-Fit Tank Top]()
+*   ![CYF Men’s 2 in 1 Running Shorts with Pockets Quick Dry Breathable Active Gym Workout Shorts]()
+*   ![]()
