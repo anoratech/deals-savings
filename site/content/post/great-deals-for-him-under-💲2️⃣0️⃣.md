@@ -34,3 +34,18 @@ image: img/whatsapp-image-2023-08-21-at-2.23.48-am.jpeg
   <!--EndFragment-->
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  $8xx ONLY\
+  👉👉SIZE XS- XXL\
+  𝕄𝕖𝕟'𝕤 ℝ𝕖𝕘𝕦𝕝𝕒𝕣-𝔽𝕚𝕥 𝕋𝕒𝕟𝕜 𝕋𝕠𝕡\
+  BUT FROM AMAZON 👉\
+  <https://geni.us/8uAteX>\
+  \
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Amazon Essentials Men\&#39;s Regular-Fit Tank Top](https://m.media-amazon.com/images/I/81aRHcnI65L._AC_UX569_.jpg)
+
+  <!--EndFragment-->
