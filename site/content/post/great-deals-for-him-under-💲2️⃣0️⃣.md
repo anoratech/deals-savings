@@ -66,3 +66,16 @@ image: img/whatsapp-image-2023-08-21-at-2.23.48-am.jpeg
   ![Amazon Essentials Men\&#39;s Regular-Fit Tank Top](https://m.media-amazon.com/images/I/81aRHcnI65L._AC_UX569_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  GREAT DROP\
+  Mens Ankle Socks 6 pairs\
+  BUY FROM AMAZON 👉\
+  <https://geni.us/z2EBr>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![COOPLUS Mens Ankle Socks Athletic Cushioned Breathable Low Cut Tab With Arch Support-6Pairs(Only Ships from Amazon)](https://m.media-amazon.com/images/I/81V8HCK8GVL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
