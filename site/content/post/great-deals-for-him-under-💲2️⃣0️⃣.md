@@ -21,3 +21,16 @@ image: img/whatsapp-image-2023-08-21-at-2.23.48-am.jpeg
   <!--EndFragment-->
 
   ![]()
+* <!--StartFragment-->
+
+  𝗚𝗥𝗔𝗕 & 𝗚𝗢 🏃🏃\
+  💞💞DUDE Wipes Flushable Wipes - 1 Pack, 48 Wipes\
+  BUY FROM AMAZON 👉\
+  <https://geni.us/N5Yg>\
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71-wWitztHL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+
+  <!--EndFragment-->
