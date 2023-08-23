@@ -126,98 +126,68 @@ image: img/whatsapp-image-2023-08-09-at-3.49.15-pm.jpeg
    "Drawer Fabric Dresser, Furniture Storage Tower Cabinet,"
   https://go.magik.ly/ml/1vfux/
   AD\
-  <!--StartFragment-->
 
   ![REAHOME Dresser for Bedroom 8 Drawers Dresser Fabric Dresser Chest of Closets Storage Units Organizer Tower Steel Frame Wooden Top Living Room (Rustic Brown)](https://i5.walmartimages.com/seo/REAHOME-Dresser-Bedroom-8-Drawers-Fabric-Chest-Closets-Storage-Units-Organizer-Tower-Steel-Frame-Wooden-Top-Living-Room-Rustic-Brown_3a2b9c7e-8003-4d4d-a8a7-678573babd04.7cd16180bb341a120875e79fed96e9bd.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   🔥HOT🔥
   Walmart Clearance sale 
   ‼️Tons of options ‼️
   https://go.magik.ly/ml/1v8no/
   AD\
-  <!--StartFragment-->
 
   ![Ryans World Giant Mystery Egg Series 8](https://i5.walmartimages.com/seo/Ryans-World-Giant-Mystery-Egg-Series-8_05f9bd43-41bf-424a-82af-ae32ca9817bc.24f26525e9b70fe35a52cffaac3bcccf.jpeg?odnHeight=768&odnWidth=768&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now 8.98 was 24.49
   Character Halloween Toddler Pajama Set, 2-Piece, Sizes 12M-5T
   https://go.magik.ly/ml/1vgkf/
   AD\
-  <!--StartFragment-->
 
   ![Character Halloween Toddler Pajama Set, 2-Piece, Sizes 12M-5T](https://i5.walmartimages.com/seo/Character-Halloween-Toddler-Pajama-Set-2-Piece-Sizes-12M-5T_77ef2f1b-fdcd-4113-8c0a-d98be9bf53cb.c6068952f6fd06d07a0fbf7de74250a7.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now 50.00 was 138.00
   Hover-1 Rocket 2.0 Hoverboard for Teens, LED Lights, Max Speed 7 mph, Pink
   https://go.magik.ly/ml/1vgkh/
   AD\
-  <!--StartFragment-->
 
   ![Hover-1 Rocket 2.0 Hoverboard for Teens, LED Lights, Max Speed 7 mph, Pink](https://i5.walmartimages.com/seo/Hover-1-Rocket-2-0-Hoverboard-for-Teens-LED-Lights-Max-Speed-7-mph-Pink_b5977460-e2ea-4a79-8221-3798858e97f4.3dde6b6db5972326327684647f2ef806.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now 19.99 was 44.99
   Crocs Toddler & Kids Crocband Cruiser Sandal, Sizes 4-3
   https://go.magik.ly/ml/1vgki/
   AD\
-  <!--StartFragment-->
 
   ![Crocs Toddler & Kids Crocband Cruiser Sandal, Sizes 4-3](https://i5.walmartimages.com/seo/Crocs-Toddler-Kids-Crocband-Cruiser-Sandal-Sizes-4-3_b9a9b972-e404-4aea-ac02-dffa33e0459e.721b035910d42a2c7763924e53ac273f.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   80 (REG. 145)
   Ameriwood Home Charli Kid's 9 Cube Storage, Dove Gray
   https://go.magik.ly/ml/1vgkk/
   AD\
-  <!--StartFragment-->
 
   ![Ameriwood Home Charli Kid's 9 Cube Storage, Dove Gray](https://i5.walmartimages.com/seo/Ameriwood-Home-Charli-Kid-s-9-Cube-Storage-Dove-Gray_6510a42f-a60c-4fbc-a779-4d5dd87c5524.6739216432b391ae17fbfbe015fa381e.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now 225.99 was 475.18
   Homfa 72.4'' Tall Kitchen Pantry with 4 Doors, Large Drawer Storage Cabinet for Dining Room Living Room, White
   https://go.magik.ly/ml/1vgky/
   AD\
-  <!--StartFragment-->
 
   ![Homfa 72.4'' Tall Kitchen Pantry with 4 Doors, Large Drawer Storage Cabinet for Dining Room Living Room, White](https://i5.walmartimages.com/seo/Homfa-72-4-Tall-Kitchen-Pantry-with-4-Doors-Large-Drawer-Storage-Cabinet-for-Dining-Room-Living-Room-White_b8d3f331-f9c7-4030-96e1-9c993be13d4d.a3cf58b02ec3ff2431bb343bfbf9be18.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now 33.30 was 39.24
   ⛸️⛸️Roller Derby Tracer Boy's Adjustable Inline Skate Small (11-1)⛸️⛸️
   https://go.magik.ly/ml/1vgkz/
   AD\
-  <!--StartFragment-->
 
   ![Roller Derby Tracer Boy's Adjustable Inline Skate Small (11-1)](https://i5.walmartimages.com/seo/Roller-Derby-Tracer-Boy-s-Adjustable-Inline-Skate-Small-11-1_67d07b17-c855-4fab-a17a-cdabf22143ab_1.6915d287fb09eb188d89cffa09637a72.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Sofa on sale
   https://go.magik.ly/ml/1vgl9/
   AD\
-  <!--StartFragment-->
 
   ![Easyfashion Convertible Faux Leather Futon Sofa Bed, Black](https://i5.walmartimages.com/seo/Easyfashion-Convertible-Faux-Leather-Futon-Sofa-Bed-Black_7de64067-275c-4dbe-b4df-cbb39bd897fb.4f0f814d1126cc86c9e2725066e87589.jpeg?odnHeight=768&odnWidth=768&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * WALMART
   Now 71.99 was 169.99
   GENIMO 9'x12' Outdoor Rug for Patio Clearance, Reversible Plastic Waterproof Area , Clearance Mat, Rv, Camping, Black & Gray
   https://go.magik.ly/ml/1vgm3/
   AD\
-  <!--StartFragment-->
 
   ![GENIMO 9'x12' Outdoor Rug for Patio Clearance, Reversible Plastic Waterproof Area , Clearance Mat, Rv, Camping, Black & Gray](https://i5.walmartimages.com/asr/faa66cc4-9b79-4181-8214-688bab457f5c.38d0a1c041e691e2cbfa1e49741bd09e.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
