@@ -14,13 +14,18 @@ image: img/whatsapp-image-2023-08-24-at-2.43.14-pm.jpeg
   C﻿0DE:<pre><code class="language-js" data-prismjs-copy="Click to Copy"> 50OFFFHA</code></pre>
 
   ![](img/whatsapp-image-2023-08-24-at-3.17.33-pm.jpeg)
-*  8 0 % OFF 
+* 8 0 % OFF 
   🎃2023 Classic Halloween Advent Countdown Calendar Decoration🎃
   https://geni.us/juZt4jK
   AD\
   C﻿0DE:<pre><code class="language-js" data-prismjs-copy="Click to Copy"> EECC90OFF</code></pre>
 
   ![](img/whatsapp-image-2023-08-24-at-3.17.23-pm.jpeg)
+
+
+
+  ![](img/whatsapp-image-2023-08-24-at-3.17.23-pm.jpeg)
+
 * ‼️IARTTOP 3D Welcome Hanging Sign Plaque for Front Door Wall Decor‼️
   🔥🔥50% OFF🔥🔥
   ℚℙ𝕆ℕ✂️
@@ -29,8 +34,6 @@ image: img/whatsapp-image-2023-08-24-at-2.43.14-pm.jpeg
   C﻿ODE:<pre><code class="language-js" data-prismjs-copy="Click to Copy">301JRIC2</code></pre>
 
   ![](img/whatsapp-image-2023-08-24-at-3.13.46-pm.jpeg)
-
-
 * 🌟Christmas Decorations🌟
   ✂️ ℂ𝕃𝕀ℙ 40%OFF ℚℙ𝕆ℕ✂️
   https://geni.us/9fOyZ6E
@@ -44,9 +47,11 @@ image: img/whatsapp-image-2023-08-24-at-2.43.14-pm.jpeg
   AD
 
   ![](img/whatsapp-image-2023-08-24-at-3.13.58-pm.jpeg)
-*  52%OFF
+* 52%OFF
   🎀Mandala Boho Runner Rug🎀
   https://geni.us/DEI36v
   AD
+
+  ![](img/whatsapp-image-2023-08-24-at-3.14.07-pm.jpeg)
 
   ![](img/whatsapp-image-2023-08-24-at-3.14.07-pm.jpeg)
