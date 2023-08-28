@@ -71,84 +71,55 @@ image: img/whatsapp-image-2023-08-27-at-2.18.50-pm.jpeg
   Lots of options ......
   https://go.magik.ly/ml/1vyjj/
   AD\
-  <!--StartFragment-->
 
   ![Just My Style® ABC BEADS](https://i5.walmartimages.com/seo/Just-My-Style-ABC-BEADS_60dec2db-3bcc-4d83-866c-88415755ae13.68eff96e5151e6c2892936b21a0ba7e0.jpeg?odnHeight=768&odnWidth=768&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
   ‼️More storage shelves ‼️
   https://go.magik.ly/ml/1vbru/
   AD\
-  <!--StartFragment-->
 
   ![BestOffice 5 Tier Wire Shelving Unit  1250lb Capacity Black](https://i5.walmartimages.com/seo/BestOffice-5-Tier-Wire-Shelving-Unit-1250lb-Capacity-Black_7e407907-5771-4604-828c-0fa8f70be9d8_1.00c210b325c61aae8e3605bd1945fa44.jpeg?odnHeight=640&odnWidth=640&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
   Now 24.96 was 29.50
   The Pioneer Woman Melamine Mixing Bowl Set, 10-Piece Set, Petal Party
   https://go.magik.ly/ml/1vwgz/
   AD\
-  <!--StartFragment-->
 
   ![The Pioneer Woman Melamine Mixing Bowl Set, 10-Piece Set, Petal Party](https://i5.walmartimages.com/asr/2afb0319-7943-441f-9845-4a60666915af.f5e866543d3e93f85ba50b9ae5bac00e.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
   BED ON SALE 
   https://go.magik.ly/ml/1vxbn/
   AD\
-  <!--StartFragment-->
 
   ![Willow Nailhead Trim Upholstered Queen Bed, Charcoal](https://i5.walmartimages.com/seo/Willow-Nailhead-Trim-Upholstered-Queen-Bed-Charcoal_0de6d90e-3b5f-4276-b6a8-c3b9794a5829_2.91c96d1aac74d854d693c7670ed9371d.jpeg?odnHeight=768&odnWidth=768&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
   🌹🌹🌹🌹
   Mattress on sale
   https://go.magik.ly/ml/1vxbr/
   AD\
-  <!--StartFragment-->
 
   ![Twin Size Mattress，6" Memory Foam Mattress with Graphene Fabric Cover, Bed in a Box](https://i5.walmartimages.com/seo/Twin-Size-Mattress-6-Memory-Foam-Mattress-with-Graphene-Fabric-Cover-Bed-in-a-Box_1a3eedf2-25c3-40a2-88cd-a56cf5cf467b.f5b8d68b54ab4812bfb92e308c333f91.jpeg?odnHeight=768&odnWidth=768&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
   Sofa on sale
   https://go.magik.ly/ml/1vxbt/
   AD\
-  <!--StartFragment-->
 
   ![Novogratz Brittany Futon Sofa Bed and Couch Sleeper, Camel Faux Leather](https://i5.walmartimages.com/seo/Novogratz-Brittany-Futon-Sofa-Bed-and-Couch-Sleeper-Camel-Faux-Leather_af8e5aff-7b0a-45f0-8b63-01610c5799f9.6e729b84264d1f9c289bc99083c877c7.jpeg?odnHeight=768&odnWidth=768&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
   🎀RUGS ON SALE🎀
   https://go.magik.ly/ml/1vyjr/
   AD\
-  <!--StartFragment-->
 
   ![Super Soft Indoor Modern Rugs Fluffy Rugs,Anti-Skid Washable Shaggy Area Rug, for Living Room Dining Room Home Bedroom Carpet Floor Mat,63x79''/47x63''/32x63''/20x63''/63x91''/32x47''/67x47'''](https://i5.walmartimages.com/asr/602c4bd9-ecd2-4c84-bbff-41ba74e5b2e0_1.10320344f0af684a9022cb2307408cae.jpeg?odnHeight=768&odnWidth=768&odnBg=FFFFFF)
-
-  <!--EndFragment-->
-
-
 * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
   🔥🔥FIRE PIT SALE🔥🔥
   https://go.magik.ly/ml/1w0tl/
   AD\
-  <!--StartFragment-->
 
   ![Sophia & William 34" x 26" Outdoor Steel Fire Pit Wood Burning Bronze Finish Fireplace](https://i5.walmartimages.com/seo/Sophia-William-34-x-26-Outdoor-Steel-Fire-Pit-Wood-Burning-Bronze-Finish-Fireplace_bfd314fe-c21c-45d2-bb59-704221d99024.e857b7f1096d75471a5960d9969b6854.jpeg?odnHeight=640&odnWidth=640&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
   🔥LOTS of Grills Deals at Walmart!🔥
   https://go.magik.ly/ml/1w3ty/
   AD\
-  <!--StartFragment-->
 
   ![NiamVelo BBQ Charcoal Grills Outdoor BBQ Grill Camping Grill, Stainless Steel Grill Offset Smoker with Cover, Portable BBQ Barbecue Grill for Picnic Camping Party, Black](https://i5.walmartimages.com/seo/NiamVelo-BBQ-Charcoal-Grills-Outdoor-Grill-Camping-Grill-Stainless-Steel-Offset-Smoker-Cover-Portable-Barbecue-Picnic-Party-Black_bb452e1a-2253-4740-b0d9-98c7722551be.0e8375fc0cb7db73109cd426f43e9a23.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
