@@ -85,3 +85,18 @@ ad
 ![](https://m.media-amazon.com/images/I/81F+IZHHNEL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+* <!--StartFragment-->
+
+  🅾🅽 🅳🆁🅾🅿\
+  💝𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝙃𝙤𝙢𝙚 𝙎𝙞𝙜𝙣 𝙁𝙧𝙤𝙣𝙩 𝘿𝙤𝙤𝙧 𝙊𝙪𝙩𝙙𝙤𝙤𝙧 𝘿𝙚𝙘𝙤𝙧𝙖𝙩𝙞𝙤𝙣𝙨\
+  BUY FROM AMAZON:\
+  <https://geni.us/6qvZS>\
+  \
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/7199vdxEEyL._AC_SL1200_.jpg)
+
+  <!--EndFragment-->
