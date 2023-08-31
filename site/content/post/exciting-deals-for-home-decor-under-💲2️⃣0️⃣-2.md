@@ -4,6 +4,7 @@ date: 2023-08-31T12:33:38.961Z
 tags: " Amazon"
 Category: "others "
 description: " DEALS FOR HOME DECOR"
+image: img/collage-2-.jpg
 ---
 <!--StartFragment-->
 
