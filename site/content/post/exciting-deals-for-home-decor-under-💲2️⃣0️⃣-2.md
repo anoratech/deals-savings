@@ -142,3 +142,17 @@ ad
   ![](https://m.media-amazon.com/images/I/81EzGFybf9L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ✂️✂️USE C-O-U-P-O-N ✂️✂️\
+  Fluffy Bedroom Rug Carpet,4x5.3\
+  BUY FROM AMAZON:\
+  <https://geni.us/QmhC>\
+  \
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81jbe3OpfGL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
