@@ -67,4 +67,20 @@ ad
 
 ![](https://m.media-amazon.com/images/I/71FcYnUoMGL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Indoor Doormat
+
+50% Off
+
+Grab & go
+
+https://geni.us/fGKXZC8
+
+ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/81F+IZHHNEL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
