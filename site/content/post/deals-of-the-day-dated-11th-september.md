@@ -1,0 +1,8 @@
+---
+title: DEALS OF THE DAY DATED 11TH SEPTEMBER
+date: 2023-09-11T15:11:30.140Z
+tags: WALMART
+Category: OTHER
+description: HOT DEALS
+---
+G﻿RAB IT...
