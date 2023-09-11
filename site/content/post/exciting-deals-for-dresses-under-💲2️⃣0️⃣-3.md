@@ -20,7 +20,7 @@ G﻿RAB IT
 
   Now 10.00
 
-  You save $4.00 AD
+  You save 4.00 AD
 
   S﻿IZE S-XXXL<!--StartFragment-->
 
