@@ -13,8 +13,6 @@ G﻿RAB IT
   AD<!--StartFragment-->
 
   ![Time and Tru Women's Sleeveless Tiered Knit Dress](https://i5.walmartimages.com/seo/Time-and-Tru-Women-s-Sleeveless-Tiered-Knit-Dress_7667a97a-9c81-474f-a13c-739cf788120d.414b009822df4bcbd92b8551a80e104b.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * 🏃‍♀🏃‍♀ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ🏃‍♀🏃‍♀
   https://mavely.app.link/e/ta4o992IGBb
   Time and Tru Women's Short Sleeve Tiered Knit Dress.<!--StartFragment-->
@@ -32,4 +30,17 @@ G﻿RAB IT
 
     ![SIEANE Women's Summer Dress Casual Short Sleeve Crew Neck Dress Tiered Maxi Beach Dress with Pockets](https://i5.walmartimages.com/seo/SIEANE-Women-s-Summer-Dress-Casual-Short-Sleeve-Crew-Neck-Dress-Tiered-Maxi-Beach-Dress-with-Pockets_a4e34c76-8d4c-4b27-b9b2-1c9893e96c6b.3a5c36f2bf00979ee6b066cfa16b8c71.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
-    <!--EndFragment-->
+    * 🏃‍♀🏃‍♀ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ🏃‍♀🏃‍♀ Guzom Graduation Dress- Prom Crew Neck Sleeveless Floral Gifts for Her (ad)
+
+      Now 10.04
+
+      S﻿IZE S-XXL  https://mavely.app.link/e/tQwIAxpr0Cb <!--StartFragment-->
+
+      ![Guzom Graduation Dress- Prom Crew Neck Sleeveless Floral Gifts for Her Summer Dresses for Women 2023 Party Dress Green S](https://i5.walmartimages.com/asr/2da019bd-1999-4379-a63f-58715be0dd75.a644a2f8a45f6d9c1731d12d4be0a4fa.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+      <!--EndFragment-->
+    * 🏃‍♀🏃‍♀ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ🏃‍♀🏃‍♀ Madden NYC Women's and Junior's Floral Print Skater Dress  (AD) Now 9.04 SIZE S-XXL<!--StartFragment-->
+
+      ![Madden NYC Women's and Junior's Floral Print Skater Dress](https://i5.walmartimages.com/seo/Madden-NYC-Women-s-and-Junior-s-Floral-Print-Skater-Dress_7cca153b-2656-498a-be8a-cbcf64aceab7.0b729417873675ebbe4382a287129241.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+      <!--EndFragment-->
