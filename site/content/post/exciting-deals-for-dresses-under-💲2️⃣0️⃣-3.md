@@ -4,6 +4,7 @@ date: 2023-09-11T11:11:22.075Z
 tags: AMAZON
 Category: WOMEN
 description: HOT DEALS
+image: C:\Users\DELL\Desktop\WhatsApp Image 2023-09-11 at 17.47.20.jpg
 ---
 G﻿RAB IT
 
