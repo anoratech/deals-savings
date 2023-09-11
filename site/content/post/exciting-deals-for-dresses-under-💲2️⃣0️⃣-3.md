@@ -4,7 +4,7 @@ date: 2023-09-11T11:11:22.075Z
 tags: AMAZON
 Category: WOMEN
 description: HOT DEALS
-image: C:\Users\DELL\Desktop\WhatsApp Image 2023-09-11 at 17.47.20.jpg
+image: img/whatsapp-image-2023-09-11-at-17.47.20.jpg
 ---
 G﻿RAB IT
 
@@ -38,10 +38,6 @@ G﻿RAB IT
       S﻿IZE S-XXL  https://mavely.app.link/e/tQwIAxpr0Cb <!--StartFragment-->
 
       ![Guzom Graduation Dress- Prom Crew Neck Sleeveless Floral Gifts for Her Summer Dresses for Women 2023 Party Dress Green S](https://i5.walmartimages.com/asr/2da019bd-1999-4379-a63f-58715be0dd75.a644a2f8a45f6d9c1731d12d4be0a4fa.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-      <!--EndFragment-->
     * 🏃‍♀🏃‍♀ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ🏃‍♀🏃‍♀ Madden NYC Women's and Junior's Floral Print Skater Dress  (AD) Now 9.04 SIZE S-XXL<!--StartFragment-->
 
       ![Madden NYC Women's and Junior's Floral Print Skater Dress](https://i5.walmartimages.com/seo/Madden-NYC-Women-s-and-Junior-s-Floral-Print-Skater-Dress_7cca153b-2656-498a-be8a-cbcf64aceab7.0b729417873675ebbe4382a287129241.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-      <!--EndFragment-->
