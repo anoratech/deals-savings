@@ -38,3 +38,13 @@ image: img/whatsapp-image-2023-09-12-at-2.36.30-am.jpeg
   ![MARZXIN Athletic Sleeveless Tank Tops for Women Workout Shirts Quick Dry Crop Tops](https://m.media-amazon.com/images/I/61XI-jz+XqL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* ⏬⏬ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ⤵️⤵️
+  SIZE S- XXL, 18xx ONLY
+  Women's Floral Print Puff Sleeve Kimono Cardigan
+  BUY FROM AMAZON 👉
+  https://geni.us/sjtr
+  (AD)<!--StartFragment-->
+
+  ![Women\&#39;s Floral Print Puff Sleeve Kimono Cardigan Loose Cover Up Casual Blouse Tops](https://m.media-amazon.com/images/I/810yz3XJoYS._AC_UY741_.jpg)
+
+  <!--EndFragment-->
