@@ -28,3 +28,13 @@ image: img/whatsapp-image-2023-09-12-at-2.36.30-am.jpeg
   ![Hanes Women\&#39;s Short Sleeve V-Neck Graphic T-Shirt](https://m.media-amazon.com/images/I/71v3XE6AynL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* (っ◔◡◔)っ ♥ PRICE DROP ♥
+  Athletic Sleeveless Tank Tops
+  17xx ONLY
+  BUY FROM AMAZON 👉
+  https://geni.us/xBhbf
+  (AD)<!--StartFragment-->
+
+  ![MARZXIN Athletic Sleeveless Tank Tops for Women Workout Shirts Quick Dry Crop Tops](https://m.media-amazon.com/images/I/61XI-jz+XqL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
