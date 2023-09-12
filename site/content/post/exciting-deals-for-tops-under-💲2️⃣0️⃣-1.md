@@ -15,8 +15,6 @@ image: img/whatsapp-image-2023-09-12-at-2.36.30-am.jpeg
 
   ![WIHOLL Womens Tie Neck Chiffon Blouses Summer Causal Ruffle Trim Sleeveless Tops Shirts](https://m.media-amazon.com/images/I/71Q-L8mnqqL._AC_UY741_.jpg)
 
-  <!--EndFragment-->
-
   ![]()
 * ‼️‼️PRICE DROP ⤵️⤵️
   SIZE S- XL, 12xx ONLY 
@@ -26,8 +24,6 @@ image: img/whatsapp-image-2023-09-12-at-2.36.30-am.jpeg
   (AD)<!--StartFragment-->
 
   ![Hanes Women\&#39;s Short Sleeve V-Neck Graphic T-Shirt](https://m.media-amazon.com/images/I/71v3XE6AynL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * (っ◔◡◔)っ ♥ PRICE DROP ♥
   Athletic Sleeveless Tank Tops
   17xx ONLY
@@ -36,8 +32,6 @@ image: img/whatsapp-image-2023-09-12-at-2.36.30-am.jpeg
   (AD)<!--StartFragment-->
 
   ![MARZXIN Athletic Sleeveless Tank Tops for Women Workout Shirts Quick Dry Crop Tops](https://m.media-amazon.com/images/I/61XI-jz+XqL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * ⏬⏬ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ⤵️⤵️
   SIZE S- XXL, 18xx ONLY
   Women's Floral Print Puff Sleeve Kimono Cardigan
@@ -46,8 +40,6 @@ image: img/whatsapp-image-2023-09-12-at-2.36.30-am.jpeg
   (AD)<!--StartFragment-->
 
   ![Women\&#39;s Floral Print Puff Sleeve Kimono Cardigan Loose Cover Up Casual Blouse Tops](https://m.media-amazon.com/images/I/810yz3XJoYS._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 * 🅶🆁🅴🅰🆃 🅳🆁🅾🅿
   9xx Only, SIZE,  S- XL
   💝🍁Fall Sweatshirts for Women
@@ -56,5 +48,3 @@ image: img/whatsapp-image-2023-09-12-at-2.36.30-am.jpeg
   (AD)<!--StartFragment-->
 
   ![Fall Sweatshirts for Women, Womens Casual Crewneck Sweatshirts Long Sleeve Cute Tunic Tops Loose Fitting Pullovers](https://m.media-amazon.com/images/I/71YcVy8mSLL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
