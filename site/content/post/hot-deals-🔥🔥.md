@@ -23,6 +23,4 @@ gorgeous buffet cabinet<!--StartFragment-->
 
   MLILY Ego White 6 inch Memory Foam Mattress, Twin Mattress Bed in a Box, Medium Firm<!--StartFragment-->
 
-  ![Cal King Size Mattress, 10 inch Bed in a Box, Memory Foam Mattress, White](https://i5.walmartimages.com/seo/Cal-King-Size-Mattress-10-inch-Bed-in-a-Box-Memory-Foam-Mattress-White_c5056e5d-cf24-4526-8839-15967b6a38ce.f99c04092151e98e4fde9fa11db1b30d.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
-
-  <!--EndFragment-->
+  ![Cal King Size Mattress, 10 inch Bed in a Box, Memory Foam Mattress, White](https://i5.walmartimages.com/asr/206f8384-1beb-4c9e-903d-1542a2752a47.35a4ab8c34fb8b649109fae333d186c1.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
