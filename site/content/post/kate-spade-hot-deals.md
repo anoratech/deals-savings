@@ -38,41 +38,26 @@ image: img/whatsapp-image-2023-09-13-at-6.01.04-pm.jpeg
   Kate Spade Ava Reversible Tote 
   https://go.magik.ly/ml/1whqu/
   AD\
-  <!--StartFragment-->
 
   ![Kate Spade,ava reversible tote,tote bags,Black](https://images.katespade.com/is/image/KateSpade/K6052_001?$desktopProductZoom$)
-
-  <!--EndFragment-->
 * ♠️ KATE SPADE  ♠️
   76.48 was 239.00
   Kate Spade Surprise Sale | Leather Crossbody Bag 
   https://go.magik.ly/ml/1whqv/
   AD\
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">MAKEITTWO</code></pre>\
-  <!--StartFragment-->
 
   ![Kate Spade,perry leather crossbody,Black](https://images.katespade.com/is/image/KateSpade/K8709_001?$desktopProductZoom$)
-
-  <!--EndFragment-->
 * ♠️ KATE SPADE  ♠️
   Deals 25 and under
   https://go.magik.ly/ml/1whqw/
   AD\
-  <!--StartFragment-->
 
   ![Kate Spade,Everyday Spade Thin Metal Bangle,bracelets,Gold](https://images.katespade.com/is/image/KateSpade/O0RU3143_711?$desktopProductZoom$)
-
-  <!--EndFragment-->
 * ♠️ KATE SPADE  ♠️
   Up to 60% OFF Kate Spade SALE 
   Extra 40% OFF 
   https://go.magik.ly/ml/1whqx/
   AD\
-  <pre><code class="language-js" data-prismjs-copy="Click to Copy">LDAY40</code></pre>
-
-  <!--StartFragment-->
 
   ![Kate Spade,knott large satchel,satchels,Large,Watercolor Blue](https://images.katespade.com/is/image/KateSpade/PXR00399_404?$desktopProduct$)
-
-  <!--EndFragment-->
 *
