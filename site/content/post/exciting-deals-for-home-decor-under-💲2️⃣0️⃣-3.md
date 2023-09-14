@@ -92,8 +92,8 @@ image: img/whatsapp-image-2023-09-14-at-10.25.28-am.jpeg
 
       <!--EndFragment-->
     * Husfou Halloween Decorations Table Runner Tablecloth Lace Round Spider Cobweb Table Cover Fireplace Mantel Scarf Lampshade with 36pcs Scary 3D Bat for Party Decor AD Now 14.01
-      You save 5.98
-      was 19.99<!--StartFragment-->
+      You save 5.98 https://mavely.app.link/e/UN4En9vi5Cb
+      was 19.99<!--StartFragment--> 
 
       ![Husfou Halloween Decorations Table Runner Tablecloth Lace Round Spider Cobweb Table Cover Fireplace Mantel Scarf Lampshade with 36pcs Scary 3D Bat for Party Decor](https://i5.walmartimages.com/seo/Husfou-Halloween-Decorations-Table-Runner-Tablecloth-Lace-Round-Spider-Cobweb-Cover-Fireplace-Mantel-Scarf-Lampshade-36pcs-Scary-3D-Bat-Party-Decor_881386c2-95f7-4b72-a887-ef352dab5e76.3c8ca8095255e48c921613dc927ed210.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 
