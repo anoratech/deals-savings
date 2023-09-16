@@ -4,6 +4,7 @@ date: 2023-09-16T10:47:52.676Z
 tags: AMAZON
 Category: OTHER
 description: HOT DEALS
+image: img/whatsapp-image-2023-09-16-at-17.00.56.jpg
 ---
 * <https://geni.us/BlyJYm>
 
