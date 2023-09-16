@@ -5,7 +5,7 @@ tags: AMAZON
 Category: OTHER
 description: HOT DEALS
 ---
-*   <https://geni.us/BlyJYm>
+* <https://geni.us/BlyJYm>
 
   BUY IT FROM AMAZON
 
@@ -18,7 +18,8 @@ description: HOT DEALS
   ![](https://m.media-amazon.com/images/I/81GPfwW+a9L._AC_SL1280_.jpg)
 
   <!--EndFragment-->
-*   <https://mavely.app.link/e/AIUCV4PE8Cb>  \[AD]
+
+* <https://mavely.app.link/e/AIUCV4PE8Cb>  \[AD]
 
   HUGE SAVINGS
 
@@ -29,4 +30,47 @@ description: HOT DEALS
   ![Morph Costumes Purple Witch Halloween Costume for Children, Girls M](https://i5.walmartimages.com/seo/Morph-Costumes-Purple-Witch-Halloween-Costume-for-Children-Girls-M_e0b7c46f-5275-42b8-8183-62582ea30836.6716df88c8ef6d97f17bbac5a52f255a.jpeg?odnHeight=612&odnWidth=612&odnBg=FFFFFF)
 
   <!--EndFragment-->
-*
+
+*   https://geni.us/DMqS2B  BUY IT FROM AMAZON
+
+  ‼️ P R ! C E  D R 0 P ‼️
+
+  20.XX(Reg 49.XX)
+
+  Humble Crew, Grey/White Kids Book Rack Storage Bookshelf, 4 Tiers
+
+  \[AD]<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81xLhgneFgL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+*   <https://geni.us/DtE0j>
+
+  BUY IT FROM AMAZON
+
+  ‼ PR!CE DR0P ‼
+
+  12.XX (REG 54.XX)
+
+  \- SELECT SIZES!
+
+  \[AD]
+
+  Crocs unisex-adult Classic Realtree Clog<!--StartFragment-->
+
+  ![Crocs unisex-adult Classic Realtree Clog](https://m.media-amazon.com/images/I/81NAoUPdKwL._AC_UX575_.jpg)
+
+  <!--EndFragment-->
+
+
+*   https://amzn.to/3rljcik
+
+  9.XX (NO C0DE  NEEDED)
+
+  \[AD]
+
+  STQ KIDS Kids Flip Flops Boys Girls Unisex<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71aXXxJP2EL._AC_SY500._SX._UX._SY._UY_.jpg)
+
+  <!--EndFragment-->
