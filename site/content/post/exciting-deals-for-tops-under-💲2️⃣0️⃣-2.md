@@ -6,19 +6,6 @@ Category: WOMEN
 description: HOT DEAL
 image: img/whatsapp-image-2023-09-26-at-2.58.29-am.jpeg
 ---
-* <!--StartFragment-->
-
-  ⏬⏬GREAT DROP ‼️⤵️\
-  13xx ONLY\
-  💕💕Favorite Long Length Tees\
-  <https://go.sylikes.com/eBiSbRu5qQmt>\
-  (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![Favorite Long Length Tees](https://cloud.media-jane.com/q_auto,f_auto,w_600,h_600,dpr_2,c_limit/v1/img/deals/1892430_square.jpg)
-
-  <!--EndFragment-->
 * 🅿🆁🅸🅲🅴 🅳🆁🅾🅿
   SIZE S- XXL, 10xx ONLY 
   💕💕Womens Tie Neck Chiffon Blouses Summer Causal Ruffle Trim Sleeveless Tops Shirts
@@ -27,8 +14,6 @@ image: img/whatsapp-image-2023-09-26-at-2.58.29-am.jpeg
   (AD)<!--StartFragment-->
 
   ![WIHOLL Womens Tie Neck Chiffon Blouses Summer Causal Ruffle Trim Sleeveless Tops Shirts](https://m.media-amazon.com/images/I/71Q-L8mnqqL._AC_UY741_.jpg)
-
-  <!--EndFragment-->
 
   ![]()
 * ‼️‼️PRICE DROP ⤵️⤵️
@@ -39,8 +24,6 @@ image: img/whatsapp-image-2023-09-26-at-2.58.29-am.jpeg
   (AD)<!--StartFragment-->
 
   ![Hanes Women\&#39;s Short Sleeve V-Neck Graphic T-Shirt](https://m.media-amazon.com/images/I/71v3XE6AynL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
 * (っ◔◡◔)っ ♥ PRICE DROP ♥
   Athletic Sleeveless Tank Tops
   17xx ONLY
@@ -49,19 +32,3 @@ image: img/whatsapp-image-2023-09-26-at-2.58.29-am.jpeg
   (AD)<!--StartFragment-->
 
   ![MARZXIN Athletic Sleeveless Tank Tops for Women Workout Shirts Quick Dry Crop Tops](https://m.media-amazon.com/images/I/61XI-jz+XqL._AC_UX679_.jpg)
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  ⏬⏬ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ⤵️⤵️\
-  SIZE S- XXL, 15xx ONLY\
-  Women's Floral Print Puff Sleeve Kimono Cardigan\
-  BUY FROM AMAZON 👉\
-  <https://geni.us/sjtr>\
-  (AD)
-
-  <!--EndFragment--><!--StartFragment-->
-
-  ![Women\&#39;s Floral Print Puff Sleeve Kimono Cardigan Loose Cover Up Casual Blouse Tops](https://m.media-amazon.com/images/I/810yz3XJoYS._AC_UY741_.jpg)
-
-  <!--EndFragment-->
