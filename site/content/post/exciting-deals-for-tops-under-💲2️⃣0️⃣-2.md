@@ -31,4 +31,14 @@ image: img/whatsapp-image-2023-09-26-at-2.58.29-am.jpeg
   <!--EndFragment-->
 
   ![]()
+* ‼️‼️PRICE DROP ⤵️⤵️
+  SIZE S- XL, 12xx ONLY 
+  Hanes Women's Short Sleeve V-Neck Graphic T-Shirt
+  BUY FROM AMAZON 👉
+  https://geni.us/sdYMn
+  (AD)<!--StartFragment-->
+
+  ![Hanes Women\&#39;s Short Sleeve V-Neck Graphic T-Shirt](https://m.media-amazon.com/images/I/71v3XE6AynL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
 *
