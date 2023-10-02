@@ -21,3 +21,16 @@ image: img/whatsapp-image-2023-10-02-at-6.41.43-am.jpeg
   <!--EndFragment-->
 
   ![]()
+* <!--StartFragment-->
+
+  P♥R♥I♥C♥E♥ ♥D♥R♥O♥P\
+  SIZE S- XL, 17xx ONLY\
+  💝Women's Summer Cocktail Midi Dresses\
+  <https://amzn.to/43CxQ1U>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![IFFEI Women\&#39;s Summer Cocktail Midi Dresses 2023 Short Sleeve Round Neck Ruched Twist Knot Casual Evening Party Bodycon Dress](https://m.media-amazon.com/images/I/61fAUQNNxNL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
