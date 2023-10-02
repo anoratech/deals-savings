@@ -60,3 +60,16 @@ image: img/whatsapp-image-2023-10-02-at-6.41.43-am.jpeg
   ![Riviera Sun Strapless Tube Short Dress Summer Dresses](https://m.media-amazon.com/images/I/81JHmNVtnKL._AC_UY741_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ✂️✂️C-O-U-P-O-N ✂️✂️\
+  SIZE S-XL,\
+  ♦️Women's Summer Casual Boho Dress\
+  <https://amzn.to/43EgyS5>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Women\&#39;s Summer Casual Boho Dress Fashion Solid Chiffon Dresses Short Sleeve High Waist Tshirt Dress Flowy Beach Sundresses](https://m.media-amazon.com/images/I/71jPL8YCsBL._AC_UX679_.jpg)
+
+  <!--EndFragment-->
