@@ -34,3 +34,16 @@ image: img/whatsapp-image-2023-10-02-at-6.41.43-am.jpeg
   ![IFFEI Women\&#39;s Summer Cocktail Midi Dresses 2023 Short Sleeve Round Neck Ruched Twist Knot Casual Evening Party Bodycon Dress](https://m.media-amazon.com/images/I/61fAUQNNxNL._AC_UX679_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  (っ◔◡◔)っ ♥ PRICE DROP ♥\
+  😍😍SheIn Women's Floral Tie Front Ruffle Mini Dress\
+  SIZE S- L, 16xx\
+  <https://amzn.to/3scnlp6>\
+  (Ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![SheIn Women\&#39;s Floral Tie Front Ruffle Mini Dress V Neck Short Sleeve A Line Flare Dresses](https://m.media-amazon.com/images/I/81XDGPZwdYL._AC_UY879_.jpg)
+
+  <!--EndFragment-->
