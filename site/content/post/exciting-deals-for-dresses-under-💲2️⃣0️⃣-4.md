@@ -47,3 +47,16 @@ image: img/whatsapp-image-2023-10-02-at-6.41.43-am.jpeg
   ![SheIn Women\&#39;s Floral Tie Front Ruffle Mini Dress V Neck Short Sleeve A Line Flare Dresses](https://m.media-amazon.com/images/I/81XDGPZwdYL._AC_UY879_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ⏬⏬PRICE DOWN ⤵️⤵️\
+  Riviera Sun Strapless Tube Short Dress\
+  SIZE S- 3XL , 17xx ONLY\
+  <https://amzn.to/3rDjkJY>\
+  (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![Riviera Sun Strapless Tube Short Dress Summer Dresses](https://m.media-amazon.com/images/I/81JHmNVtnKL._AC_UY741_.jpg)
+
+  <!--EndFragment-->
