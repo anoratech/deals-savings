@@ -151,9 +151,6 @@ image: img/whatsapp-image-2023-11-09-at-2.43.18-pm.jpeg
   AD\
 
   ![The Pioneer Woman Brilliant Blooms 38-Piece Cookware Set, Teal](https://i5.walmartimages.com/asr/6ee49f65-5601-48ad-a50f-d0fbe25d2d40.5376d12f2636d933da09f74690b9211d.jpeg?odnHeight=640&odnWidth=640&odnBg=FFFFFF)
-
-  <!--EndFragment-->
-
 * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
   WALMART EARLY BLACK FRIDAY!!
   🎀Baby Playpen Large Play Yard Fence for Toddlers,47"x47" Gray🎀
@@ -162,9 +159,6 @@ image: img/whatsapp-image-2023-11-09-at-2.43.18-pm.jpeg
   AD\
 
   ![TEAYINGDE Baby Playpen Large Play Yard Fence for Toddlers,47"x47" Gray](https://i5.walmartimages.com/seo/TEAYINGDE-Baby-Playpen-Large-Play-Yard-Fence-for-Toddlers-47-x47-Gray_904e8037-6393-482a-8129-d677ecc4dfa6.013bcbc8605d525ad9e934ddaacf91f9.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
-
 * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
   10.00 was 21.36
   WALMART EARLY BLACK FRIDAY!!
