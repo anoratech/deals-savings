@@ -18,3 +18,14 @@ image: img/8eba9b87-001e-4d7d-add8-fb9a8aad2f28.jpg
   <!--EndFragment-->
 
   ![]()
+* BLACK FRIDAY SALE 📣📣
+  ‼️‼️ քʀɨƈɛ ɖʀօք ‼️‼️
+  🔥🔥Sunnyglade 3PCS 18" Christmas Stocking Classic Large Stockings Santa 
+  BUY FROM AMAZON: 
+  https://geni.us/liHBFB 
+
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81ypmpwIq+L._AC_SL1300_.jpg)
+
+  <!--EndFragment-->
