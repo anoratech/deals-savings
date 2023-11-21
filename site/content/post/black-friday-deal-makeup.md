@@ -57,4 +57,16 @@ ad
 
 ![](https://m.media-amazon.com/images/I/51uRsm7Up-L._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Rimmel London Stay Matte Liquid Lip Color 
+
+https://geni.us/AyXfm 
+
+P﻿rice drop 
+
+a﻿d 
+
+![](https://m.media-amazon.com/images/I/512LsmzKdjL._SL1500_.jpg)
+
 <!--EndFragment-->
