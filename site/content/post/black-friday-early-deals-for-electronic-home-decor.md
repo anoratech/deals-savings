@@ -50,3 +50,13 @@ image: img/8eba9b87-001e-4d7d-add8-fb9a8aad2f28.jpg
   ![](https://m.media-amazon.com/images/I/81tzcJ74aVL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* 🅷🆄🅶🅴 🅳🆁🅾🅿 
+  🚨🚨Loloi Layla Collection, LAY-03, Olive/Charcoal, 9'-0" x 12'-0", 13" Thick, Area Rug 
+  BUY FROM AMAZON: 
+  https://geni.us/bCPb 
+
+  (AD)<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91mWw7eAQyS._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
