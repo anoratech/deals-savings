@@ -46,4 +46,15 @@ a﻿d
 
 ![($24 Value) Mario Badescu Lip Balm Trio Holiday Gift Set, 3 ct](https://i5.walmartimages.com/seo/24-Value-Mario-Badescu-Lip-Balm-Trio-Holiday-Gift-Set-3-ct_b04a5701-651c-4f92-82e2-a9bbf52ff590.971f66db4b0508eea4993e6a1399a9d0.jpeg?odnHeight=640&odnWidth=640&odnBg=FFFFFF)
 
+<!--StartFragment-->
+
+2-in-1 Hair Straightener Flat Iron\
+90% Off Code: 806CSZOV\
+https://geni.us/NTF8uO\
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/51uRsm7Up-L._AC_SL1500_.jpg)
+
 <!--EndFragment-->
