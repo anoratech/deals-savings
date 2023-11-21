@@ -60,3 +60,15 @@ image: img/8eba9b87-001e-4d7d-add8-fb9a8aad2f28.jpg
   ![](https://m.media-amazon.com/images/I/91mWw7eAQyS._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* \#WALMART 
+  📣📣BLACK FRIDAY SALE 
+  💞💞PowerXL Vortex Air Fryer Pro Plus 10 Quart Capacity, Black, 1700 Watts, 
+  NOW- 💲87.60 (REG- 💲126.44) 
+  ⏬⏬PRICE LOW ⏬⏬
+  https://go.sylikes.com/eBxkQHKAkaVJ 
+
+  (AD)<!--StartFragment-->
+
+  ![PowerXL Vortex Air Fryer Pro Plus 10 Quart Capacity, Black, 1700 Watts,](https://i5.walmartimages.com/seo/PowerXL-Vortex-Air-Fryer-Pro-Plus-10-Quart-Capacity-Black-1700-Watts_d4c73c8f-3bd2-4802-8f7f-0c3a40229711.fa8c96f568a45297bdc36cd5d3c41846.jpeg?odnHeight=640&odnWidth=640&odnBg=FFFFFF)
+
+  <!--EndFragment-->
