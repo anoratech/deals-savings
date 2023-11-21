@@ -69,4 +69,18 @@ a﻿d
 
 ![](https://m.media-amazon.com/images/I/512LsmzKdjL._SL1500_.jpg)
 
+<!--StartFragment-->
+
+Teenitor Face Gems Self Adhesive Face Rhinestones for Makeup
+
+Price Drop Grab & go
+
+https://geni.us/b4xz
+
+ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/81ZooYRxHOL._SL1500_.jpg)
+
 <!--EndFragment-->
