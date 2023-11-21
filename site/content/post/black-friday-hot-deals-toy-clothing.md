@@ -6,12 +6,82 @@ Category: TOYS & CLOTHINGS
 description: BLACK FRIDAY HOT DEALS TOY & CLOTHING
 image: img/whatsapp-image-2023-11-21-at-2.04.04-pm.jpeg
 ---
+* https://geni.us/twgNA   AD
+  Barbie Babysitting Playset with Skipper Doll
+  ▀▄▀▄▀▄ 𝐋όν€ℓｙ ᗪｅⒶ𝐋𝕊 ▄▀▄▀▄▀
+  🌌  🎀  𝒫𝑅𝐼𝒞𝐸 𝒟𝑅☯𝒫  🎀  🌌<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71Fi24TDa9L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* https://geni.us/NGszmCv   AD
+  Barbie Chelsea Doll & Unicorn Toy Car
+  ▀▄▀▄▀▄ 𝐋όν€ℓｙ ᗪｅⒶ𝐋𝕊 ▄▀▄▀▄▀
+  🌌  🎀  𝒫𝑅𝐼𝒞𝐸 𝒟𝑅☯𝒫  🎀  🌌<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71QCkSGpzJL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* https://geni.us/q11Wp5y   ad
+  Barbie Club Chelsea Toy, 6-inch Blonde Doll and Bedroom Playset with Working Trundle Bed
+  ▀▄▀▄▀▄ 𝐋όν€ℓｙ ᗪｅⒶ𝐋𝕊 ▄▀▄▀▄▀
+  🌌  🎀  𝒫𝑅𝐼𝒞𝐸 𝒟𝑅☯𝒫  🎀  🌌<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61D2pUXiIkL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* Barbie Cutie Reveal Doll with Blonde Hair & Lion Plush Costume, 10 Suprises Include Accessories & Pet (Styles May Vary)
+  ▀▄▀▄▀▄ 𝐋όν€ℓｙ ᗪｅⒶ𝐋𝕊 ▄▀▄▀▄▀
+  🌌  🎀  𝒫𝑅𝐼𝒞𝐸 𝒟𝑅☯𝒫  🎀  🌌`<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/815kgnJwf4L._AC_SL1500_.jpg)
+
+
+
+  <!--EndFragment-->
+* https://geni.us/TsihoJQ  ad
+  Barbie Color Reveal Dolls
+  ▀▄▀▄▀▄ 𝐋όν€ℓｙ ᗪｅⒶ𝐋𝕊 ▄▀▄▀▄▀
+  🌌  🎀  𝒫𝑅𝐼𝒞𝐸 𝒟𝑅☯𝒫  🎀  🌌`<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81z2w7LSFEL._AC_SL1500_.jpg)
+
+
+
+  <!--EndFragment-->
+* https://geni.us/tEAJg   ad
+  CAT Construction Future Force Cement Mixer Construction Toy, with Lights and Sounds, Ages 3 and Up
+  ▀▄▀▄▀▄ 𝐋όν€ℓｙ ᗪｅⒶ𝐋𝕊 ▄▀▄▀▄▀
+  🌌  🎀  𝒫𝑅𝐼𝒞𝐸 𝒟𝑅☯𝒫  🎀  🌌`<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71JPjeovcoL._AC_SL1500_.jpg)
+
+
+
+  <!--EndFragment-->
+* https://geni.us/esUtz1  ad
+  LEGO Architecture London Skyline Collection 21034 Building Set Model Kit and Gift for Kids and Adults (468 pieces)
+  ▀▄▀▄▀▄ 𝐋όν€ℓｙ ᗪｅⒶ𝐋𝕊 ▄▀▄▀▄▀
+  🌌  🎀  𝒫𝑅𝐼𝒞𝐸 𝒟𝑅☯𝒫  🎀  🌌`<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81PZxoUxM6L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* https://geni.us/y1DJ   ad
+  Pokémon Action Figure Building Toys Set
+  ▀▄▀▄▀▄ 𝐋όν€ℓｙ ᗪｅⒶ𝐋𝕊 ▄▀▄▀▄▀
+  🌌  🎀  𝒫𝑅𝐼𝒞𝐸 𝒟𝑅☯𝒫  🎀  🌌`<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81bZDwuVbGL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * HOT 🔥HOT🔥
   💝Melissa & Doug  TOYS ON SALE
   https://amzn.to/3R68RB1
   AD
 
-  ![](img/whatsapp-image-2023-11-21-at-1.45.47-pm.jpeg)
+![](img/whatsapp-image-2023-11-21-at-1.45.47-pm.jpeg)
+
 * HURYYYY🏃‍♀️🏃🏃‍♀️
   👶👶Fisher Price toy 👶👶
   https://amzn.to/3uniy5f
