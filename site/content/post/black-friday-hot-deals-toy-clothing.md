@@ -6,8 +6,15 @@ Category: TOYS & CLOTHINGS
 description: BLACK FRIDAY HOT DEALS TOY & CLOTHING
 image: img/whatsapp-image-2023-11-21-at-2.04.04-pm.jpeg
 ---
+* https://geni.us/Sxlz3g    ad
+  Non-Slip Stepping Stones for Kids, 5pcs
+  BLACK FRIDAY DEAL
+  ▀▄▀▄▀▄ 𝐋όν€ℓｙ ᗪｅⒶ𝐋𝕊 ▄▀▄▀▄▀
+  🌌  🎀  𝒫𝑅𝐼𝒞𝐸 𝒟𝑅☯𝒫  🎀  🌌`<!--StartFragment-->
 
+  ![](https://m.media-amazon.com/images/I/71acAqCr-dL._AC_SL1500_.jpg)
 
+  <!--EndFragment-->
 * https://geni.us/yrlY   ad
   5 in 1 Climbing Triangle Set
   41% Price Drop + Clip C0upon
