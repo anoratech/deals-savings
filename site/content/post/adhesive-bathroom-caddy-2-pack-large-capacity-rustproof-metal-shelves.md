@@ -8,7 +8,7 @@ description: |
   PRICE DROP
 ---
 BUY HERE AT AMAZON >>
-https://amzn.to/41NNMil
+https://geni.us/qVIY
 AD
 
 <!--StartFragment-->
