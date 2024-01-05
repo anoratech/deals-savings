@@ -14,8 +14,6 @@ description: GRAB IT...
   🎁🎁 ღ(¯`◕‿◕´¯) ♫ ♪ ♫ Δฬᗴ𝐬σｍ𝔢 𝔻ⓔά𝓵ⓢ ♫ ♪ ♫ (¯`◕‿◕´¯)ღ🎁🎁<!--StartFragment-->
 
   ![The Children\&#39;s Place Baby Girls\&#39; and Toddler Fleece Zip-Front One Piece Footed Pajama](https://m.media-amazon.com/images/I/71okybLzxgL._AC_SX569_.jpg)
-
-  <!--EndFragment-->
 * https://geni.us/TXxnuJ7 
   Up Balloon House Building Kit
   Just 15.xx 
@@ -24,8 +22,6 @@ description: GRAB IT...
   🎁🎁 ღ(¯`◕‿◕´¯) ♫ ♪ ♫ Δฬᗴ𝐬σｍ𝔢 𝔻ⓔά𝓵ⓢ ♫ ♪ ♫ (¯`◕‿◕´¯)ღ🎁🎁<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71GaqT1DATL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://geni.us/6WWuGxl   AD
   9.xx  , reg 24.xx
   Clip c0upon
@@ -34,8 +30,6 @@ description: GRAB IT...
   🎁🎁 ღ(¯`◕‿◕´¯) ♫ ♪ ♫ Δฬᗴ𝐬σｍ𝔢 𝔻ⓔά𝓵ⓢ ♫ ♪ ♫ (¯`◕‿◕´¯)ღ🎁🎁<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81i1Fd10WdL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://geni.us/XbXPm   AD
   9 PIECE 5D Diamond Painting Kits!!
   ONLY 6.xx
@@ -43,5 +37,3 @@ description: GRAB IT...
   🎁🎁 ღ(¯`◕‿◕´¯) ♫ ♪ ♫ Δฬᗴ𝐬σｍ𝔢 𝔻ⓔά𝓵ⓢ ♫ ♪ ♫ (¯`◕‿◕´¯)ღ🎁🎁<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81dDYW-XlML._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
