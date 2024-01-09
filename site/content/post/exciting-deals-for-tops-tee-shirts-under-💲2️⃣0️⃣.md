@@ -16,3 +16,11 @@ image: img/whatsapp-image-2024-01-09-at-4.14.30-am.jpeg
   <!--EndFragment-->
 
   ![]()
+* https://geni.us/GAcl (ad) 
+
+  💝💝BLACKOO Women Comfy Short Sleeve T-Shirts Graphic Cute Tops 
+  15xx<!--StartFragment-->
+
+  ![BLACKOO Women Comfy Short Sleeve T-Shirts Graphic Cute Tops](https://m.media-amazon.com/images/W/MEDIAX_792452-T1/images/I/71FFDzyuq8S._AC_SX679_.jpg)
+
+  <!--EndFragment-->
