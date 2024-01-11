@@ -16,7 +16,23 @@ image: img/whatsapp-image-2024-01-11-at-9.49.27-am.jpeg
   Nabisco Team Favorites Variety Pack 30 Snack
 
   <!--EndFragment-->
+*
 
 ![]()
+
+\
+https://geni.us/sB0KJhE
+
+(AD)
+
+5 Pairs Womens Wool Socks
+
+
+
+<!--EndFragment--><!--StartFragment-->
+
+![May be an image of Christmas stocking](https://scontent.fccu11-1.fna.fbcdn.net/v/t39.30808-6/418569054_5896377583832943_3688808710888914863_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=c42490&_nc_ohc=vZQsrUN_il0AX-Qj8Y6&_nc_ht=scontent.fccu11-1.fna&oh=00_AfBAfrloXTRmycrunFrmcVeBr26X7oipdSGS4dBsYcTPng&oe=65A48AAE)
+
+<!--EndFragment-->
 
 ![]()
