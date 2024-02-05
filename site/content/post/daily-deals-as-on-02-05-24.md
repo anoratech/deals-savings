@@ -5,7 +5,7 @@ tags: "Amazon "
 Category: other
 description: Daily deals as on 5th Feb 2024
 ---
-3 Pack Leggings for Women
+* 3 Pack Leggings for Women
 
 Price drop
 
@@ -15,19 +15,64 @@ Ad
 
 <!--EndFragment--> 
 
-<!--StartFragment-->
+* <!--StartFragment-->
 
-65% off
+  65% off
 
-Grab & go
+  Grab & go
 
-Girls shorts
+  Girls shorts
 
-[https://amzn.to/3Ordxzx](https://amzn.to/3Ordxzx?fbclid=IwAR0Nk-J6IKx8XC53RhFvUDqjGDVqqE-hSs68yHZTh3jLn_erqD-nMJ1_Gn0)
+  [https://amzn.to/3Ordxzx](https://amzn.to/3Ordxzx?fbclid=IwAR0Nk-J6IKx8XC53RhFvUDqjGDVqqE-hSs68yHZTh3jLn_erqD-nMJ1_Gn0)
 
-Ad
+  Ad
 
-<!--EndFragment--> 
+  <!--EndFragment--> 
+* <!--StartFragment-->
+
+  women tops
+
+  40% off at checkout
+
+  11.xx
+
+  discount auto applis at checkout
+
+  [https://geni.us/N5UqJk](https://geni.us/N5UqJk?fbclid=IwAR3iS7zQ267J2NWZDiiv_TqlnsqAa_NkEeNXdHqjrHnVIcrySct8Vy7ljjY)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
+  9" and 12" Set of 2 Sturdy Grilling Barbeque Brushed Locking Food Tongs with Ergonomic Grip
+
+  5.xx [https://geni.us/YTKzai](https://geni.us/YTKzai?fbclid=IwAR1SAZ5OoKCpWULLSOZ5BOLM9zOfyuqwAueZkir20-XFy-FXmiAGXhgoHSM)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
+  6-Bar Soap, with Rose Essence
+
+  5.xx [https://geni.us/9oezi](https://l.facebook.com/l.php?u=https%3A%2F%2Fgeni.us%2F9oezi%3Ffbclid%3DIwAR0uuPUpupHJfDSJi4V78_LBRDoY9k5JrWGiWPwwDqGW1FBh7Ig11-mzG5Y&h=AT3eOnTsqYIia5RJCu_MxeL55EyIrEcSvQt6YSmhchcnlxDCPY0QuoH42SdVpNvfBLjE7zkqf1TCK0WzdU3Y-HYfcEfT_b7YFE3-buu5yIFJNNxrCK1KNijmD27yOsxHP15y9ww4m7710XgXSGG-&__tn__=R]-R&c[0]=AT0eSlnz2eu8cMO1qEqZB6Xc8_ew3z4ctUexlR-9yYKoDhPPGST50CQlHOP6Et_Owxw6hqofxXObwG1v6EOpyUwmfsYE-tVHosy--dMGzArF9e16goK8AvrkhmB7ZJK0vGQ2VSPYw_FJbddYceXSrN-FnJJSioAxKpFSAq6uPTBEhAN9wjEWBIefHNSyoMXRgwkzCw) ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
+  Clip on Book Light for Reading in Bed
+
+  ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)50% CLIP
+
+  [https://geni.us/CWWdn](https://geni.us/CWWdn?fbclid=IwAR3hxrusnDjWCqirvhGTzLqvYJYD_thYtKi19Bs5nCNJwc5ydCfcgFtofuk)
+
+  AD
+
+  <!--EndFragment-->
+*
+
+
 
 <!--StartFragment-->
 
@@ -108,8 +153,6 @@ G﻿rab & go
 https://amzn.to/3SNc1dC 
 
 a﻿d 
-
-
 
 <!--StartFragment-->
 
