@@ -92,6 +92,19 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  55% off Hammock Chair
+
+  Clip the 5% coupon and use promo code: \`50PG8HX8\`
+
+  Works on all options
+
+  [https://amzn.to/485ha5x](https://amzn.to/485ha5x?fbclid=IwAR0qbxjLagGGPVxLpLWLfuOkq8u3RZn69u2csAJ8qcG_xuG8BeODgdIhapw)
+
+  [\#ad](https://www.facebook.com/hashtag/ad?__eep__=6&__cft__[0]=AZVmqDZZaD8eNWDrqgxlik7uu9y1zN4fEWw_NmqkUeBOJgXCTACWzgGZlM2Xh13cqI6MUqwW2D6qwGzCCUCwUIMhxWQ26yb8ORp0sdfximBmJ-MrRI5rB8Hnx0HDJy8zY6TizSQml74dqD_Evqk8NMBfzSxzZG4bUE5Nt5OjcJREcYYve-nfPUh9mqf-ddBbSuI&__tn__=R]-R) __
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   60% off
 
   code: DOXT7DR3 + coupon
