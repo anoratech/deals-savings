@@ -137,6 +137,19 @@ ad
   47% off 
   https://geni.us/nPnQZeO 
   ad
+* <!--StartFragment-->
+
+  Schick Intuition Refill, Lemon Berry Breeze Razors
+
+  PRICE DROP  >> https://geni.us/HDb7vmT
+
+  AD
+
+  <!--EndFragment--> <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/61UUvjvb1IL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * S﻿nacks 
 
   https://geni.us/6CAgHKK ad <!--StartFragment-->
