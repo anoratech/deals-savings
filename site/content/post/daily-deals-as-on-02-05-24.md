@@ -73,4 +73,16 @@ https://amzn.to/3SotJ65
 
 a﻿d 
 
+<!--EndFragment--> 
+
+<!--StartFragment-->
+
+Spa Basket for Women 
+
+P﻿rice Drop + 40% clip coupon 
+
+https://amzn.to/3OvGk65 
+
+a﻿d 
+
 <!--EndFragment-->
