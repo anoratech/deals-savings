@@ -320,3 +320,14 @@ description: >-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Ski goggles
+
+  70% off
+
+  [https://amzn.to/3SM2aVM](https://l.facebook.com/l.php?u=https%3A%2F%2Famzn.to%2F3SM2aVM%3Ffbclid%3DIwAR2oZEW1hplQKGFgGmaPDIuOCYcftOJFAptOCEOXgpUKbFysYQxDLAkyDio&h=AT3XmarR9O_R-uFBr4SYngO_UJvT-JDRBx32ZovIMtJtK9K1D8iEmosQPX4VYpn1BrEwzRJLjIL-44Sga-9j7NryngBETvXccXnOrdYFTlANrOhfdl2lwEdVFvCLAcrvZJTRB_cureVd9MkMp7Mp&__tn__=R]-R&c[0]=AT1H3VpxqtyEj_YRAbxBSdjDYOkeJlksNRYgs3nm2woiIS0g_LDAmNsC41kGTktGWrzZSiWfJ9dYMLRdUNEg_qhaP8K6GkfZ5Z1uXgw739ET_xBJ0ciNPIkrJfSttaiaWk7H1eei5krPKPbEVbO2VSndEyxtZsXKtg5zMRHUJyomn51-7c6hibG3jrVRU3gI-LYysXZtcY83)
+
+  Ad
+
+  <!--EndFragment-->
