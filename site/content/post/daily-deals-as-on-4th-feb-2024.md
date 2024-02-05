@@ -531,3 +531,12 @@ description: >-
   Ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  50% off price drop
+
+  [https://geni.us/lgg3KQD](https://geni.us/lgg3KQD?fbclid=IwAR3meo0X3KaHnM09HanYTPhZiE2gYeelnZxV5Kspj-k5CTJPKRHJB7QWdpE)
+
+  ad
+
+  <!--EndFragment-->
