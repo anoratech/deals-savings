@@ -65,7 +65,7 @@ Ad
   <!--EndFragment-->
 * <!--StartFragment-->
 
-  ![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)under 40
+  under 40
 
   HP DeskJet 2755e Wireless Color inkjet-printer
 
@@ -85,14 +85,14 @@ Ad
 
   Clip on Book Light for Reading in Bed
 
-  ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)50% CLIP
+  50% CLIP
 
   [https://geni.us/CWWdn](https://geni.us/CWWdn?fbclid=IwAR3hxrusnDjWCqirvhGTzLqvYJYD_thYtKi19Bs5nCNJwc5ydCfcgFtofuk)
 
   AD
 
   <!--EndFragment-->
-*
+*  ﻿
 
 <!--StartFragment-->
 
@@ -240,30 +240,32 @@ ad
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Valentines Cookie Cutter Set of 3 
+
+  G﻿rab & go 
+
+  https://amzn.to/3SNc1dC 
+
+  a﻿d 
+* <!--StartFragment-->
+
+  Fullstar Vegetable Chopper 
+
+  P﻿rice Drop + coupon 
+
+  https://amzn.to/3HNpCvl 
+
+  a﻿d 
 
 
 
 
 
-<!--StartFragment-->
 
-Valentines Cookie Cutter Set of 3 
 
-G﻿rab & go 
 
-https://amzn.to/3SNc1dC 
-
-a﻿d 
-
-<!--StartFragment-->
-
-Fullstar Vegetable Chopper 
-
-P﻿rice Drop + coupon 
-
-https://amzn.to/3HNpCvl 
-
-a﻿d 
 
 <!--StartFragment-->
 
