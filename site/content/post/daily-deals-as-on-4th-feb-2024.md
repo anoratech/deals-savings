@@ -79,6 +79,17 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  Permanent Outdoor Lights, 50ft Smart RGB Outdoor Lights,
+
+  50 off coupon
+
+  [https://amzn.to/49qcWqd](https://amzn.to/49qcWqd?fbclid=IwAR2Nd3EvVXqJRbQPA1BZt_IoeIhmMXkUJ74my8qU7aErV66fL8T_qw5c_Qw)
+
+  Ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   pack of 30
 
   [https://geni.us/6MhUbhl](https://geni.us/6MhUbhl?fbclid=IwAR3meo0X3KaHnM09HanYTPhZiE2gYeelnZxV5Kspj-k5CTJPKRHJB7QWdpE)
