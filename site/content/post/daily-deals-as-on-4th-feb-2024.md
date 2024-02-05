@@ -464,3 +464,10 @@ description: >-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Womens Joggers with Pockets 50% off when you use 2PXWJPIE at checkout!
+
+  [https://geni.us/bOn8x](https://geni.us/bOn8x?fbclid=IwAR2wNfotVO_KFEqFwz6xZm1iVFjbPTSFUbdCtxamslJE1RM5jfN8w-73i30) ad
+
+  <!--EndFragment-->
