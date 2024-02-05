@@ -76,6 +76,17 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  40% off at checkout + clip coupon ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)
+
+  Vintage Adjustable Pendant Lighting
+
+  [https://geni.us/zdYu8C1](https://geni.us/zdYu8C1?fbclid=IwAR1YbhUq4riKls02aD23zHnJTQxozamkO6UiJmmkAjt1RKj_XRY3ARIVn0A)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   40% clip coupon
 
   Grab & go
