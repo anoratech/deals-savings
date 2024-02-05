@@ -43,6 +43,17 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  8 Pairs Mens Ankle Socks
+
+  50% off Grab & go
+
+  [https://amzn.to/42n7SAB](https://amzn.to/42n7SAB?fbclid=IwAR2AHU8B_9zhYBHRMFxStEsquK1cocPpE_NgfsAtfO9N_s8to7fe76ut848)
+
+  Ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   50% off
 
   code: HNRIR96E
