@@ -14,6 +14,19 @@ description: >-
   pack of 24 [https://geni.us/qBRIV2W](https://geni.us/qBRIV2W?fbclid=IwAR04sf_4AxkCb_ZQQq2mxJ26c-Q4HioyQueqahiEdLEvdovV7i92m0x4Auc) ad
 * <!--StartFragment-->
 
+  IPL Hair Removal
+
+  30% clip coupon
+
+  code: W45R4AE6
+
+  [https://amzn.to/3SLKEB1](https://amzn.to/3SLKEB1?fbclid=IwAR1DXUFp0Zur-LQ6FbxEhhIcJXan3I6C1h9ARFAlWdJUM_Gn2HQ3dwLyok8)
+
+  Ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   Hudson Baby Baby Cotton Bodysuits
 
   Price drop
