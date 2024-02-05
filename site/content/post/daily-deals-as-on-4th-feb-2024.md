@@ -43,6 +43,19 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  Arm & Hammer Light In-Wash Scent Booster Crisp Clean 24oz
+
+  3.xx
+
+  when you clip the c0up0n and subscribe!!
+
+  [https://geni.us/Bcea5S](https://geni.us/Bcea5S?fbclid=IwAR2d6DfjgugSH8ITdDE6OxZPXz58gU-hqt9sibx1l4srIRHBBJSWfjTXRcw)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   that's 25 candy bars!
 
   6.xx
