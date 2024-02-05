@@ -370,8 +370,19 @@ ad
   [https://amzn.to/3OvddzY](https://amzn.to/3OvddzY?fbclid=IwAR2JWqw5g1K6ky2pp7Iwcek4mUqiAESWAwKvSuXPaKvS8DH0LU0XqvFCZ2A)
 
   Ad
+* <!--StartFragment-->
 
+  comforter sets from 8.xx at macy's [https://shopstyle.it/l/b7Jot](https://shopstyle.it/l/b7Jot?fbclid=IwAR1SAZ5OoKCpWULLSOZ5BOLM9zOfyuqwAueZkir20-XFy-FXmiAGXhgoHSM) ad
 
+  <!--EndFragment--> 
+
+<!--StartFragment-->
+
+![](https://slimages.macysassets.com/is/image/MCY/products/1/optimized/25430601_fpx.tif?$browse$&wid=224&fmt=jpeg)
+
+<!--EndFragment-->
+
+*
 
 
 
