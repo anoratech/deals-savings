@@ -14,6 +14,11 @@ description: >-
   pack of 24 [https://geni.us/qBRIV2W](https://geni.us/qBRIV2W?fbclid=IwAR04sf_4AxkCb_ZQQq2mxJ26c-Q4HioyQueqahiEdLEvdovV7i92m0x4Auc) ad
 * <!--StartFragment-->
 
+  Save on DEWALT Tools and Accessories ad [https://geni.us/ySDv8](https://geni.us/ySDv8?fbclid=IwAR0W7KQGZlXYgqzarbTLGv_ORbgaZ08EPo3EKM8_dTOs5cyX4S5q7AUA1m8)
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   Womens Joggers with Pockets 50% off when you use 2PXWJPIE at checkout!
 
   [https://geni.us/bOn8x](https://geni.us/bOn8x?fbclid=IwAR2Mk0uczzH4GbU-XPrFxKnKN7UlRCZbnDmv9mSEmkfG1cMtOaaW4pXwZBQ) ad
