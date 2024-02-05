@@ -171,6 +171,17 @@ a﻿d
   AD
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Electric Immersion Hand Blender
+
+  9.xx
+
+  [https://geni.us/uxEKT](https://geni.us/uxEKT?fbclid=IwAR3KmVn6lqp2uAizgCXpi0N99wjRat0ipkraQIaINGov1b80f_8ZCXQ6EfM)
+
+  ad
+
+  <!--EndFragment-->
 
 
 
