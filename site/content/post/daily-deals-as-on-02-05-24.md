@@ -402,3 +402,14 @@ ad
 Limited-time offer
 
 <!--EndFragment-->
+
+* <!--StartFragment-->
+
+  50% off on Nintendo Switch Game Traveler Deluxe Travel Case
+
+  [https://geni.us/nEPhee](https://geni.us/nEPhee?fbclid=IwAR0o_z2kKKhYFJP5rj1YXmGcfAgV3qqd_CO_j5Ucv7kzpXAeyB2o5xE3_nw)
+
+  ad
+
+  <!--EndFragment-->
+*
