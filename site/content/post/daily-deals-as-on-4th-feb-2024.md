@@ -155,6 +155,19 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  40% off
+
+  Dog poop bag
+
+  Code 40UM2QWH
+
+  [https://amzn.to/3SKwHTP](https://l.facebook.com/l.php?u=https%3A%2F%2Famzn.to%2F3SKwHTP%3Ffbclid%3DIwAR1crZd1AzMPmfue9J7WoJuAyQbzMSIsP18Y08etzYFJDGIYN1w5Y18NVfM&h=AT13abyaipX1_PE9FwO8BzuLtslx4kFyYcyRVbv5XbQTP8Dmgv7S4IVSD2v-9uJnanUYXasjNPjnacONrx_sqSi56zy6P_64Gdcjsbj6QLycMAnRIXX6CBV0bPiNN-AavPjjWRFkObpPVuLYrHaf&__tn__=R]-R&c[0]=AT1H3VpxqtyEj_YRAbxBSdjDYOkeJlksNRYgs3nm2woiIS0g_LDAmNsC41kGTktGWrzZSiWfJ9dYMLRdUNEg_qhaP8K6GkfZ5Z1uXgw739ET_xBJ0ciNPIkrJfSttaiaWk7H1eei5krPKPbEVbO2VSndEyxtZsXKtg5zMRHUJyomn51-7c6hibG3jrVRU3gI-LYysXZtcY83)
+
+  Ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   80% Satin Pajama Set
 
   [https://geni.us/FGZS](https://geni.us/FGZS?fbclid=IwAR2p2a86R18jhKuAaKTDB_2UApMW26DI84IkEqv4z7FtiX-7Ku-DFl6yu8U) ad
