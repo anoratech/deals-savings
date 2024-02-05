@@ -34,6 +34,13 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  2-Bohemian Decorative Tray Clip the 10% coupon on the page and use the code 50MLWDOF at checkout
+
+  ad [https://geni.us/IDSxhpi](https://geni.us/IDSxhpi?fbclid=IwAR0II5rIMT9iC6ZpQMkG0c_iuiKYf9K97LWn_OyE0Isyj0FdNJBm4duwenk)
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   girls dress [https://geni.us/db50Se0](https://l.facebook.com/l.php?u=https%3A%2F%2Fgeni.us%2Fdb50Se0%3Ffbclid%3DIwAR1VuDR_ujaRcNKilOni03NfE7BHQXeBIqFL3qM7ovWM2z2YaRdAOaR6qOk&h=AT2tgXbfMstjJDCTEcy14wVR50ShTjVzQ5LzOg4RgLHvzDI9sOaDEJ2mwE9aSUbZtjgOKPQhe0ylN9nDgid-qlt425rYOS_eB1Ok-8OBRPV2gfP8hZYNgbmBIeTvSkVxcOAO4usbvdSAa6HpnyRu&__tn__=R]-R&c[0]=AT0Eu7dMyCcchqmHA_jU3PQV7KIHTKnnLI6caYFQ1wIPev227DYStjId1mOe5AfrZYtyYFhOthbZvvcb8kstkCnTrvUozykQzPufsYLMrACbf1pc14v3OZOxaDz6UA77ZsdquwSH34SCGppix1OZF23mLSsnqcYyvBgF6bYsOwdrX_hiNKe-6rIAhgi1BiLEEClnIQ) ad clip coupon on page plus code VBNBGEKR at checkout!
 
   <!--EndFragment-->
