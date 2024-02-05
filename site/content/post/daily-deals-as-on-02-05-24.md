@@ -316,6 +316,27 @@ ad
   ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/71yxtYQe4dL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Price drop
+
+  Grab & go
+
+  Valentines Day Cards for Kids, 12 Cards with Envelopes (Unicorns, Bears, Llamas)
+
+  [https://amzn.to/3SLaODN](https://amzn.to/3SLaODN?fbclid=IwAR3FoSFnX2MIq2_p2aBHCXAk85irizjqrln9hD-CpjuoByIR_FbyXLyouW0)
+
+  Ad
+* <!--StartFragment-->
+
+  All Weather Mesh Step in Vest Harness for Small and Medium Dogs and Cats
+
+  Price drop Grab & go
+
+  [https://amzn.to/42v3S12](https://amzn.to/42v3S12?fbclid=IwAR0Nk-J6IKx8XC53RhFvUDqjGDVqqE-hSs68yHZTh3jLn_erqD-nMJ1_Gn0)
+
+  Ad
+*
 
 
 
@@ -331,27 +352,9 @@ ad
 
 
 
-<!--StartFragment-->
 
-Price drop
 
-Grab & go
 
-Valentines Day Cards for Kids, 12 Cards with Envelopes (Unicorns, Bears, Llamas)
-
-[https://amzn.to/3SLaODN](https://amzn.to/3SLaODN?fbclid=IwAR3FoSFnX2MIq2_p2aBHCXAk85irizjqrln9hD-CpjuoByIR_FbyXLyouW0)
-
-Ad
-
-<!--StartFragment-->
-
-All Weather Mesh Step in Vest Harness for Small and Medium Dogs and Cats
-
-Price drop Grab & go
-
-[https://amzn.to/42v3S12](https://amzn.to/42v3S12?fbclid=IwAR0Nk-J6IKx8XC53RhFvUDqjGDVqqE-hSs68yHZTh3jLn_erqD-nMJ1_Gn0)
-
-Ad
 
 <!--StartFragment-->
 
