@@ -43,6 +43,19 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  50% off
+
+  code: HNRIR96E
+
+  100ft Outdoor String Lights
+
+  [https://amzn.to/3Us3der](https://amzn.to/3Us3der?fbclid=IwAR32-NWdLOD5D1lVxmwflbDYEpUrxBk5GtrlV6z02IogmmI7AzSNGs31MnI)
+
+  Ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   30% off
 
   Stainless Steel Crinkle Cut Tool
