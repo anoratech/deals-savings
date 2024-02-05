@@ -79,7 +79,7 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
-  40% off at checkout + clip coupon ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)
+  40% off at checkout + clip coupon 
 
   Vintage Adjustable Pendant Lighting
 
@@ -119,7 +119,7 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
-  clip coupon ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)
+  clip coupon 
 
   [https://geni.us/f9kpei](https://geni.us/f9kpei?fbclid=IwAR1dWJCFLW6KrmOm8uPE8INLIPjDIMXholMVtQ1Yjfau7vVl-BvZ5SGou1M)
 
