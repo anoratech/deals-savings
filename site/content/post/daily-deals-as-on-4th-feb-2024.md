@@ -14,6 +14,17 @@ description: >-
   pack of 24 [https://geni.us/qBRIV2W](https://geni.us/qBRIV2W?fbclid=IwAR04sf_4AxkCb_ZQQq2mxJ26c-Q4HioyQueqahiEdLEvdovV7i92m0x4Auc) ad
 * <!--StartFragment-->
 
+  40% off at checkout + clip coupon ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)
+
+  Vintage Adjustable Pendant Lighting
+
+  [https://geni.us/zdYu8C1](https://geni.us/zdYu8C1?fbclid=IwAR2I4GvifZN4bG3IMSflm0TrZaCy-XWhlkpZBLWm1wPdGVegDJWPYNXwbzw)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   4-Crest Kids Cavity Protection Toothpaste
 
   n0 c0de
