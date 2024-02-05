@@ -524,4 +524,10 @@ ad  <!--StartFragment-->
 
 <!--EndFragment-->
 
-*
+* Crossbody Bags for Women 
+  https://geni.us/Fexntt 
+  ad <!--StartFragment-->
+
+  ![U+U Crossbody Bags for Women, Handbags Cell Phone Wallet Small Purse with Credit Card Slots and Removebale Chain](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/61O9ZI0+qpL._AC_SX500_.jpg)
+
+  <!--EndFragment-->
