@@ -151,22 +151,24 @@ a﻿d
   a﻿d 
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Personalized Name Strand Bracelet
+
+  Grab & go
+
+  [https://amzn.to/3SuJg46](https://l.facebook.com/l.php?u=https%3A%2F%2Famzn.to%2F3SuJg46%3Ffbclid%3DIwAR3VxWQU87KcXEcp6AcxPvpDm5bSJgK_4Zi1DsDkuJHfxKAMNssSFiIWOv8&h=AT2o1XW5Y9GK0WyQG9b3kaRGxzo1sxZdJ1078-oJOdM9TmoZ6pZtLDmojSiKzBzeOetqiMcA1_9XJfzasWy8Yfr5ryqRhpVHc2IWjKRb9eWRRBy_m2htweqt7m1oSW4OxxJo&__tn__=R]-R&c[0]=AT0jAk7nDkmQtKzGZrJbQpUIs6cekMMS7uqnaMEMkO0OdMFNawQQ4_IoFHPlllg4dOCuvfmTej7lRf_dc5Ejqmx8it8_PoN8qtzzY3qda2bGsepVfvFu2uIS1Q-Xf0od6_M90N_1e2lF8YxJAxt6qv4seHj5vyw5zAsCsZ8eYILI3xrBW-4VanyaXsAmln8fmf55IA)
+
+  Ad
+
+  <!--EndFragment-->
+*
 
 
 
 
 
-<!--StartFragment-->
 
-Personalized Name Strand Bracelet
-
-Grab & go
-
-[https://amzn.to/3SuJg46](https://l.facebook.com/l.php?u=https%3A%2F%2Famzn.to%2F3SuJg46%3Ffbclid%3DIwAR3VxWQU87KcXEcp6AcxPvpDm5bSJgK_4Zi1DsDkuJHfxKAMNssSFiIWOv8&h=AT2o1XW5Y9GK0WyQG9b3kaRGxzo1sxZdJ1078-oJOdM9TmoZ6pZtLDmojSiKzBzeOetqiMcA1_9XJfzasWy8Yfr5ryqRhpVHc2IWjKRb9eWRRBy_m2htweqt7m1oSW4OxxJo&__tn__=R]-R&c[0]=AT0jAk7nDkmQtKzGZrJbQpUIs6cekMMS7uqnaMEMkO0OdMFNawQQ4_IoFHPlllg4dOCuvfmTej7lRf_dc5Ejqmx8it8_PoN8qtzzY3qda2bGsepVfvFu2uIS1Q-Xf0od6_M90N_1e2lF8YxJAxt6qv4seHj5vyw5zAsCsZ8eYILI3xrBW-4VanyaXsAmln8fmf55IA)
-
-Ad
-
-<!--EndFragment-->
 
 <!--StartFragment-->
 
