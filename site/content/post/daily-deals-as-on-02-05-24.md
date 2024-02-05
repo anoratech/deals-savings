@@ -440,4 +440,19 @@ Apple AirPods (2nd Generation) Wireless Ear Buds price drop [https://geni.us/I3
 
   ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/812mbkSYHhL._AC_SL1500_.jpg)
 
-  <!--EndFragment-->
+  <!--EndFragment--><!--StartFragment-->
+*
+
+Claw clips
+
+50% OFF AT CHECKOUT
+
+[https://geni.us/ZNpX](https://geni.us/ZNpX?fbclid=IwAR1SAZ5OoKCpWULLSOZ5BOLM9zOfyuqwAueZkir20-XFy-FXmiAGXhgoHSM)
+
+AD
+
+<!--EndFragment-->
+
+
+
+*
