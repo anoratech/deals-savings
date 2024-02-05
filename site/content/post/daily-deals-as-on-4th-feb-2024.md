@@ -500,3 +500,14 @@ description: >-
   Ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Tostitos Crispy Rounds & Medium Salsa, (Pack of 16)
+
+  Price drop
+
+  [https://amzn.to/3StJfO4](https://amzn.to/3StJfO4?fbclid=IwAR0HpDYFvgdiAR61EHULJSBsvnnynDDZByrTubjmCQLzHgpCWNpmM6DsJSg)
+
+  Ad
+
+  <!--EndFragment-->
