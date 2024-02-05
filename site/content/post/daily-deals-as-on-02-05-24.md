@@ -276,7 +276,24 @@ ad
   ad
 
   <!--EndFragment-->
-*
+* <!--StartFragment-->
+
+  kids camera
+
+  50% off at checkout
+
+  [https://geni.us/C2lNVG](https://geni.us/C2lNVG?fbclid=IwAR1DMf2yxOZ3_uev2CkYcDJHdfdv2fKESBH5DVG4Tmsv4uzHMxxCtDqjSGM)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
+  32-Count Valentines Day Cards for Kids School
+
+  [https://amzn.to/3OxJRkB](https://amzn.to/3OxJRkB?fbclid=IwAR0W6wI5-DdpdvfNcy6kIpm5HZX8NW2c8O67_s4_9qCg9tnL14ycxML0E5o)
+
+  Ad
 
 
 
@@ -288,13 +305,7 @@ ad
 
 
 
-<!--StartFragment-->
 
-32-Count Valentines Day Cards for Kids School
-
-[https://amzn.to/3OxJRkB](https://amzn.to/3OxJRkB?fbclid=IwAR0W6wI5-DdpdvfNcy6kIpm5HZX8NW2c8O67_s4_9qCg9tnL14ycxML0E5o)
-
-Ad
 
 <!--StartFragment-->
 
