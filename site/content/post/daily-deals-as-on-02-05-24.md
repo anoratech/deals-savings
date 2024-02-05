@@ -54,6 +54,28 @@ Ad
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  Bath Bombs
+
+  5.xx
+
+  [https://geni.us/HhSs](https://geni.us/HhSs?fbclid=IwAR0kld_y0HC76lMrza1UcY_cMJA-ReVN1C4n0QgRY3ADCHHCnq8ziIhBNuY)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
+  ![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)under 40
+
+  HP DeskJet 2755e Wireless Color inkjet-printer
+
+  [https://geni.us/FFVA8EG](https://geni.us/FFVA8EG?fbclid=IwAR3OZpZd_pauDO_-l2rMHKDqvTKfGT_h7hq-DEdxwz4_BO4qmirJSVFbX5g)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   6-Bar Soap, with Rose Essence
 
   5.xx [https://geni.us/9oezi](https://l.facebook.com/l.php?u=https%3A%2F%2Fgeni.us%2F9oezi%3Ffbclid%3DIwAR0uuPUpupHJfDSJi4V78_LBRDoY9k5JrWGiWPwwDqGW1FBh7Ig11-mzG5Y&h=AT3eOnTsqYIia5RJCu_MxeL55EyIrEcSvQt6YSmhchcnlxDCPY0QuoH42SdVpNvfBLjE7zkqf1TCK0WzdU3Y-HYfcEfT_b7YFE3-buu5yIFJNNxrCK1KNijmD27yOsxHP15y9ww4m7710XgXSGG-&__tn__=R]-R&c[0]=AT0eSlnz2eu8cMO1qEqZB6Xc8_ew3z4ctUexlR-9yYKoDhPPGST50CQlHOP6Et_Owxw6hqofxXObwG1v6EOpyUwmfsYE-tVHosy--dMGzArF9e16goK8AvrkhmB7ZJK0vGQ2VSPYw_FJbddYceXSrN-FnJJSioAxKpFSAq6uPTBEhAN9wjEWBIefHNSyoMXRgwkzCw) ad
