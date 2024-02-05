@@ -43,6 +43,21 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  [https://geni.us/1kQkTj](https://geni.us/1kQkTj?fbclid=IwAR332yWVn3Pa6gr0tYBmoASNZBK7WbrkjqiAZurDKOBwVW474-TSbl31TYI)
+
+  ![💥](https://static.xx.fbcdn.net/images/emoji.php/v9/t40/1/16/1f4a5.png) 6 pack iPhone charger ![💥](https://static.xx.fbcdn.net/images/emoji.php/v9/t40/1/16/1f4a5.png)
+
+  Grab & go
+
+  80% (50%code+30%coupon)
+
+  code: 50XNWGO6
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   28 Pack Stationery Set
 
   Grab & go
