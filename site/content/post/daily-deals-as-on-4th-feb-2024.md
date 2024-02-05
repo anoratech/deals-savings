@@ -12,6 +12,17 @@ description: >-
 * S﻿NACKS <!--StartFragment-->
 
   pack of 24 [https://geni.us/qBRIV2W](https://geni.us/qBRIV2W?fbclid=IwAR04sf_4AxkCb_ZQQq2mxJ26c-Q4HioyQueqahiEdLEvdovV7i92m0x4Auc) ad
+* <!--StartFragment-->
+
+  47% off
+
+  Hudson Baby Unisex Baby Cotton
+
+  [https://amzn.to/482BCDS](https://amzn.to/482BCDS?fbclid=IwAR2lFyhDYZsFaTg7q5Mur_7MLBvo2_zZf9zAK42L97y1c1Zg1Ip01BLIh10)
+
+  Ad
+
+  <!--EndFragment-->
 * L﻿ysol all purpose cleaner <!--StartFragment-->
 
   2- all purpose cleaners
