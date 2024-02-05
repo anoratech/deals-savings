@@ -139,6 +139,19 @@ ad
   ad
 * <!--StartFragment-->
 
+  Character hoppers 12.99 , get an extra 15% off $30 with code HEART15 or extra 20% off $50 with code HEART20
+
+  https://mavely.app.link/e/niYzCQsYWGb
+
+  ad
+
+  <!--EndFragment--> <!--StartFragment-->
+
+  ![Hedstrom Hopper with Pump, Paw Patrol](https://pics.walgreens.com/prodimg/657663/450.jpg)
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   BEST BUY DEALS OF THE DAY https://mavely.app.link/e/fSVkvGSXWGb AD
 
   <!--EndFragment-->
