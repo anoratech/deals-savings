@@ -214,6 +214,23 @@ ad
 
 <!--EndFragment-->
 
+* <!--StartFragment-->
+
+  50 oz Tumbler With Handle and Straw
+
+  50% off at checkout
+
+  16.xx
+
+  [https://geni.us/NTso](https://geni.us/NTso?fbclid=IwAR3OZpZd_pauDO_-l2rMHKDqvTKfGT_h7hq-DEdxwz4_BO4qmirJSVFbX5g)
+
+  ad
+
+  <!--EndFragment--> <!--StartFragment-->
+
+  ![No photo description available.](https://scontent-atl3-1.xx.fbcdn.net/v/t39.30808-6/425880460_879965357467497_1232227721258644972_n.jpg?stp=cp6_dst-jpg_p75x225&_nc_cat=108&ccb=1-7&_nc_sid=524774&_nc_ohc=K7P-rGGd4GYAX8_c53Z&_nc_ht=scontent-atl3-1.xx&oh=00_AfBF0o2mWKK3pdir5CGHcY9OejprDAvZ1HMDmi13q16myg&oe=65C6762D)
+
+  <!--EndFragment-->
 *
 
 
