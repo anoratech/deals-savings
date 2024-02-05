@@ -9,6 +9,7 @@ description: In the hustle and bustle of everyday life, our skin often bears the
   harnessing the power of nature right in our own kitchens. Dive into the world
   of homemade face packs, where simplicity meets efficacy for radiant and
   glowing skin.
+image: img/whatsapp-image-2024-02-05-at-00.00.25_ad6de925.jpg
 ---
 <!--StartFragment-->
 
