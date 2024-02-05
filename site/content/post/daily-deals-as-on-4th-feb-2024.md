@@ -526,6 +526,19 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  40% off
+
+  Dog poop bag
+
+  Code 40UM2QWH
+
+  [https://amzn.to/3SKwHTP](https://amzn.to/3SKwHTP?fbclid=IwAR1bfQHXYKQOS9QdsjQQVyk6abw52YUVuCChrIoz8fd2fwZQdB75zeaqAyY)
+
+  Ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   clip coupon ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)
 
   [https://geni.us/f9kpei](https://geni.us/f9kpei?fbclid=IwAR1UmnoXIV-EQ9zQUAqFGaVtiPwmRAx6Z9re24wquLsN8NtilFJsQ8-jFg0)
