@@ -14,6 +14,13 @@ description: >-
   pack of 24 [https://geni.us/qBRIV2W](https://geni.us/qBRIV2W?fbclid=IwAR04sf_4AxkCb_ZQQq2mxJ26c-Q4HioyQueqahiEdLEvdovV7i92m0x4Auc) ad
 * <!--StartFragment-->
 
+  Womens Joggers with Pockets 50% off when you use 2PXWJPIE at checkout!
+
+  [https://geni.us/bOn8x](https://geni.us/bOn8x?fbclid=IwAR2Mk0uczzH4GbU-XPrFxKnKN7UlRCZbnDmv9mSEmkfG1cMtOaaW4pXwZBQ) ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   16 Pcs Coffee Stencils for Latte Art
 
   4.xx
