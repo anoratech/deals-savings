@@ -21,9 +21,9 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
-  ![💥](https://static.xx.fbcdn.net/images/emoji.php/v9/t40/1/16/1f4a5.png) 50% off
+   50% off
 
-  ![❌](https://static.xx.fbcdn.net/images/emoji.php/v9/tdd/1/16/274c.png)![🔞](https://static.xx.fbcdn.net/images/emoji.php/v9/te1/1/16/1f51e.png)ADULT ITEM ![🔞](https://static.xx.fbcdn.net/images/emoji.php/v9/te1/1/16/1f51e.png)![❌](https://static.xx.fbcdn.net/images/emoji.php/v9/tdd/1/16/274c.png)
+  ADULT ITEM 
 
   Code : HOZADY022
 
@@ -251,7 +251,7 @@ description: >-
 
   [https://geni.us/1kQkTj](https://geni.us/1kQkTj?fbclid=IwAR332yWVn3Pa6gr0tYBmoASNZBK7WbrkjqiAZurDKOBwVW474-TSbl31TYI)
 
-  ![💥](https://static.xx.fbcdn.net/images/emoji.php/v9/t40/1/16/1f4a5.png) 6 pack iPhone charger ![💥](https://static.xx.fbcdn.net/images/emoji.php/v9/t40/1/16/1f4a5.png)
+  6 pack iPhone charger 
 
   Grab & go
 
