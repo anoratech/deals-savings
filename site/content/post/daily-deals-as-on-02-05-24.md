@@ -488,3 +488,8 @@ The Children's Place Baby Girls' and Toddler Tie Front Denim Pull On Shorts
 43% off Price drop 
 https://geni.us/9JYcF 
 ad
+
+* Buy 2, save 50% on 1 
+  (Book deals ) 
+  https://geni.us/Ci2OYB ad
+*
