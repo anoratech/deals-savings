@@ -122,3 +122,12 @@ description: >-
   69.xx ad [https://geni.us/czzW](https://geni.us/czzW?fbclid=IwAR0x7ECE6HtgYSPFIzxN5OUU8xn_qHLvOBEndsINkdXOFaAw5v-6f3Z5ll0)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  80% Satin Pajama Set
+
+  [https://geni.us/FGZS](https://geni.us/FGZS?fbclid=IwAR2p2a86R18jhKuAaKTDB_2UApMW26DI84IkEqv4z7FtiX-7Ku-DFl6yu8U) ad
+
+  5MVQVNBW & extra savings at checkout!
+
+  <!--EndFragment-->
