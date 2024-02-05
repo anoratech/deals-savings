@@ -508,4 +508,7 @@ ad
 Women's Bodysuit deals 
 https://geni.us/IJ2xc ad
 
-*
+* 8 pack of hair claw clips 
+   40% off at checkout! 
+  https://geni.us/azsq1N 
+  ad
