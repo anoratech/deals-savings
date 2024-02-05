@@ -526,6 +526,15 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  clip coupon ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)
+
+  [https://geni.us/f9kpei](https://geni.us/f9kpei?fbclid=IwAR1UmnoXIV-EQ9zQUAqFGaVtiPwmRAx6Z9re24wquLsN8NtilFJsQ8-jFg0)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   Goldfish Cheddar Crackers, 27.3 oz carton, 2 CT box
 
   n0 c0de
