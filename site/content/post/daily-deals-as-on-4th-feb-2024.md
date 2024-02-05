@@ -84,6 +84,15 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  Solar robot kit Clip the 30% coupon on the page and use the code 35OGMORU at checkout!
+
+  [https://geni.us/GYmUcp](https://geni.us/GYmUcp?fbclid=IwAR1FwwdmOzm0NnLHTBf9gBbkHa7_qyRIZ4-cI875kUvsHV9T4nj6EEXXtWo)
+
+  AD
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   Deal !
 
   Humidifiers for Bedroom Large Room
