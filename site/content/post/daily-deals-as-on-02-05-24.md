@@ -423,3 +423,21 @@ Apple AirPods (2nd Generation) Wireless Ear Buds price drop [https://geni.us/I3
 ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/417OJaY3DAL._AC_SL1000_.jpg)
 
 <!--EndFragment-->
+
+
+
+* <!--StartFragment-->
+
+  40 treats -PEDIGREE DENTASTIX Large Dog Dental Treats Beef Flavor Dental Bones
+
+  ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png) clip coupon + extra savings at s&s
+
+  [https://geni.us/vXFbL](https://geni.us/vXFbL?fbclid=IwAR2XpRTFpr-xMjxQiW7VX79NH18JBvM8Rq_at2pBPKy2vDtlFW4PZ9FB2uE)
+
+  ad
+
+  <!--EndFragment--> <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/812mbkSYHhL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
