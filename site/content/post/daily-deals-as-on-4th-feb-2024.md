@@ -455,6 +455,19 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  Women's Sequin Dress
+
+  other colors available
+
+  45% off after c0de 6K63S67A
+
+  [https://geni.us/DO3MAcx](https://geni.us/DO3MAcx?fbclid=IwAR1be6QFxq0UoPsE5BitZ5TBSkbnFQ2G9Rq_ZGx8ir-4mtlj446A5DPGGCs)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   PRICE DROP
 
   Live Indoor House Plant with Red Flowers
