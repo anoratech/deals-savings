@@ -94,8 +94,6 @@ Ad
   <!--EndFragment-->
 *
 
-
-
 <!--StartFragment-->
 
 Frito-Lay Doritos & Cheetos Mix Variety Pack, (Pack of 40)
@@ -108,17 +106,18 @@ Ad
 
 <!--EndFragment--> 
 
-<!--StartFragment-->
+* <!--StartFragment-->
 
-Doritos Flavored Tortilla Chips, Variety Pack, (Pack of 40)
+  Doritos Flavored Tortilla Chips, Variety Pack, (Pack of 40)
 
-Price drop
+  Price drop
 
-[https://amzn.to/3Usmwoc](https://amzn.to/3Usmwoc?fbclid=IwAR0NFzDP18tBkPJZECBWSAojqbySEzU7AQYHX6I1194VmfNU1wlKrlOQPvo)
+  [https://amzn.to/3Usmwoc](https://amzn.to/3Usmwoc?fbclid=IwAR0NFzDP18tBkPJZECBWSAojqbySEzU7AQYHX6I1194VmfNU1wlKrlOQPvo)
 
-Ad
+  Ad
 
-<!--EndFragment--> 
+  <!--EndFragment--> 
+*
 
 <!--StartFragment-->
 
@@ -132,27 +131,30 @@ a﻿d
 
 <!--EndFragment--> 
 
-<!--StartFragment-->
+* <!--StartFragment-->
 
-Snail Mucin 92% Moisturizer 3.52oz/ 100g, Daily Repair Face Gel Cream  
+  Snail Mucin 92% Moisturizer 3.52oz/ 100g, Daily Repair Face Gel Cream  
 
-https://amzn.to/3SotJ65 
+  https://amzn.to/3SotJ65 
 
-a﻿d 
+  a﻿d 
 
-<!--EndFragment--> 
+  <!--EndFragment--> 
+* <!--StartFragment-->
 
-<!--StartFragment-->
+  Spa Basket for Women 
 
-Spa Basket for Women 
+  P﻿rice Drop + 40% clip coupon 
 
-P﻿rice Drop + 40% clip coupon 
+  https://amzn.to/3OvGk65 
 
-https://amzn.to/3OvGk65 
+  a﻿d 
 
-a﻿d 
+  <!--EndFragment-->
 
-<!--EndFragment-->
+
+
+
 
 <!--StartFragment-->
 
