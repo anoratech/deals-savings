@@ -413,3 +413,13 @@ Limited-time offer
 
   <!--EndFragment-->
 *
+
+<!--StartFragment-->
+
+Apple AirPods (2nd Generation) Wireless Ear Buds price drop [https://geni.us/I3E4fCB](https://geni.us/I3E4fCB?fbclid=IwAR39D_gslRQ5tFTagkvAFcfbv7hSyHYZgJf6jUgY_60wLb491IX3JRX6W4Y) ad
+
+<!--EndFragment--> <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/417OJaY3DAL._AC_SL1000_.jpg)
+
+<!--EndFragment-->
