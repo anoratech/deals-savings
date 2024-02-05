@@ -14,6 +14,13 @@ description: >-
   pack of 24 [https://geni.us/qBRIV2W](https://geni.us/qBRIV2W?fbclid=IwAR04sf_4AxkCb_ZQQq2mxJ26c-Q4HioyQueqahiEdLEvdovV7i92m0x4Auc) ad
 * <!--StartFragment-->
 
+  2-Pack Eyelash Separator Comb with adjustable brush
+
+  7.xx [https://geni.us/5pnW4ZQ](https://l.facebook.com/l.php?u=https%3A%2F%2Fgeni.us%2F5pnW4ZQ%3Ffbclid%3DIwAR0osEuQos69_k2_1wdGNH43nNPRHYqfDU87VEothwG6Pp2MWPYfJHd0HOA&h=AT17sD6MrSshxm-6Z3LycF-pbJVv8gnf5Aaib-ZzVItm9mzCpBc4-R4-MOJ9-siZqzf6-peXdKiGLKfrsUDmnsH_A0L7-te_SY5rN2JtRJ85rFpFQcCdFZsv8IkbvBxpR4abQ8qalftZZOit8In5&__tn__=R]-R&c[0]=AT1H3VpxqtyEj_YRAbxBSdjDYOkeJlksNRYgs3nm2woiIS0g_LDAmNsC41kGTktGWrzZSiWfJ9dYMLRdUNEg_qhaP8K6GkfZ5Z1uXgw739ET_xBJ0ciNPIkrJfSttaiaWk7H1eei5krPKPbEVbO2VSndEyxtZsXKtg5zMRHUJyomn51-7c6hibG3jrVRU3gI-LYysXZtcY83) ad use YSER6RID1
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   Save on DEWALT Tools and Accessories ad [https://geni.us/ySDv8](https://geni.us/ySDv8?fbclid=IwAR0W7KQGZlXYgqzarbTLGv_ORbgaZ08EPo3EKM8_dTOs5cyX4S5q7AUA1m8)
 
   <!--EndFragment-->
