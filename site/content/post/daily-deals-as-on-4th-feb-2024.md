@@ -469,3 +469,12 @@ description: >-
   9.xx [https://geni.us/hOn7lY3](https://geni.us/hOn7lY3?fbclid=IwAR2I4GvifZN4bG3IMSflm0TrZaCy-XWhlkpZBLWm1wPdGVegDJWPYNXwbzw) ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  63% price drop
+
+  [https://geni.us/9BqBi01](https://geni.us/9BqBi01?fbclid=IwAR0qbxjLagGGPVxLpLWLfuOkq8u3RZn69u2csAJ8qcG_xuG8BeODgdIhapw)
+
+  ad
+
+  <!--EndFragment-->
