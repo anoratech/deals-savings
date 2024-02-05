@@ -14,6 +14,19 @@ description: >-
   pack of 24 [https://geni.us/qBRIV2W](https://geni.us/qBRIV2W?fbclid=IwAR04sf_4AxkCb_ZQQq2mxJ26c-Q4HioyQueqahiEdLEvdovV7i92m0x4Auc) ad
 * <!--StartFragment-->
 
+  ![💥](https://static.xx.fbcdn.net/images/emoji.php/v9/t40/1/16/1f4a5.png) 50% off
+
+  ![❌](https://static.xx.fbcdn.net/images/emoji.php/v9/tdd/1/16/274c.png)![🔞](https://static.xx.fbcdn.net/images/emoji.php/v9/te1/1/16/1f51e.png)ADULT ITEM ![🔞](https://static.xx.fbcdn.net/images/emoji.php/v9/te1/1/16/1f51e.png)![❌](https://static.xx.fbcdn.net/images/emoji.php/v9/tdd/1/16/274c.png)
+
+  Code : HOZADY022
+
+  [https://geni.us/bmdGM](https://geni.us/bmdGM?fbclid=IwAR0QY_nOX_AgwO20GsGYsdcQjN-NRId5LOHI7bqYcB5H4w-gKVRgl29eiSE)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   girls dress [https://geni.us/db50Se0](https://l.facebook.com/l.php?u=https%3A%2F%2Fgeni.us%2Fdb50Se0%3Ffbclid%3DIwAR1VuDR_ujaRcNKilOni03NfE7BHQXeBIqFL3qM7ovWM2z2YaRdAOaR6qOk&h=AT2tgXbfMstjJDCTEcy14wVR50ShTjVzQ5LzOg4RgLHvzDI9sOaDEJ2mwE9aSUbZtjgOKPQhe0ylN9nDgid-qlt425rYOS_eB1Ok-8OBRPV2gfP8hZYNgbmBIeTvSkVxcOAO4usbvdSAa6HpnyRu&__tn__=R]-R&c[0]=AT0Eu7dMyCcchqmHA_jU3PQV7KIHTKnnLI6caYFQ1wIPev227DYStjId1mOe5AfrZYtyYFhOthbZvvcb8kstkCnTrvUozykQzPufsYLMrACbf1pc14v3OZOxaDz6UA77ZsdquwSH34SCGppix1OZF23mLSsnqcYyvBgF6bYsOwdrX_hiNKe-6rIAhgi1BiLEEClnIQ) ad clip coupon on page plus code VBNBGEKR at checkout!
 
   <!--EndFragment-->
