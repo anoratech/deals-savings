@@ -92,6 +92,17 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  Projector
+
+  Price drop+ coupon
+
+  [https://amzn.to/485mfe3](https://amzn.to/485mfe3?fbclid=IwAR3q5ew8K0mJPomHWhAxHIOmDpa9Fr2eWLvHPZwbGa4QiPLL9D7q-EYSVAw)
+
+  Ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   Permanent Outdoor Lights, 50ft Smart RGB Outdoor Lights,
 
   50 off coupon
