@@ -3,7 +3,7 @@ title: Daily deals as on 02/05/24
 date: 2024-02-05T14:48:48.208Z
 tags: "Amazon "
 Category: other
-description: "Daily deals "
+description: Daily deals as on 5th Feb 2024
 ---
 3 Pack Leggings for Women
 
