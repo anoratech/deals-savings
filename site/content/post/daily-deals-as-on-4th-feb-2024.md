@@ -14,6 +14,13 @@ description: >-
   pack of 24 [https://geni.us/qBRIV2W](https://geni.us/qBRIV2W?fbclid=IwAR04sf_4AxkCb_ZQQq2mxJ26c-Q4HioyQueqahiEdLEvdovV7i92m0x4Auc) ad
 * <!--StartFragment-->
 
+  4-American Tourister Fieldbrook XLT Softside Upright Luggage
+
+  69.xx ad [https://geni.us/czzW](https://geni.us/czzW?fbclid=IwAR0rtwflLUfukNSCai8EalbR9kD6Y7ZUBnlE4jZo15KkpE7-pOdaCRgqPoc)
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   ![💥](https://static.xx.fbcdn.net/images/emoji.php/v9/t40/1/16/1f4a5.png) 50% off
 
   ![❌](https://static.xx.fbcdn.net/images/emoji.php/v9/tdd/1/16/274c.png)![🔞](https://static.xx.fbcdn.net/images/emoji.php/v9/te1/1/16/1f51e.png)ADULT ITEM ![🔞](https://static.xx.fbcdn.net/images/emoji.php/v9/te1/1/16/1f51e.png)![❌](https://static.xx.fbcdn.net/images/emoji.php/v9/tdd/1/16/274c.png)
