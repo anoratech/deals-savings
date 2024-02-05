@@ -14,6 +14,11 @@ description: >-
   pack of 24 [https://geni.us/qBRIV2W](https://geni.us/qBRIV2W?fbclid=IwAR04sf_4AxkCb_ZQQq2mxJ26c-Q4HioyQueqahiEdLEvdovV7i92m0x4Auc) ad
 * <!--StartFragment-->
 
+  girls dress [https://geni.us/db50Se0](https://l.facebook.com/l.php?u=https%3A%2F%2Fgeni.us%2Fdb50Se0%3Ffbclid%3DIwAR1VuDR_ujaRcNKilOni03NfE7BHQXeBIqFL3qM7ovWM2z2YaRdAOaR6qOk&h=AT2tgXbfMstjJDCTEcy14wVR50ShTjVzQ5LzOg4RgLHvzDI9sOaDEJ2mwE9aSUbZtjgOKPQhe0ylN9nDgid-qlt425rYOS_eB1Ok-8OBRPV2gfP8hZYNgbmBIeTvSkVxcOAO4usbvdSAa6HpnyRu&__tn__=R]-R&c[0]=AT0Eu7dMyCcchqmHA_jU3PQV7KIHTKnnLI6caYFQ1wIPev227DYStjId1mOe5AfrZYtyYFhOthbZvvcb8kstkCnTrvUozykQzPufsYLMrACbf1pc14v3OZOxaDz6UA77ZsdquwSH34SCGppix1OZF23mLSsnqcYyvBgF6bYsOwdrX_hiNKe-6rIAhgi1BiLEEClnIQ) ad clip coupon on page plus code VBNBGEKR at checkout!
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   50% off
 
   Price drop
