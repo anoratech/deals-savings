@@ -14,6 +14,19 @@ description: >-
   pack of 24 [https://geni.us/qBRIV2W](https://geni.us/qBRIV2W?fbclid=IwAR04sf_4AxkCb_ZQQq2mxJ26c-Q4HioyQueqahiEdLEvdovV7i92m0x4Auc) ad
 * <!--StartFragment-->
 
+  40% clip coupon
+
+  Grab & go
+
+  Bathroom Rugs
+
+  [https://amzn.to/3Urke8Q](https://amzn.to/3Urke8Q?fbclid=IwAR0QY_nOX_AgwO20GsGYsdcQjN-NRId5LOHI7bqYcB5H4w-gKVRgl29eiSE)
+
+  Ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   IPL Hair Removal
 
   30% clip coupon
