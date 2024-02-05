@@ -162,7 +162,15 @@ a﻿d
   Ad
 
   <!--EndFragment-->
-*
+* <!--StartFragment-->
+
+  PRICE DROP
+
+  [https://geni.us/NgwPzv](https://geni.us/NgwPzv?fbclid=IwAR2ReDkWa_12gv0m30jmhpgsn_bT_pQ-iz0ZgKljC-Yjq6UXH_MaffEeVDc)
+
+  AD
+
+  <!--EndFragment-->
 
 
 
