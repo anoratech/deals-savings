@@ -43,6 +43,13 @@ description: >-
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  Girls Fashion Skirts is 70% off [https://geni.us/ffsFce](https://l.facebook.com/l.php?u=https%3A%2F%2Fgeni.us%2FffsFce%3Ffbclid%3DIwAR0II5rIMT9iC6ZpQMkG0c_iuiKYf9K97LWn_OyE0Isyj0FdNJBm4duwenk&h=AT3P4MXyhbG9oPlUAhL-t4i4-F9COWumX81CRP4r3zfbta9ef20O0P6AhxH4O2XeLn_JyX8O2bCMp_59QhKQ4XMXskHe9p-Qs7v7Hhr_d4IVmCrkIsQDVe4sJOYVDGGCh5UY1lXyDTBjr82O0tej&__tn__=R]-R&c[0]=AT0Eu7dMyCcchqmHA_jU3PQV7KIHTKnnLI6caYFQ1wIPev227DYStjId1mOe5AfrZYtyYFhOthbZvvcb8kstkCnTrvUozykQzPufsYLMrACbf1pc14v3OZOxaDz6UA77ZsdquwSH34SCGppix1OZF23mLSsnqcYyvBgF6bYsOwdrX_hiNKe-6rIAhgi1BiLEEClnIQ)
+
+  ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   Price drop+ clip coupon
 
   28Packs Valentines Gifts with Stretchy Sticky Hands Toys,
