@@ -31,4 +31,16 @@ Grab & go
 
 Ad
 
+<!--EndFragment--> 
+
+<!--StartFragment-->
+
+72 Pcs Valentines Day Slap Bracelets
+
+Grab & go
+
+[https://amzn.to/3Ur7E9D](https://amzn.to/3Ur7E9D?fbclid=IwAR3R1jj-YfJKF3q1T9wGT0WaCz6nSxHtGZ01J6dNuwY0_lNm1maP48b7YfE)
+
+Ad
+
 <!--EndFragment-->
