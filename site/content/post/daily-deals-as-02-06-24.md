@@ -55,4 +55,16 @@ Luggage deal
 
 Ad
 
+<!--EndFragment--> 
+
+<!--StartFragment-->
+
+But 2 get 50% off on 1
+
+Board game deals
+
+[https://amzn.to/3wgwLla](https://amzn.to/3wgwLla?fbclid=IwAR2uKfVbkW9rKVBkqQwub6e3L2M7vLp3uklzVsWuYm2g0qvpqHdPnx64t5I)
+
+Ad
+
 <!--EndFragment-->
