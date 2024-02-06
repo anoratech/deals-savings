@@ -111,8 +111,6 @@ AD
 
 <!--StartFragment-->
 
-![🏃‍♀️](https://static.xx.fbcdn.net/images/emoji.php/v9/ta9/1/16/1f3c3_200d_2640.png)![🏃‍♂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tab/1/16/1f3c3_200d_2642.png)![🏃‍♀️](https://static.xx.fbcdn.net/images/emoji.php/v9/ta9/1/16/1f3c3_200d_2640.png)
-
 ![‼](https://static.xx.fbcdn.net/images/emoji.php/v9/t77/1/16/203c.png) SAVE EXTRA WHEN YOU BUY 4![‼](https://static.xx.fbcdn.net/images/emoji.php/v9/t77/1/16/203c.png)
 
 Simply Liquid Laundry Detergent,
