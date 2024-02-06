@@ -89,7 +89,7 @@ Ad
 
 Weflye 28 Pack Valentines Day gifts Cards with Invisible Ink Pen
 
-USE![➡️](https://static.xx.fbcdn.net/images/emoji.php/v9/t9e/1/16/27a1.png) 50JGFGBA
+USE 50JGFGBA
 
 [https://amzn.to/3SMY7s1](https://amzn.to/3SMY7s1?fbclid=IwAR2OTXsHQpWC-B37ZY9yRIJJnLD1cSNgYZfZ49hcH_FxiPfKmmg3nuZBWB4)
 
@@ -110,8 +110,6 @@ AD
 <!--EndFragment-->
 
 <!--StartFragment-->
-
-![]()
 
 Simply Liquid Laundry Detergent,
 
