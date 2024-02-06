@@ -168,6 +168,21 @@ ad
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  75% off Moissanite Wedding Band
+
+  Code: 75JK84KX ad
+
+  [https://geni.us/7ANrg](https://geni.us/7ANrg?fbclid=IwAR2pbHwmgXMaa1R9eECcNIyHg5ahvmJ6dVJXV_s3bN2CUCWsHMNIyVzQlJ4)
+
+  ad <!--StartFragment-->
+
+  ![SMILEST Valentines Day Gifts - Oval Moissanite Wedding Band for Women D Color VVS1 Clarity Lab Created Diamond Ring 18K White Yellow Rose Gold Plated S925 Sterling Silver Moissanite Eternity Band](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/61FlJeLT46L._AC_SY500_.jpg)
+
+  <!--EndFragment-->
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   75% OFF 4in Bamboo Mattress Topper from 31.xx 50% off Code: 50VK8NZ6 + 25% off coupon (works on all options) [https://geni.us/GljrWuz](https://geni.us/GljrWuz?fbclid=IwAR3tj38oANLhzwdjcx90e_HCSMJ8J_I10dC8zP46jyplpum4ozTARQEbH0g) ad
 
   <!--EndFragment--> <!--StartFragment-->
