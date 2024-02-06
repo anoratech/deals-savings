@@ -323,26 +323,20 @@ https://geni.us/IJ2xc ad
 
   AD
 
-  <!--EndFragment-->
+  <!--EndFragment--><!--StartFragment-->
 *
 
-<!---->
+50% OFF Braided Solo Loop Watch Band --2 Pack
 
-* <!--StartFragment-->
+4.XX
 
-  50% OFF Braided Solo Loop Watch Band --2 Pack
+DISCOUNT AUTO APPLIES AT CHECKOUT
 
-  4.XX
+https://geni.us/LIuEhb
 
-  DISCOUNT AUTO APPLIES AT CHECKOUT
+AD
 
-  https://geni.us/LIuEhb
-
-  AD
-
-  <!--EndFragment-->
-
-<!---->
+<!--EndFragment-->
 
 * <!--StartFragment-->
 
