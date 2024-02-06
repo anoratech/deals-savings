@@ -7,6 +7,16 @@ description: "Daily Deals "
 ---
 <!--StartFragment-->
 
+50% off Grab & go
+
+Crayon Bubble Wands for Kids Party Pack, 24 Pc Set,
+
+[https://amzn.to/485t8fk](https://amzn.to/485t8fk?fbclid=IwAR2dFvcFmdvmYOHgmbE65PhKosmp-MVnjvBDyzJ04zmr6W5JpdAjGsmmVRQ)
+
+Ad
+
+<!--EndFragment-->
+
 50% off
 
 Grab & go
