@@ -80,3 +80,31 @@ Price drop + SS clip coupon
 Ad
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+![🏃‍♀️](https://static.xx.fbcdn.net/images/emoji.php/v9/ta9/1/16/1f3c3_200d_2640.png)𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎![🏃](https://static.xx.fbcdn.net/images/emoji.php/v9/t3b/1/16/1f3c3.png)
+
+![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)50% OFF![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)![🔥](https://static.xx.fbcdn.net/images/emoji.php/v9/t50/1/16/1f525.png)
+
+![✏️](https://static.xx.fbcdn.net/images/emoji.php/v9/te4/1/16/270f.png)Weflye 28 Pack Valentines Day gifts Cards with Invisible Ink Pen,![✏️](https://static.xx.fbcdn.net/images/emoji.php/v9/te4/1/16/270f.png)
+
+USE![➡️](https://static.xx.fbcdn.net/images/emoji.php/v9/t9e/1/16/27a1.png) 50JGFGBA
+
+[https://amzn.to/3SMY7s1](https://amzn.to/3SMY7s1?fbclid=IwAR2OTXsHQpWC-B37ZY9yRIJJnLD1cSNgYZfZ49hcH_FxiPfKmmg3nuZBWB4)
+
+AD
+
+<!--EndFragment-->
+
+<!--StartFragment-->
+
+![💜](https://static.xx.fbcdn.net/images/emoji.php/v9/t96/1/16/1f49c.png)![💜](https://static.xx.fbcdn.net/images/emoji.php/v9/t96/1/16/1f49c.png) Spa Luxetique Gift Baskets for Women,![💜](https://static.xx.fbcdn.net/images/emoji.php/v9/t96/1/16/1f49c.png)![💜](https://static.xx.fbcdn.net/images/emoji.php/v9/t96/1/16/1f49c.png)
+
+![⬇️](https://static.xx.fbcdn.net/images/emoji.php/v9/t20/1/16/2b07.png)![🅿](https://static.xx.fbcdn.net/images/emoji.php/v9/t18/1/16/1f17f.png)🆁🅸🅲🅴 🅳🆁![🅾](https://static.xx.fbcdn.net/images/emoji.php/v9/t97/1/16/1f17e.png)![🅿](https://static.xx.fbcdn.net/images/emoji.php/v9/t18/1/16/1f17f.png)![⬇️](https://static.xx.fbcdn.net/images/emoji.php/v9/t20/1/16/2b07.png)
+
+[https://amzn.to/3OAB417](https://amzn.to/3OAB417?fbclid=IwAR3qV2trF4B0mMvavDNm5o3qJnIKdcbcKlQbKaB0byDfOsbixF7bWU5BjsM)
+
+AD
+
+<!--EndFragment-->
