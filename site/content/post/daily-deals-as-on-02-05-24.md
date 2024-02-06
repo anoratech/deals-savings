@@ -5,7 +5,7 @@ tags: "Amazon "
 Category: other
 description: Daily deals as on 5th Feb 2024
 ---
-* 3 Pack Leggings for Women
+3 Pack Leggings for Women
 
 Price drop
 
@@ -58,21 +58,21 @@ a﻿d
   <!--EndFragment--> 
 *
 *
-*
 
 <!---->
 
 * <!--StartFragment-->
 
-  Valentines Day Gifts for Kids-30PCS Launching Mini Ball--30 Pcs 50% off Code: 50IEHD5O
+Valentines Day Gifts  for Kids-30PCS Launching Mini Ball--30 Pcs 50% off Code: 50IEHD5O
 
-  ad [https://geni.us/vkYii](https://geni.us/vkYii?fbclid=IwAR0My1cGQ0H8Yy52s39p2XannbgDp-ku6UZt6dU0JG-VtQz4riWb0RANCPQ)
+ad [https://geni.us/vkYii](https://geni.us/vkYii?fbclid=IwAR0My1cGQ0H8Yy52s39p2XannbgDp-ku6UZt6dU0JG-VtQz4riWb0RANCPQ)
 
-  <!--EndFragment--> <!--StartFragment-->
+<!--EndFragment--> <!--StartFragment-->
 
-  ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/51+1USU9QKL._SR400,400_.jpg)
+![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/51+1USU9QKL._SR400,400_.jpg)
 
-  <!--EndFragment-->
+<!--EndFragment-->
+
 *
 
 <!---->
@@ -309,6 +309,18 @@ ad
 Women's Bodysuit deals 
 https://geni.us/IJ2xc ad
 
+* <!--StartFragment-->
+
+  NAUTICA Voyage Deodorant Body Spray for Men, 6.0 fl oz ![💲](https://static.xx.fbcdn.net/images/emoji.php/v9/t5c/1/16/1f4b2.png)9.48 [https://go.sylikes.com/eMmooIVZQZKk](https://go.sylikes.com/eMmooIVZQZKk?fbclid=IwAR0IicQnq3mZJ1W7hL9KEyJ8lS6bJqP4XjRpHlkU8Djv5PxE2HKLGp8EpEI) ad
+
+  <!--EndFragment--> <!--StartFragment-->
+
+  ![NAUTICA Voyage Deodorant Body Spray for Men, 6.0 fl oz](https://i5.walmartimages.com/seo/NAUTICA-Voyage-Deodorant-Body-Spray-for-Men-6-0-fl-oz_1be9b89c-2be3-445a-86df-67c0442a45c7.b09b04c316930440635f85ebd9167611.png?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+  <!--EndFragment-->
+
+<!---->
+
 * 8 pack of hair claw clips 
    40% off at checkout! 
   https://geni.us/azsq1N 
@@ -329,4 +341,4 @@ ad  <!--StartFragment-->
   https://geni.us/Fexntt 
   ad <!--StartFragment-->
 
-  ![U+U Crossbody Bags for Women, Handbags Cell Phone Wallet Small Purse with Credit Card Slots and Removebale Chain](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/61O9ZI0+qpL._AC_SX500_.jpg)
+  * ![U+U Crossbody Bags for Women, Handbags Cell Phone Wallet Small Purse with Credit Card Slots and Removebale Chain](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/61O9ZI0+qpL._AC_SX500_.jpg)
