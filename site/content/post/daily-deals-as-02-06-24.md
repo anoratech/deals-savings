@@ -101,7 +101,7 @@ AD
 
 Spa Luxetique Gift Baskets for Women
 
-![⬇️](https://static.xx.fbcdn.net/images/emoji.php/v9/t20/1/16/2b07.png)![🅿](https://static.xx.fbcdn.net/images/emoji.php/v9/t18/1/16/1f17f.png)🆁🅸🅲🅴 🅳🆁![🅾](https://static.xx.fbcdn.net/images/emoji.php/v9/t97/1/16/1f17e.png)![🅿](https://static.xx.fbcdn.net/images/emoji.php/v9/t18/1/16/1f17f.png)![⬇️](https://static.xx.fbcdn.net/images/emoji.php/v9/t20/1/16/2b07.png)P﻿rice Drop 
+P﻿rice Drop 
 
 [https://amzn.to/3OAB417](https://amzn.to/3OAB417?fbclid=IwAR3qV2trF4B0mMvavDNm5o3qJnIKdcbcKlQbKaB0byDfOsbixF7bWU5BjsM)
 
@@ -111,7 +111,7 @@ AD
 
 <!--StartFragment-->
 
-![‼](https://static.xx.fbcdn.net/images/emoji.php/v9/t77/1/16/203c.png) SAVE EXTRA WHEN YOU BUY 4![‼](https://static.xx.fbcdn.net/images/emoji.php/v9/t77/1/16/203c.png)
+![]()
 
 Simply Liquid Laundry Detergent,
 
