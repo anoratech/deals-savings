@@ -68,3 +68,15 @@ Board game deals
 Ad
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+O Naturals 6 PCS Black Soap
+
+Price drop + SS clip coupon
+
+[https://amzn.to/3OxmnvM](https://amzn.to/3OxmnvM?fbclid=IwAR2SYKRyOLvZt-2yjggcOiqxMJ10OYkSDH6_10QjWUvkCfWj6XUdJARex1Y)
+
+Ad
+
+<!--EndFragment-->
