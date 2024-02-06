@@ -157,6 +157,17 @@ ad
   <!--EndFragment-->
 * <!--StartFragment-->
 
+  70% OFF Dip Powder Nail Kit 50% off Code: 502EZ4CD + 20% off coupon (works on 6-Christmas Gift Set)
+
+  5.xx [https://geni.us/3KWngpA](https://geni.us/3KWngpA?fbclid=IwAR2DzLBmAlcM96mlrDvkoyLc3T9Epes0pgzgFTFQl2C_tZB66diGLOm3990) ad
+
+  <!--EndFragment--> <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/518pWkVJpHL._SR400,400_.jpg)
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
   75% OFF 4in Bamboo Mattress Topper from 31.xx 50% off Code: 50VK8NZ6 + 25% off coupon (works on all options) [https://geni.us/GljrWuz](https://geni.us/GljrWuz?fbclid=IwAR3tj38oANLhzwdjcx90e_HCSMJ8J_I10dC8zP46jyplpum4ozTARQEbH0g) ad
 
   <!--EndFragment--> <!--StartFragment-->
