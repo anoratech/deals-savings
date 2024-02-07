@@ -237,3 +237,18 @@ description: >-
     ![Stanley The Quencher H2.O FlowState Tumbler 40oz](https://i5.walmartimages.com/seo/Stanley-The-Quencher-H2-O-FlowState-Tumbler-40oz_f0bac4c7-13e0-415e-b8ef-bfb496a8a095.f585eecbbffe34511add5767f43af306.jpeg?odnHeight=640&odnWidth=640&odnBg=FFFFFF)
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    28 Packs Valentine Glitter Slime with Cards
+
+    n0 c0de
+
+    <https://geni.us/8jfcB>
+
+    ad
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![JOYIN 28 Packs Valentine Glitter Slime with Cards Stress Relief Fidget Toys for Kids Valentine\&#39;s Party Favor and Valentine Classroom Exchange Cards](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/91kLyjieRsL._AC_SX425_.jpg)
+
+    <!--EndFragment-->
