@@ -591,3 +591,12 @@ description: Daily Deal As On  7TH Feb 2024
     <!--EndFragment-->
 
     <!--EndFragment-->
+  * L﻿ETTER NECKLACE 6.XX <!--StartFragment-->
+
+    50% off in checkout https://geni.us/SfjXYkX ad
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/31HYh8XWs9L._SR400,400_.jpg)
+
+    <!--EndFragment-->
