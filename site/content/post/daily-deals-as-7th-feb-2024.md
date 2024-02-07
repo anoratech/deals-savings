@@ -107,3 +107,16 @@ description: >-
   ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/71WrcXsYDBL._SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  price drop
+
+  women sandals
+
+  ad
+
+  <https://geni.us/J1AAXz>
+
+
+
+  <!--EndFragment-->
