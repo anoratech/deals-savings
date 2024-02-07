@@ -290,3 +290,18 @@ description: >-
     ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/814LPCC4MQL._AC_SL1500_.jpg)
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    Solar Deck Lights
+
+     clip
+
+    <https://geni.us/jGvuk>
+
+    ad
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/81+x9XU0j4L._AC_SL1500_.jpg)
+
+    <!--EndFragment-->
