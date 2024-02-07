@@ -408,3 +408,14 @@ description: Daily Deal As On  7TH Feb 2024
     ad
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    Smart Scale for Body Weight
+
+    PRICE DROP
+
+    <https://geni.us/s3B7d>
+
+    ad
+
+    <!--EndFragment-->
