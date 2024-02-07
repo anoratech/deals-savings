@@ -74,4 +74,8 @@ description: >-
 
   ad
 
+  <!--EndFragment--> <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/61X8PuNtt6L._AC_SL1000_.jpg)
+
   <!--EndFragment-->
