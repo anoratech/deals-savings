@@ -377,3 +377,12 @@ description: Daily Deal As On  7TH Feb 2024
     ad
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    61% off Spin Master Games Hedbanz Junior PAW Patrol
+
+    <https://geni.us/kZWAuZk>
+
+    ad
+
+    <!--EndFragment-->
