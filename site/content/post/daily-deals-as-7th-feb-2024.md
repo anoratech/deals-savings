@@ -139,3 +139,19 @@ description: >-
   ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/81Ih5s9HOBL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Cricut Premium Vinyl - Removable, 12” x 12”
+
+  5.xx
+
+  <https://geni.us/TELAvGG>
+
+  ad
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/71I8-3UOZ9L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+*
