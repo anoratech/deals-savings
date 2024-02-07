@@ -487,3 +487,18 @@ description: Daily Deal As On  7TH Feb 2024
     ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/71M9jsP2KTL._AC_SL1500_.jpg)
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    Women's Summer Floral Maxi Sun Dress Sleeveless Halter Neck
+
+    50% off at checkout + 15% off clip coupon ✂️
+
+    <https://geni.us/bYcx>
+
+    ad
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/41YnblYsMnL._SR400,400_.jpg)
+
+    <!--EndFragment-->
