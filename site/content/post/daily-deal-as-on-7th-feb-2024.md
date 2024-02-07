@@ -355,9 +355,9 @@ description: Daily Deal As On  7TH Feb 2024
   ᴀᴅ- 
 
   * <!--EndFragment-->
-  * 3﻿-<!--StartFragment-->
+  * <!--StartFragment-->
 
-    Basic Straight Leg Jeans
+    3Basic Straight Leg Jeans-
 
     23.xx
 
