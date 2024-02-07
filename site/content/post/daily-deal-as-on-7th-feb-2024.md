@@ -502,3 +502,18 @@ description: Daily Deal As On  7TH Feb 2024
     ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/41YnblYsMnL._SR400,400_.jpg)
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    pack of 2
+
+    PRICE DROP
+
+    <https://geni.us/Hx56Xc>
+
+    AD
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/612bdXoSopL._SL1500_.jpg)
+
+    <!--EndFragment-->
