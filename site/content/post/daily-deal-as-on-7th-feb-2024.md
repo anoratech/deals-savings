@@ -517,3 +517,18 @@ description: Daily Deal As On  7TH Feb 2024
     ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/612bdXoSopL._SL1500_.jpg)
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    12 pair of earrings
+
+    50% off at checkout
+
+    <https://geni.us/qm0onU>
+
+    ad
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/51iB2jacOmL._SR400,400_.jpg)
+
+    <!--EndFragment-->
