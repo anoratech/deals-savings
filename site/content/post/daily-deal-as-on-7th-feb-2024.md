@@ -541,3 +541,18 @@ description: Daily Deal As On  7TH Feb 2024
     ![SHEWIN Womens Summer Tops Casual V Neck Ruffle Short Sleeve T Shirts Slim Fit](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/61izx8bRIfL._AC_SY606_.jpg)
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    40% OFF AT CHECKOUT
+
+    9 Drawer Dresser
+
+    <https://geni.us/fx9Q>
+
+    AD
+
+    <!--EndFragment--><!--StartFragment-->
+
+    ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/51MEEL2g8EL._SR400,400_.jpg)
+
+    <!--EndFragment-->
