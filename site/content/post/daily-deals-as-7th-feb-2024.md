@@ -11,14 +11,12 @@ description: >-
 ---
 * <!--StartFragment-->
 
+  ![SHEWIN Tank Top for Women Summer Ruffle Sleeveless Crewneck Casual Cute Shirts](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/71vRlo-BJtL._AC_SY741_.jpg)
+
+  <!--EndFragment--> <!--StartFragment-->
+
   Summer Ruffle Sleeveless Crewneck Casual Cute Shirts\
   9.xx ad CLIP COUPON <https://geni.us/BjcNP> AD
-
-  <!--EndFragment-->
-
-  <!--StartFragment-->
-
-  ![SHEWIN Tank Top for Women Summer Ruffle Sleeveless Crewneck Casual Cute Shirts](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/71vRlo-BJtL._AC_SY741_.jpg)
 
   <!--EndFragment-->
 *
