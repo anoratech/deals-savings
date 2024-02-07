@@ -573,3 +573,8 @@ description: Daily Deal As On  7TH Feb 2024
     ![SHEWIN Womens Long Sleeve Tops Dressy Casual Spring Summer Crewneck Waffle Knit Blouses for Women Fashion 2024](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/61ThKPKmhxL._AC_SY606_.jpg)
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    B0G0 on popular brands and makeup, skincare, haircare and fragrance items at Ulta ad [https://shopstyle.it/l/​b7Neb](https://shopstyle.it/l/b7Neb?fbclid=IwAR3eyVzDVDd3Vxl6OQA3aAVEJPtPkfzKvIOBdaoK-b96PfGfYLdr8L4moW0)
+
+    <!--EndFragment-->
