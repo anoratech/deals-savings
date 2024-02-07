@@ -154,4 +154,12 @@ description: >-
   ![](https://m.media-amazon.com/images/W/MEDIAX_849526-T2/images/I/71I8-3UOZ9L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
-*
+* <!--StartFragment-->
+
+  kids fire tablet
+
+  <https://geni.us/HBx7>
+
+  AD
+
+  <!--EndFragment-->
