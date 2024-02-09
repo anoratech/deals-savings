@@ -358,3 +358,14 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  50% off at checkout
+
+  40 oz Insulated Cup with Handle
+
+  https://geni.us/xjvIhYW
+
+  ad
+
+  <!--EndFragment-->
