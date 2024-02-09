@@ -632,3 +632,12 @@ description: |-
   AD
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  56% off BLONDME x BARBIE™ Home Spa Collection – Cool Blondes with Purple Toning Pigments - Brassiness Corrector for All Blonde Hair Types
+
+  https://geni.us/ewgelQ
+
+  ad
+
+  <!--EndFragment-->
