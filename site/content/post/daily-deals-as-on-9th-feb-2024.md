@@ -22,7 +22,7 @@ description: |-
 
   24 Pack Valentines Day Cards for Kids School
 
-  ![🌷](https://static.xx.fbcdn.net/images/emoji.php/v9/t6f/1/16/1f337.png)![🌹](https://static.xx.fbcdn.net/images/emoji.php/v9/t71/1/16/1f339.png)N0 C0DE ![🌷](https://static.xx.fbcdn.net/images/emoji.php/v9/t6f/1/16/1f337.png)![🌹](https://static.xx.fbcdn.net/images/emoji.php/v9/t71/1/16/1f339.png)
+  N0 C0DE 
 
   [https://geni.us/YBKaA](https://geni.us/YBKaA?fbclid=IwAR0B2MDecUk8pJxUvukb-6vLlnOr1lEKUThF7QcigILHp7gH09Kae2xLYnI)
 
@@ -33,46 +33,11 @@ description: |-
 
   24 Pack Valentines Day Cards for Kids School
 
-  ![🌾](https://static.xx.fbcdn.net/images/emoji.php/v9/t9d/1/16/1f33e.png)![💐](https://static.xx.fbcdn.net/images/emoji.php/v9/te3/1/16/1f490.png)PRICE DROP![🌾](https://static.xx.fbcdn.net/images/emoji.php/v9/t9d/1/16/1f33e.png)![💐](https://static.xx.fbcdn.net/images/emoji.php/v9/te3/1/16/1f490.png)
+  PRICE DROP
 
   [https://geni.us/dRb3cxZ](https://geni.us/dRb3cxZ?fbclid=IwAR31DmWZQcZmNJBnPpQSSVaxworEzdrRCN5EJOEkgI6BNxzd-W7WROR5rXA)
 
   ad
 
   <!--EndFragment-->
-* <!--StartFragment-->
-
-  Power Strip Surge Protector
-
-  ![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png)![✂️](https://static.xx.fbcdn.net/images/emoji.php/v9/tb0/1/16/2702.png) clip
-
-  [https://geni.us/YU3DFmQ](https://geni.us/YU3DFmQ?fbclid=IwAR1V6D8T32Do9ncoszdTibUPslCJ_0FL2bftt2QjJLyTU2rKzFdkGClDz-g)
-
-  ad
-
-  <!--EndFragment--><!--StartFragment-->
-
-  14.xx Reminder Binder 2024-2025 18-Month Planner + 361 Planner Stickers
-
-  ![🐚](https://static.xx.fbcdn.net/images/emoji.php/v9/t9c/1/16/1f41a.png)![🍄](https://static.xx.fbcdn.net/images/emoji.php/v9/t8b/1/16/1f344.png)PRICE DROP ![🐚](https://static.xx.fbcdn.net/images/emoji.php/v9/t9c/1/16/1f41a.png)![🍄](https://static.xx.fbcdn.net/images/emoji.php/v9/t8b/1/16/1f344.png)
-
-  [https://geni.us/LbAosyn](https://geni.us/LbAosyn?fbclid=IwAR2z4VRfWjlRr0cg7JFfAet-gWJNU_3e0_7--K2PQCvOTxPW8ztq3P36Xjs)
-
-  ad
-
-  <!--EndFragment--><!--StartFragment-->
-
-
-
-
-* Mrs. Meyer's Clean Day Multi-Surface Everyday Cleaner
-
-  ![🐚](https://static.xx.fbcdn.net/images/emoji.php/v9/t9c/1/16/1f41a.png)![🍄](https://static.xx.fbcdn.net/images/emoji.php/v9/t8b/1/16/1f344.png)PRICE DROP ![🐚](https://static.xx.fbcdn.net/images/emoji.php/v9/t9c/1/16/1f41a.png)![🍄](https://static.xx.fbcdn.net/images/emoji.php/v9/t8b/1/16/1f344.png)
-
-  7.xx
-
-  [https://geni.us/MmyT](https://geni.us/MmyT?fbclid=IwAR0-tjSLaYR2qgRNOifYUq7kSAuYI5B2YXKxHnSRel0k_iiZg82n9M_9EX8)
-
-  ad
-
-  <!--EndFragment-->
+*
