@@ -45,7 +45,7 @@ description: |-
   ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ
   https://amzn.to/3w9CCJ9
   AD
-*  The Dreamer for Men 
+* The Dreamer for Men 
   54%OFF
   https://amzn.to/4bsbHZf
   AD
@@ -94,7 +94,7 @@ description: |-
   2024 Dry Erase Calendar 
   https://amzn.to/3w5hvrs
   AD
-*  Fire HD 8 tablet, 32 GB
+* Fire HD 8 tablet, 32 GB
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   https://amzn.to/3um4olh
   AD
@@ -138,3 +138,13 @@ description: |-
   ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ
   https://amzn.to/3StNclN
   AD
+* <!--StartFragment-->
+
+  INFLATABLES From $9.98 at Walmart
+
+  [https://shopstyle.it/l/b7SqK](https://shopstyle.it/l/b7SqK?fbclid=IwAR1_2Zo07i19l8Jax_mH7uQDMZylfPCTxWYkERkBe3wBa9Tm8vH_eR8T7xI)
+
+  ad
+
+  <!--EndFragment-->
+*
