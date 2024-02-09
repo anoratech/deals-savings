@@ -469,3 +469,12 @@ description: |-
     ad
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    CLIP COUPON IN S&S ✂️✂️
+
+    https://geni.us/eEu1T
+
+    AD
+
+    <!--EndFragment-->
