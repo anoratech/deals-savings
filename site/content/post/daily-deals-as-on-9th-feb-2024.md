@@ -490,3 +490,16 @@ description: |-
   AD
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Snag that 2pk while you can!
+
+   128GB Micro SD Card 2 Pack microSDXC Memory Card with SD Adapter C10 U3 A1 V30 Memory Card SD Card Pink, 128GB
+
+  ![⬇️](https://fonts.gstatic.com/s/e/notoemoji/15.0/2b07_fe0f/32.png)![🅿](https://fonts.gstatic.com/s/e/notoemoji/15.0/1f17f/32.png)🆁🅸🅲🅴 🅳🆁![🅾](https://fonts.gstatic.com/s/e/notoemoji/15.0/1f17e/32.png)![🅿](https://fonts.gstatic.com/s/e/notoemoji/15.0/1f17f/32.png)![⬇️](https://fonts.gstatic.com/s/e/notoemoji/15.0/2b07_fe0f/32.png)
+
+  <https://amzn.to/4btMQnZ>
+
+  AD
+
+  <!--EndFragment-->
