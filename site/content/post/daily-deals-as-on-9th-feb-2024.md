@@ -400,3 +400,14 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Craft-tastic DIY String Art
+
+  8.xx
+
+  https://geni.us/XN7pyf
+
+  ad
+
+  <!--EndFragment-->
