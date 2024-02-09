@@ -336,3 +336,14 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  High Waisted Leggings
+
+  8.xx
+
+  https://geni.us/lZcek
+
+  ad
+
+  <!--EndFragment-->
