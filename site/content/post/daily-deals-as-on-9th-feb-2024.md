@@ -75,3 +75,16 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  45% OFF - Parima Personalized Plush Velvet Travel Jewelry Case
+
+  11.xx
+
+  45R8OG79
+
+  [https://geni.us/KPxjGdA](https://geni.us/KPxjGdA?fbclid=IwAR1XREvKqhqmEwtpOqfoXvYMZcgsDb2nQpq4eUwpOBl9s_nfILVTLA1N_T8)
+
+  ad
+
+  <!--EndFragment-->
