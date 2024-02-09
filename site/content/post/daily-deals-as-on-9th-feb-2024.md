@@ -592,3 +592,12 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  65% off Self Tanner Mousse
+
+  https://geni.us/2E2SUPK
+
+  ad
+
+  <!--EndFragment-->
