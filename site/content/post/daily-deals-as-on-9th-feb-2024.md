@@ -99,3 +99,12 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  71% off
+
+  [https://geni.us/ddAtOX6](https://geni.us/ddAtOX6?fbclid=IwAR1_cIC7jAiJxlYcpP0s69RWtbRy0EL3dMn0VI7KjVNfIgHxKnEpji28zbw)
+
+  ad
+
+  <!--EndFragment-->
