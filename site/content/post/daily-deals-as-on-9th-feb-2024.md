@@ -191,4 +191,15 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  14.xx Reminder Binder 2024-2025 18-Month Planner + 361 Planner Stickers
+
+  PRICE DROP 
+
+  [https://geni.us/LbAosyn](https://geni.us/LbAosyn?fbclid=IwAR2z4VRfWjlRr0cg7JFfAet-gWJNU_3e0_7--K2PQCvOTxPW8ztq3P36Xjs)
+
+  ad
+
+  <!--EndFragment-->
 *
