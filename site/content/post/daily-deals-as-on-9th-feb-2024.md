@@ -283,3 +283,14 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  48 Pack Valentines Cards with Heart-Shape Crystal Stones
+
+  Save 50% promo code: CRAOA3XK
+
+  https://geni.us/WVADxKf
+
+  ad
+
+  <!--EndFragment-->
