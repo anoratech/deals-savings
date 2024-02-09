@@ -479,3 +479,14 @@ description: |-
   AD
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Tide Liquid Laundry Detergent, Original, 100 loads, 146 fl oz
+
+  𝗛𝗨𝗚𝗘 𝗗𝗥𝗢𝗣 𝗤𝗣𝗢𝗡
+
+  <https://amzn.to/42AYut3>
+
+  AD
+
+  <!--EndFragment-->
