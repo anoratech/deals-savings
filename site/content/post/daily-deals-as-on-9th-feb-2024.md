@@ -502,3 +502,16 @@ description: |-
     ad
 
     <!--EndFragment-->
+  * <!--StartFragment-->
+
+    9 Pairs Gold Hoop Earrings
+
+    Use 40GFWY8D at checkout
+
+    9.xx
+
+    https://geni.us/FBDDrY
+
+    ad
+
+    <!--EndFragment-->
