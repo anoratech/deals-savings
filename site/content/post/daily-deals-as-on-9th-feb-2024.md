@@ -573,3 +573,16 @@ description: |-
   AD
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  𝗪𝗔𝗟𝗠𝗔𝗥𝗧
+
+  27.99 was 64.99
+
+  73 Piece Crochet Set Kit with Crochet Hooks Yarn Set
+
+  <https://go.magik.ly/ml/209gm/>
+
+  AD
+
+  <!--EndFragment-->
