@@ -40,4 +40,15 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Power Strip Surge Protector
+
+   clip
+
+  [https://geni.us/YU3DFmQ](https://geni.us/YU3DFmQ?fbclid=IwAR1V6D8T32Do9ncoszdTibUPslCJ_0FL2bftt2QjJLyTU2rKzFdkGClDz-g)
+
+  ad
+
+  <!--EndFragment-->
 *
