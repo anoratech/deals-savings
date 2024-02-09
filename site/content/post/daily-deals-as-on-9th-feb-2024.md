@@ -529,3 +529,14 @@ description: |-
     24 Pack Cleaning Cloth Kitchen Cloth 6.xx ad https://geni.us/8VHs1M
 
     <!--EndFragment-->
+* <!--StartFragment-->
+
+  18x14x8 Carry on Luggage Overnight Bag
+
+  9,xx
+
+  https://geni.us/thbbXp
+
+  ad
+
+  <!--EndFragment-->
