@@ -444,3 +444,14 @@ description: |-
   AD
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+   60% OFF 
+
+    Smart Watch
+
+  <https://amzn.to/49qSAgo>
+
+  AD
+
+  <!--EndFragment-->
