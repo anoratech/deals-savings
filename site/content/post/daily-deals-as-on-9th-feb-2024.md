@@ -140,499 +140,305 @@ description: |-
   AD
 * <!--StartFragment-->
 
-  INFLATABLES From $9.98 at Walmart
+  * INFLATABLES From $9.98 at Walmart
 
-  [https://shopstyle.it/l/b7SqK](https://shopstyle.it/l/b7SqK?fbclid=IwAR1_2Zo07i19l8Jax_mH7uQDMZylfPCTxWYkERkBe3wBa9Tm8vH_eR8T7xI)
+    [https://shopstyle.it/l/b7SqK](https://shopstyle.it/l/b7SqK?fbclid=IwAR1_2Zo07i19l8Jax_mH7uQDMZylfPCTxWYkERkBe3wBa9Tm8vH_eR8T7xI)
 
-  ad
+    ad
+  * Sherpa Fleece Throw Blanket
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    [https://geni.us/HMATt](https://geni.us/HMATt?fbclid=IwAR2ErtHgJUsoGLgdX699FAwhFeztyaoljax_PRgwnHdEjKaE2lKk4py7RZ0)
 
-  Sherpa Fleece Throw Blanket
+    9.xx
 
-  [https://geni.us/HMATt](https://geni.us/HMATt?fbclid=IwAR2ErtHgJUsoGLgdX699FAwhFeztyaoljax_PRgwnHdEjKaE2lKk4py7RZ0)
+    ad
+  * 24 Pack Valentines Day Cards for Kids School
 
-  9.xx
+    N0 C0DE 
 
-  ad
+    [https://geni.us/YBKaA](https://geni.us/YBKaA?fbclid=IwAR0B2MDecUk8pJxUvukb-6vLlnOr1lEKUThF7QcigILHp7gH09Kae2xLYnI)
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    ad
+  * 24 Pack Valentines Day Cards for Kids School
 
-  24 Pack Valentines Day Cards for Kids School
+    PRICE DROP
 
-  N0 C0DE 
+    [https://geni.us/dRb3cxZ](https://geni.us/dRb3cxZ?fbclid=IwAR31DmWZQcZmNJBnPpQSSVaxworEzdrRCN5EJOEkgI6BNxzd-W7WROR5rXA)
 
-  [https://geni.us/YBKaA](https://geni.us/YBKaA?fbclid=IwAR0B2MDecUk8pJxUvukb-6vLlnOr1lEKUThF7QcigILHp7gH09Kae2xLYnI)
+    ad
+  * Power Strip Surge Protector
 
-  ad
+     clip
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    [https://geni.us/YU3DFmQ](https://geni.us/YU3DFmQ?fbclid=IwAR1V6D8T32Do9ncoszdTibUPslCJ_0FL2bftt2QjJLyTU2rKzFdkGClDz-g)
 
-  24 Pack Valentines Day Cards for Kids School
+    ad
+  * 14.xx Reminder Binder 2024-2025 18-Month Planner + 361 Planner Stickers
 
-  PRICE DROP
+    PRICE DROP 
 
-  [https://geni.us/dRb3cxZ](https://geni.us/dRb3cxZ?fbclid=IwAR31DmWZQcZmNJBnPpQSSVaxworEzdrRCN5EJOEkgI6BNxzd-W7WROR5rXA)
+    [https://geni.us/LbAosyn](https://geni.us/LbAosyn?fbclid=IwAR2z4VRfWjlRr0cg7JFfAet-gWJNU_3e0_7--K2PQCvOTxPW8ztq3P36Xjs)
 
-  ad
+    ad
+  * Mrs. Meyer’s Clean Day Multi-Surface Everyday Cleaner
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    PRICE DROP 
 
-  Power Strip Surge Protector
+    7.xx
 
-   clip
+    [https://geni.us/MmyT](https://geni.us/MmyT?fbclid=IwAR0-tjSLaYR2qgRNOifYUq7kSAuYI5B2YXKxHnSRel0k_iiZg82n9M_9EX8)
 
-  [https://geni.us/YU3DFmQ](https://geni.us/YU3DFmQ?fbclid=IwAR1V6D8T32Do9ncoszdTibUPslCJ_0FL2bftt2QjJLyTU2rKzFdkGClDz-g)
+    ad
+  * INFLATABLES From $9.98 at Walmart
 
-  ad
+    [https://shopstyle.it/l/b7SqK](https://shopstyle.it/l/b7SqK?fbclid=IwAR1_2Zo07i19l8Jax_mH7uQDMZylfPCTxWYkERkBe3wBa9Tm8vH_eR8T7xI)
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    ad
+  * Women’s Tops
 
-  14.xx Reminder Binder 2024-2025 18-Month Planner + 361 Planner Stickers
+    10.xx
 
-  PRICE DROP 
+    [https://geni.us/CbbaZU](https://geni.us/CbbaZU?fbclid=IwAR3twrkwe1ZgKsH5yma9T3ufoGixCihP-B_IdRzsCaEc3GjDfryf4LWVkEc)
 
-  [https://geni.us/LbAosyn](https://geni.us/LbAosyn?fbclid=IwAR2z4VRfWjlRr0cg7JFfAet-gWJNU_3e0_7--K2PQCvOTxPW8ztq3P36Xjs)
+    ad
+  * 45% OFF - Parima Personalized Plush Velvet Travel Jewelry Case
 
-  ad
+    11.xx
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    45R8OG79
 
-  Mrs. Meyer’s Clean Day Multi-Surface Everyday Cleaner
+    [https://geni.us/KPxjGdA](https://geni.us/KPxjGdA?fbclid=IwAR1XREvKqhqmEwtpOqfoXvYMZcgsDb2nQpq4eUwpOBl9s_nfILVTLA1N_T8)
 
-  PRICE DROP 
+    ad
+  * Extra Large Weekly Pill Organizer 2 Pcs
 
-  7.xx
+    4.xx
 
-  [https://geni.us/MmyT](https://geni.us/MmyT?fbclid=IwAR0-tjSLaYR2qgRNOifYUq7kSAuYI5B2YXKxHnSRel0k_iiZg82n9M_9EX8)
+    30% off at checkout+ 20% clip
 
-  ad
+    <https://geni.us/eVBpJ> ad
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    ad
+  * 12-Gel Pens, Medium Point
 
-  INFLATABLES From $9.98 at Walmart
+    8.xx
 
-  [https://shopstyle.it/l/b7SqK](https://shopstyle.it/l/b7SqK?fbclid=IwAR1_2Zo07i19l8Jax_mH7uQDMZylfPCTxWYkERkBe3wBa9Tm8vH_eR8T7xI)
+    <https://geni.us/dnZIs0m>
 
-  ad
+    ad
+  * Finger Puppets
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    PRICE DROP
 
-  Women's Tops
+    [https://geni.us/hQmEN3S](https://geni.us/hQmEN3S?fbclid=IwAR21fjkZrhX7GWWjfyDkG7tXHFVFBZNylsdmGhZ3nt9q6I3xS2TBn-2Aay8)
 
-  10.xx
+    ad
+  * 48 Pack Valentines Cards with Heart-Shape Crystal Stones
 
-  [https://geni.us/CbbaZU](https://geni.us/CbbaZU?fbclid=IwAR3twrkwe1ZgKsH5yma9T3ufoGixCihP-B_IdRzsCaEc3GjDfryf4LWVkEc)
+    Save 50% promo code: CRAOA3XK
 
-  ad
+    <https://geni.us/WVADxKf>
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    ad
+  * Reptology Lizard Lounger Corner Triangle with Ladder– 100% Natural Seagrass Fiber
 
-  45% OFF - Parima Personalized Plush Velvet Travel Jewelry Case
+    PRICE DROP
 
-  11.xx
+    <https://geni.us/YNweo2b>
 
-  45R8OG79
+    ad
+  * Wall Hanging Glass Propagation Plant
 
-  [https://geni.us/KPxjGdA](https://geni.us/KPxjGdA?fbclid=IwAR1XREvKqhqmEwtpOqfoXvYMZcgsDb2nQpq4eUwpOBl9s_nfILVTLA1N_T8)
+    4.xx
 
-  ad
+    <https://geni.us/mZBBxoD>
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    ad
+  * Baby Lil’ Luvs Hooded Blanket
 
-  Extra Large Weekly Pill Organizer 2 Pcs
+    n0 c0de
 
-  4.xx
+    <https://geni.us/edYYl>
 
-  30% off at checkout+ 20% clip
+    ad
+  * 4-Baby Spoons
 
-  https://geni.us/eVBpJ ad
+    <https://geni.us/2SUDa>
 
-  ad
+    ad
+  * High Waisted Leggings
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    8.xx
 
-  12-Gel Pens, Medium Point
+    <https://geni.us/lZcek>
 
-  8.xx
+    ad
+  * Money Saving Binder 100 Envelopes
 
-  https://geni.us/dnZIs0m
+    50% off at checkout
 
-  ad
+    <https://geni.us/XqqYDG>
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    ad
+  * 50% off at checkout
 
-  Finger Puppets
+    40 oz Insulated Cup with Handle
 
-   PRICE DROP 
+    <https://geni.us/xjvIhYW>
 
-  [https://geni.us/hQmEN3S](https://geni.us/hQmEN3S?fbclid=IwAR21fjkZrhX7GWWjfyDkG7tXHFVFBZNylsdmGhZ3nt9q6I3xS2TBn-2Aay8)
+    ad
+  * 3-Mrs. Meyer’s All-Purpose Cleaner Spray, Lemon Verbena, 16 fl. oz
 
-  ad
+    PRICE DROP
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    <https://geni.us/OBMDl>
 
-  48 Pack Valentines Cards with Heart-Shape Crystal Stones
+    ad
+  * n0 c0de
 
-  Save 50% promo code: CRAOA3XK
+    <https://geni.us/BL8432R>
 
-  https://geni.us/WVADxKf
+    ad
+  * Gabby’s Dollhouse, 8-inch Gabby Girl Doll
 
-  ad
+    4.xx
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    <https://geni.us/tUQLjlc>
 
-  Reptology Lizard Lounger Corner Triangle with Ladder– 100% Natural Seagrass Fiber
+    ad
+  * Craft-tastic DIY String Art
 
-  PRICE DROP 
+    8.xx
 
-  https://geni.us/YNweo2b
+    <https://geni.us/XN7pyf>
 
-  ad
+    ad
+  * MRS. MEYER’S CLEAN DAY All-Purpose Cleaner Spray, Basil, 16 fl. oz
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    2.xx
 
-  Wall Hanging Glass Propagation Plant
+    <https://geni.us/vw3QHc>
 
-  4.xx
+    ad
+  * GladWare Tall Entree Food Storage Containers, 18 count
 
-  https://geni.us/mZBBxoD
+    40% OFF 
 
-  ad
+    <https://amzn.to/499akgr>
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    AD
+  * 𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎
 
-  Baby Lil’ Luvs Hooded Blanket
+     96 Valentine’s Day Stationery Set
 
-  n0 c0de
+     <https://amzn.to/49dCyqr>
 
-  https://geni.us/edYYl
+    AD
+  *  60% OFF 
 
-  ad
+      Smart Watch
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    <https://amzn.to/49qSAgo>
 
-  4-Baby Spoons
+    AD
+  * Method All-Purpose Cleaner Spray
 
-  https://geni.us/2SUDa
+    , (Pack of 4) 
 
-  ad
+    <https://amzn.to/3wcpKC8>
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    AD
+  * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 
 
-  High Waisted Leggings
+    20.88 was 69.99
 
-  8.xx
+    Keenstone 135L Large Clothes Laundry Hamper Sorter Waterproof Laundry Storage Bag Basket Sorter for Laundry Room Organization
 
-  https://geni.us/lZcek
+     <https://go.magik.ly/ml/1vrb9/>
 
-  ad
+    AD
+  * Tide Liquid Laundry Detergent, Original, 100 loads, 146 fl oz
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    𝗛𝗨𝗚𝗘 𝗗𝗥𝗢𝗣 𝗤𝗣𝗢𝗡
 
-  Money Saving Binder 100 Envelopes
+    <https://amzn.to/42AYut3>
 
-  50% off at checkout
+    AD
+  * Snag that 2pk while you can!
 
-  https://geni.us/XqqYDG
+     128GB Micro SD Card 2 Pack microSDXC Memory Card with SD Adapter C10 U3 A1 V30 Memory Card SD Card Pink, 128GB
 
-  ad
+    <https://amzn.to/4btMQnZ>
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    AD
+  * 10 Pack Bulk Teddy Bears 
 
-  50% off at checkout
+     
 
-  40 oz Insulated Cup with Handle
+    <https://amzn.to/3OCpQt6>
 
-  https://geni.us/xjvIhYW
+    AD
+  * SAVE ON VALENTINE
 
-  ad
+     FAVOURITE 
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    <https://amzn.to/49vNv6G>
 
-  3-Mrs. Meyer's All-Purpose Cleaner Spray, Lemon Verbena, 16 fl. oz
+    AD
+  *  Get Ready for Valentine’s Day with Aveeno, Neutrogena & More
 
-   PRICE DROP 
+    <https://amzn.to/3ST6liz>
 
-  https://geni.us/OBMDl
+    AD
+  * Huggies Natural Care Sensitive Baby Wipes,  (448 Wipes Total)
 
-  ad
+    <https://amzn.to/3SRo1Ln>
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    AD
+  * Chunk Light Tuna In Water, 24 Count 
 
-  n0 c0de
+    ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ
 
-  https://geni.us/BL8432R
+    𝗦&𝗦
 
-  ad
+    <https://amzn.to/488gcFr>
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    AD
+  * 𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎
 
-  Gabby's Dollhouse, 8-inch Gabby Girl Doll
+    ArtNaturals Organic Beeswax Lip Balm Gift Set
 
-  4.xx
+    ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ
 
-  https://geni.us/tUQLjlc
+    𝗦&𝗦
 
-  ad
+    <https://amzn.to/3HSmzlt>
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    AD
+  * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
 
-  Craft-tastic DIY String Art
+    27.99 was 64.99
 
-  8.xx
+    73 Piece Crochet Set Kit with Crochet Hooks Yarn Set
 
-  https://geni.us/XN7pyf
+    <https://go.magik.ly/ml/209gm/>
 
-  ad
+    AD
+  * RUUNN‼
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    BOGO 50% Off Toys & Games 
 
-  MRS. MEYER'S CLEAN DAY All-Purpose Cleaner Spray, Basil, 16 fl. oz
+    <https://amzn.to/3SRVTHZ>
 
-  2.xx
+    AD
+  * 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
 
-  https://geni.us/vw3QHc
+    33.99 was 99.99
 
-  ad
+    Artificial Plants, 5ft
 
-  <!--EndFragment-->
-* <!--StartFragment-->
+    <https://go.magik.ly/ml/209gn/>
 
-  GladWare Tall Entree Food Storage Containers, 18 count
-
-  40% OFF 
-
-  <https://amzn.to/499akgr>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎
-
-   96 Valentine’s Day Stationery Set
-
-   <https://amzn.to/49dCyqr>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-   60% OFF 
-
-    Smart Watch
-
-  <https://amzn.to/49qSAgo>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  Method All-Purpose Cleaner Spray
-
-  , (Pack of 4) 
-
-  <https://amzn.to/3wcpKC8>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  𝗪𝗔𝗟𝗠𝗔𝗥𝗧 
-
-  20.88 was 69.99
-
-  Keenstone 135L Large Clothes Laundry Hamper Sorter Waterproof Laundry Storage Bag Basket Sorter for Laundry Room Organization
-
-   <https://go.magik.ly/ml/1vrb9/>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  Tide Liquid Laundry Detergent, Original, 100 loads, 146 fl oz
-
-  𝗛𝗨𝗚𝗘 𝗗𝗥𝗢𝗣 𝗤𝗣𝗢𝗡
-
-  <https://amzn.to/42AYut3>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  Snag that 2pk while you can!
-
-   128GB Micro SD Card 2 Pack microSDXC Memory Card with SD Adapter C10 U3 A1 V30 Memory Card SD Card Pink, 128GB
-
-  ![⬇️](https://fonts.gstatic.com/s/e/notoemoji/15.0/2b07_fe0f/32.png)![🅿](https://fonts.gstatic.com/s/e/notoemoji/15.0/1f17f/32.png)🆁🅸🅲🅴 🅳🆁![🅾](https://fonts.gstatic.com/s/e/notoemoji/15.0/1f17e/32.png)![🅿](https://fonts.gstatic.com/s/e/notoemoji/15.0/1f17f/32.png)![⬇️](https://fonts.gstatic.com/s/e/notoemoji/15.0/2b07_fe0f/32.png)
-
-  <https://amzn.to/4btMQnZ>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  10 Pack Bulk Teddy Bears 
-
-   
-
-  <https://amzn.to/3OCpQt6>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  SAVE ON VALENTINE
-
-   FAVOURITE 
-
-  <https://amzn.to/49vNv6G>
-
-  AD
-
-
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-   Get Ready for Valentine's Day with Aveeno, Neutrogena & More
-
-  <https://amzn.to/3ST6liz>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  Huggies Natural Care Sensitive Baby Wipes,  (448 Wipes Total)
-
-  <https://amzn.to/3SRo1Ln>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  Chunk Light Tuna In Water, 24 Count 
-
-  ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ
-
-  𝗦&𝗦
-
-  <https://amzn.to/488gcFr>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎
-
-  ArtNaturals Organic Beeswax Lip Balm Gift Set
-
-  ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ
-
-  𝗦&𝗦
-
-  <https://amzn.to/3HSmzlt>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  𝗪𝗔𝗟𝗠𝗔𝗥𝗧
-
-  27.99 was 64.99
-
-  73 Piece Crochet Set Kit with Crochet Hooks Yarn Set
-
-  <https://go.magik.ly/ml/209gm/>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  RUUNN‼
-
-  BOGO 50% Off Toys & Games 
-
-  <https://amzn.to/3SRVTHZ>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  𝗪𝗔𝗟𝗠𝗔𝗥𝗧
-
-  33.99 was 99.99
-
-  Artificial Plants, 5ft
-
-  <https://go.magik.ly/ml/209gn/>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  𝗪𝗔𝗟𝗠𝗔𝗥𝗧
-
-  55.99 was 99.99
-
-  12 Cup Food Processor
-
-  <https://go.magik.ly/ml/209gp/>
-
-  AD
-
-  <!--EndFragment-->
-* <!--StartFragment-->
-
-  Fruit of the Loom Women's Seamed Soft Cup Wirefree Cotton Bra
-
-  44%OFF
-
-  <https://amzn.to/3UuUHvq>
-
-  AD
-
-
+    AD
 
   <!--EndFragment-->
