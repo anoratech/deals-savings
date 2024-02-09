@@ -610,3 +610,14 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Clear Backpack Mini Stadium Approved
+
+  4.xx
+
+  https://geni.us/3gZh8g
+
+  ad
+
+  <!--EndFragment-->
