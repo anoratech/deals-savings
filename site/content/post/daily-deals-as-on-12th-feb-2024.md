@@ -24,7 +24,7 @@ description: |-
   Fast-Push-Bubble-Game-Animal 
   https://amzn.to/3urQwWH
   AD
-*  45% OFF 
+* 45% OFF 
   FT Bunny Easter Inflatable Decorations Outdoor
   https://amzn.to/49dAIWA
   AD
@@ -44,7 +44,7 @@ description: |-
   ✂️ℂ𝕃𝕀ℙ 50%OFF  ℚℙ𝕆ℕ✂️
   https://amzn.to/3SzgjUJ
   AD
-*  50% OFF 
+* 50% OFF 
   Solar Outdoor Lights, (2 Pack)
   https://amzn.to/42zg9kY
   AD
@@ -75,3 +75,54 @@ description: |-
   Bestier Pipe Shelf Industrial Floating Shelving 31" Kitchen Wall-Mounted Shelf Rustic
   https://go.magik.ly/ml/208lg/
   AD
+* <!--StartFragment-->
+
+  <https://mavely.app.link/e/ZETG3TCp7Gb> AD\
+  Birthday Party Decor and Essentials for UNDER 1 BUCK
+
+  <!--EndFragment-->
+* https://mavely.app.link/e/CpPmVDRo7Gb   AD 
+  COATS SALE
+* https://mavely.app.link/e/fpFbpvgp7Gb  AD
+  Baby Girl 2PCS Outfits Long Sleeve Ruffle Collar Top Jeans Pants Set
+  PRICE DROP
+* https://mavely.app.link/e/Rjpr0roo7Gb   AD
+  Spidey 5pc Toddler Bedding & Blanket Bundle
+  PRICE DROP
+* https://mavely.app.link/e/Qd50Dd2n7Gb   AD
+  Powered Tractor Electric Car for Toddler
+  PRICE DROP
+* https://mavely.app.link/e/Qd50Dd2n7Gb   AD
+  Powered Tractor Electric Car for Toddler
+  PRICE DROP
+* https://mavely.app.link/e/TCEHoufn7Gb  AD
+  Pick Up & Count VacuME, Unisex Toy with 10 Colorful Play Pieces
+  PRICE DROP
+* https://mavely.app.link/e/cSgd2sFL6Gb
+  10 Drawer Dresser
+  PRICE DROP
+* https://mavely.app.link/e/mZCUlSbL6Gb   AD
+  Oversized Zero Gravity Chair
+  PRICE DROP
+* https://mavely.app.link/e/qRZoc0QK6Gb   AD
+  Newest Air Fryer Large 8.5 QT, White, 8 in 1 Touch Screen, Visible Window, 1750W
+* https://mavely.app.link/e/jpWs3CrK6Gb    AD
+  Carrying Case for Toniebox Starter Set Storage Carrier Bag for Toniesbox Audio Player Carrying Box for Kids
+  PRICE DROP
+* https://mavely.app.link/e/Ga0NJEqJ6Gb   AD
+  75 % OFF
+  1000W Smoothie Blender for Shakes and Smoothies, 3 IN1
+  PRICE DROP
+* <!--StartFragment-->
+
+  Toys CleArAnce - Macy’s\
+  <https://mavely.app.link/e/XYsuh4Ux6Gb> ad\
+  PRICE DROP
+
+  <!--EndFragment-->
+* https://mavely.app.link/e/uSvEkbmx6Gb   ad
+  $397 FOR A 65" SMART TV!
+  PRICE DROP
+* https://mavely.app.link/e/FPWbb6Xw6Gb   ad
+  40 oz Vacuum Insulated Stainless Steel Tumbler Hot Pink
+  PRICE DROP
