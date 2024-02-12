@@ -120,3 +120,13 @@ description: |-
   https://geni.us/EtPxjd
 
   AD
+* Bed Head A Wave We Go Tourmaline Ceramic Adjustable Hair Waver
+
+  PRICE DROP
+
+  https://geni.us/Fl28I
+
+  ad
+*
+*
+*
