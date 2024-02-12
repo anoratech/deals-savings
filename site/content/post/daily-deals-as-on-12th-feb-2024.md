@@ -75,12 +75,6 @@ description: |-
   Bestier Pipe Shelf Industrial Floating Shelving 31" Kitchen Wall-Mounted Shelf Rustic
   https://go.magik.ly/ml/208lg/
   AD
-* <!--StartFragment-->
-
-  <https://mavely.app.link/e/ZETG3TCp7Gb> AD\
-  Birthday Party Decor and Essentials for UNDER 1 BUCK
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/CpPmVDRo7Gb   AD 
   COATS SALE
 * https://mavely.app.link/e/fpFbpvgp7Gb  AD
@@ -113,16 +107,16 @@ description: |-
   75 % OFF
   1000W Smoothie Blender for Shakes and Smoothies, 3 IN1
   PRICE DROP
-* <!--StartFragment-->
-
-  Toys CleArAnce - Macy’s\
-  <https://mavely.app.link/e/XYsuh4Ux6Gb> ad\
-  PRICE DROP
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/uSvEkbmx6Gb   ad
   $397 FOR A 65" SMART TV!
   PRICE DROP
 * https://mavely.app.link/e/FPWbb6Xw6Gb   ad
   40 oz Vacuum Insulated Stainless Steel Tumbler Hot Pink
   PRICE DROP
+* Giant Unicorn Slide with Pool 
+
+  PRICE DROP
+
+  https://geni.us/EtPxjd
+
+  AD
