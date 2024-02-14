@@ -206,3 +206,8 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Price drop and use the code BUY50CODE [https://geni.us/vcvUTV](https://geni.us/vcvUTV?fbclid=IwAR2llfWwhb5gZ56dDIkFp3qunXdwKP4vFUu3muJf7Otb8vUaaR0u5IHu69Y) Ultimate Accessories Bundle for Cricut Makers Machine and All Explore Air - Wonderful Tool Kit ad
+
+  <!--EndFragment-->
