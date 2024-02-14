@@ -123,3 +123,12 @@ description: |-
   https://mavely.app.link/e/jAaesWFvbHb
 
   ad
+* <!--StartFragment-->
+
+  Black Single-Serve K-Cup Pod Coffee Maker, Black
+
+  https://go.sylikes.com/eMm27wWMblmv
+
+  ad
+
+  <!--EndFragment-->
