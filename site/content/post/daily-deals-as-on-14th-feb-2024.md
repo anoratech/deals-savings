@@ -345,3 +345,9 @@ description: |-
   48% price drop ad Cottage Playhouse with Working Door https://geni.us/65cNXh
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  35 Shades Eyeshadow Palette 6.xx\
+  price drop https://geni.us/B5yq ad
+
+  <!--EndFragment-->
