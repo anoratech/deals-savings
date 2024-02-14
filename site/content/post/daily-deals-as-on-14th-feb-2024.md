@@ -340,3 +340,8 @@ description: |-
   Color Correcting Facial Serum https://geni.us/epurmBD ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  48% price drop ad Cottage Playhouse with Working Door https://geni.us/65cNXh
+
+  <!--EndFragment-->
