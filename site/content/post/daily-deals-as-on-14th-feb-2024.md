@@ -132,3 +132,14 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Universal Remote Control
+
+  4.xx
+
+  https://geni.us/8lAJM
+
+  ad
+
+  <!--EndFragment-->
