@@ -163,3 +163,10 @@ description: |-
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  PRICE DROP IN NEXXUS SHAMPOO
+
+  https://geni.us/e28XX AD #dnsfeb14
+
+  <!--EndFragment-->
