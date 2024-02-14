@@ -154,15 +154,11 @@ description: |-
   ad
 
   <!--EndFragment-->
-* <!--StartFragment-->
-
-  🐱🐱Save 50% with this link on Cat Trees 🐱🐱
+* 🐱🐱Save 50% with this link on Cat Trees 🐱🐱
 
   https://geni.us/RjBaPM
 
   ad
-
-  <!--EndFragment-->
 * <!--StartFragment-->
 
   PRICE DROP IN NEXXUS SHAMPOO
