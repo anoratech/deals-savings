@@ -305,3 +305,14 @@ description: |-
   AD https://geni.us/eed8c0
 
   <!--EndFragment-->
+* 1﻿1.xx <!--StartFragment-->
+
+  40% off at checkout
+
+  Women sweaters
+
+  https://geni.us/ZxAzIC
+
+  ad
+
+  <!--EndFragment-->
