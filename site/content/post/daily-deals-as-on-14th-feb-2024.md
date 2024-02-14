@@ -327,7 +327,7 @@ description: |-
   <!--EndFragment-->
 * <!--StartFragment-->
 
-  PRICE DROP![💗](https://static.xx.fbcdn.net/images/emoji.php/v9/t6a/1/16/1f497.png)![💟](https://static.xx.fbcdn.net/images/emoji.php/v9/t19/1/16/1f49f.png)
+  PRICE DROP
 
   7.xx
 
