@@ -219,3 +219,16 @@ description: |-
   Finishing Touch Flawless Cleanse Spa Spinning Body Brush and, Shower Wand
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ✂️✂️ CLIP
+
+  14.XX
+
+  https://geni.us/2KS3OIK
+
+  AD
+
+  Moving Bags Heavy Duty Large
+
+  <!--EndFragment-->
