@@ -37,7 +37,7 @@ description: |-
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   https://amzn.to/3HWOsZU
   AD
-*  Fire 7 Kids tablet for
+* Fire 7 Kids tablet for
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   https://amzn.to/3I5LKRC
   AD
@@ -61,7 +61,7 @@ description: |-
   50%OFF
   https://amzn.to/49Cr6Ew
   AD 
-*  Cat Paw Cushion,
+* Cat Paw Cushion,
   50%OFF
   https://amzn.to/4bGWeVe
   AD
@@ -182,3 +182,14 @@ description: |-
 * https://geni.us/NcP9Jl   ad
   2.5" Action Figure Playset Pirate Ship
   PRICE DROP
+* <!--StartFragment-->
+
+  🌸62% OFF 🌸
+
+  3.xx
+
+  https://geni.us/ANCYI
+
+  Colgate Keep Manual Toothbrush Whitening Starter Kit
+
+  ad
