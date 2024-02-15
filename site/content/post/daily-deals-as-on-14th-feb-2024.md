@@ -437,3 +437,14 @@ description: |-
   200 Pcs Hair Ties
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  ✂️✂️ CLIP
+
+  8.xx
+
+  https://geni.us/oSwcwLf AD
+
+  Arts and Crafts for Kids Ages 8-12 - Make Your Own GEM Keychains
+
+  <!--EndFragment-->
