@@ -142,3 +142,9 @@ PRICE DROP
 https://mavely.app.link/e/iS8ScHOrcHb   AD
 3-Tier Kitchen Baker’s Rack with 10 Hooks
 PRICE DROP
+
+* <!--StartFragment-->
+
+  e.l.f. Flawless Brightening Concealer https://geni.us/nm5cBR ad
+
+  <!--EndFragment-->
