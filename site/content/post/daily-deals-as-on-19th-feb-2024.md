@@ -24,10 +24,10 @@ description: |-
   NO CODE NEEDED 
   https://amzn.to/3I27Fcy
   AD
-*  Easter Gnome Bunny - 2Pcs 
+* Easter Gnome Bunny - 2Pcs 
   https://amzn.to/3OMVCUi
   AD
-*  9 Bigger & Brighter Sunflowers Solar Lights 
+* 9 Bigger & Brighter Sunflowers Solar Lights 
   ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
   https://amzn.to/3SMMUXc
   AD
@@ -162,7 +162,7 @@ description: |-
   Fast-Push-Bubble-Game-Animal 
   https://amzn.to/3urQwWH
   AD
-*  45% OFF 
+* 45% OFF 
   FT Bunny Easter Inflatable Decorations Outdoor
   https://amzn.to/49dAIWA
   AD
@@ -182,7 +182,28 @@ description: |-
   ✂️ℂ𝕃𝕀ℙ 50%OFF  ℚℙ𝕆ℕ✂️
   https://amzn.to/3SzgjUJ
   AD
-*  50% OFF 
+* 50% OFF 
   Solar Outdoor Lights, (2 Pack)
   https://amzn.to/42zg9kY
-  AD
+  AD\
+  Lip Smacker Hello Kitty Ice Cream Lip Balm | Sanrio Collection | Gifts
+  https://geni.us/t45PQK 
+  Price drop  Grab & go 
+  ad
+* Christmas Fidget Toy - 15 Mini Groovy Globs 
+  https://geni.us/9VVKk 
+  Grab & go 
+  ad
+* Toddler Boys' Potty Training Pants 
+  42% off Price drop 
+  https://geni.us/XGGKf 
+  ad\
+  ✂️ CLIP C0UPON ✂️
+  5Pcs 5ml Portable Mini Refillable Perfume Atomizer Spray Bottle Scent Pump Case for Travel
+  Grab & go  50% C0UPON\
+  https://geni.us/cwwAcpN 
+  ad
+* Coloring and Activity Set - Bundle Includes Peppa Pig Coloring Book, Peppa Pig Stickers, and 2-Sided Door Hanger 
+  Grab & go 
+  https://geni.us/cYWX 
+  ad
