@@ -199,3 +199,11 @@ description: |-
   ‼PRICE DROP‼
 * Careers Doll & Playset\
   13.xx PRICE DROP https://geni.us/DXsK ad
+* 🌱🌿50% DROP 🌱🌿
+
+  https://geni.us/EUHIhBx
+
+  Polly Pocket Playset
+
+  ad
+*
