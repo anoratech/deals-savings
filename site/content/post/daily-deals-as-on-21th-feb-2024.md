@@ -28,7 +28,7 @@ description: |-
 * Grace & Stella Kiss Me Softly Nourishing Berry Lip Mask
   https://amzn.to/4bHKulv
   AD
-*  40% OFF 
+* 40% OFF 
   Cocktail Shaker Set, 5-Piece Mixology Bartender Kit
   https://amzn.to/3T8uFgx
   AD
@@ -139,7 +139,7 @@ description: |-
   ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
   https://amzn.to/3wkLonV
   AD
-*  🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃
+* 🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃
   6 Colors UV Glow Neon Eyeliner Pencil Set
   https://amzn.to/42K4VKm
   AD
@@ -197,3 +197,5 @@ description: |-
   Eau De Toilette for Men
   Save more with Subscribe & Save
   ‼PRICE DROP‼
+* Careers Doll & Playset\
+  13.xx PRICE DROP https://geni.us/DXsK ad
