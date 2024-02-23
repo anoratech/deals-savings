@@ -35,7 +35,7 @@ description: |-
   ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
   https://amzn.to/3T57HH2
   AD
-*  🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃
+* 🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃
   67%OFF
   RUNN!! 2 Pack  LIMIT 3 
   https://amzn.to/3uOeprq
@@ -75,4 +75,95 @@ description: |-
   26.00 (REG. 44.98)
   Gerber Baby Boy or Girl Unisex Clothes Outfit Set 8-Piece 
   https://go.magik.ly/ml/20ivo/
+  AD\
+  \
+  Crystal Noir for Women
+  ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  https://amzn.to/3UMZs3J
+  AD
+* PERFECT FOR PARTIES 
+  ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  💸𝗛𝗨𝗚𝗘 𝗗𝗥𝗢𝗣 𝗤𝗣𝗢𝗡💸
+  https://amzn.to/3uEUN9k
+  AD
+* 🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃
+  Rechargeable Motion Sensor Light (2 Pack)
+  50%OFF
+  https://amzn.to/3I8W4bE
+  AD
+* 2 Pack Crave Naturals Glide Thru Detangling Hair Brushes
+  50%OFF
+  https://amzn.to/3I8W9fs
+  AD
+* Grace & Stella Kiss Me Softly Nourishing Berry Lip Mask
+  https://amzn.to/4bHKulv
+  AD
+*  40% OFF 
+  Cocktail Shaker Set, 5-Piece Mixology Bartender Kit
+  https://amzn.to/3T8uFgx
+  AD
+* 12PCS Easter Eggs Squishy 
+  Chicks
+  ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
+  https://amzn.to/3SOoMDx
+  AD
+* Full Moon Chicken Nuggets Healthy All Natural Dog Treat
+  ✂️𝗦&𝗦✂️
+  https://amzn.to/3wrPB9h
+  AD
+* 🏃‍♀️𝐆𝐑𝐀𝐁 𝐧 𝐆𝐎🏃
+  Ear Moving Jumping Hat Funny Plush
+  https://amzn.to/48up9Jo
+  AD
+* Mrs. Meyer's All-Purpose Cleaner Spray, Pack of 3
+   48% OFF 
+  https://amzn.to/4bHFiOz
+  AD
+* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 
+  49.99 was 59.99
+  3Pcs Doctor Bag Sets
+  https://go.magik.ly/ml/20h7z/
+  AD
+* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 
+  29.99 was 49.99
+  Electronic Digital Safe Box
+  https://go.magik.ly/ml/20h6z/
+  AD
+* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 
+  35.99 was 79.99
+  Bluetooth Speaker 
+  https://go.magik.ly/ml/20h6o/
+  AD
+* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 
+  10.00 was 29.96
+  Toddler Boy Character Training Pants 12-Pack
+  https://go.magik.ly/ml/20h6j/
+  AD
+* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 
+  99.99 was 213.99
+  Wood Linen Cabinet with Doors and Drawers 
+  https://go.magik.ly/ml/20h6f/
+  AD
+* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 
+  59.00 was 79.99
+  KidKraft Luxe Life 2-in-1 Wooden Airport and Jet Plane Doll Play Set with Over 15 Accessories
+   https://go.magik.ly/ml/20c5u/
+  AD
+* 🏃‍♀️RUUNN‼🏃
+  BOGO 50% Off Toys & Games 
+  https://amzn.to/3SRVTHZ
+  AD
+* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
+  33.99 was 99.99
+  Artificial Plants, 5ft
+  https://go.magik.ly/ml/209gn/
+  AD
+* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧
+  55.99 was 99.99
+  12 Cup Food Processor
+  https://go.magik.ly/ml/209gp/
+  AD
+* Fruit of the Loom Women's Seamed Soft Cup Wirefree Cotton Bra
+  44%OFF
+  https://amzn.to/3UuUHvq
   AD
