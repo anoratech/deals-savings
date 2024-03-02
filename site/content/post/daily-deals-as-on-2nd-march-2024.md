@@ -154,3 +154,59 @@ description: |-
   50% off 
   use: 50KB5LR6 (works on Gold)
   https://amzn.to/3wy6zTr   ad
+* Quilted Northern Ultra Plush Toilet Paper 
+  https://geni.us/Sz2woGk 
+  Grab & go
+  ad
+* 76% OFF Velvet Liquid Blush
+  Grab & go
+  76% off price drop
+  https://amzn.to/3PqbpsH
+  ad
+* 50% OFF Straw Cover Cap --12 Pcs
+  Grab & go 
+  50% off Code: 50KHPKTP 
+  https://amzn.to/3VhDupR 
+  ad
+* Maybelline New York Great Lash Lots Of Lashes Washable Mascara, Brownish Black, 0.86 fl oz, 2 Count
+
+  Save with Coupon 
+  https://amzn.to/3wC4l5A
+  Ad
+* COVERGIRL, Clean Fresh Skin Milk Foundation, Light, 1 Fl Oz (Pack of 1)
+
+  Grab & go 
+  Price drop
+  https://amzn.to/3PqxM19
+  Ad
+* 75% OFF Moissanite Engagement Rings 
+  50% off Code: 50VZ9EQA + 25% off coupon\
+  https://amzn.to/3IhuxEW 
+  ad
+* Air Fryer, Clear Windows 
+  Price drop 
+  https://geni.us/9V46p 
+  ad 
+* Moisturizing Cream
+  Price drop
+  https://geni.us/8uK1X
+  ad
+* 4 PCs These are bigger and hold a lot! Save 50% with this link - discount will auto apply at checkout!
+
+  https://geni.us/5PBMH6 
+  Ad
+* Yankee Candle Studio Medium Candles (several scents on sale)
+  Grab & go
+  Price drop
+  https://geni.us/hymW
+  ad
+* The Very Hungry Caterpillar
+  https://geni.us/xRY2bgA 
+  ad 
+* PAW Patrol Mighty Pups Save Adventure Bay for Nintendo Switch 
+
+  53% off 
+
+  https://geni.us/mi3OehH 
+
+  ad
