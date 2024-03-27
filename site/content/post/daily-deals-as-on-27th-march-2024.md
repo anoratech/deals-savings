@@ -22,7 +22,7 @@ description: |-
   💸𝗛𝗨𝗚𝗘 𝗗𝗥𝗢𝗣 𝗤𝗣𝗢𝗡💸
   https://amzn.to/3xcplQy
   AD
-*  Professional Metal Detector
+* Professional Metal Detector
   🔥 5 0 %  O F F🔥
   USE➡️50XP1HL7
   https://amzn.to/4av6wq5
@@ -75,8 +75,43 @@ description: |-
   50%OFF
   https://amzn.to/3x9WufH
   AD
-*  6 0 % O F F\
+* 6 0 % O F F\
    Moving Sand Art Lamp
   USE➡️ 503EAKH9 
   https://amzn.to/3TyftIy
-  AD
+  AD\
+  40 oz Tumbler with Handle and Straw
+  50% off Price Drop
+  https://geni.us/do1S
+  ad 
+* 4PCS Mini Lint Roller Balls - Washable
+  50%OFF Grab & go
+  Code: 50KNVE9U
+  https://geni.us/BphRg
+  ad
+* 21 Pcs Gel Nail Polish
+  50%OFF Grab & go
+  Code: FRKPHLBN
+  https://geni.us/97WR
+  ad
+* Children's Books on drop #EasterGifts 🔗🔗👇🏻👇🏻
+  https://geni.us/Rs63K Ad
+* Cookie Variety Pack,
+  Price drop
+  https://geni.us/fzTQR4
+  ad
+* STITCH Disney’s Lilo 7.5 Inch Beanbag Plushie
+  Price drop Grab & go 6.xx
+  https://geni.us/LPgFogF
+  ad
+* Household Supplies on drop 🔗🔗👇🏻👇🏻
+  https://geni.us/yhmkEC ad
+* Easter Essentials on drop 🏃🏻‍♀️🏃🏻‍♀️🏃🏻‍♀️
+  🔗🔗👇🏻
+  https://geni.us/GZMRP ad
+* Stitch Merchandise Stuff Gift Set for girls
+  https://geni.us/Z5gBT
+  Price drop
+  ad
+* Disney lilo & stitch deals 🔗🔗👇🏻👇🏻
+  https://geni.us/Xxxuzd ad
