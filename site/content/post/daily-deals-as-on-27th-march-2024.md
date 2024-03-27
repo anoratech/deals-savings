@@ -94,7 +94,7 @@ description: |-
   Code: FRKPHLBN
   https://geni.us/97WR
   ad
-* Children's Books on drop #EasterGifts 🔗🔗👇🏻👇🏻
+* Children's Books on drop EasterGifts 🔗🔗👇🏻👇🏻
   https://geni.us/Rs63K Ad
 * Cookie Variety Pack,
   Price drop
