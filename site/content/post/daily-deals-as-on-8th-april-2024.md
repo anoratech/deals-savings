@@ -33,7 +33,7 @@ description: |-
   USE⏩F9DRIXGB + ℚℙ𝕆ℕ✂️
   https://amzn.to/3PUHA3r
   AD
-*  Storage Bags--6 Pcs
+* Storage Bags--6 Pcs
   40% OFF
   USE ⏩65B5TNV2 
   https://amzn.to/49qWkOG
@@ -117,4 +117,77 @@ description: |-
    High Speed Hair Dryer
   USE⏩50GKOEHB + ℚℙ𝕆ℕ✂️
   https://amzn.to/3PUMkWZ
-  AD
+  AD\
+  \
+  https://mavely.app.link/e/9Ru9f0fqBIb   ad
+  All Natural 100% Pineapple Juice, 6 fl oz Can
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/0XJEYV5oBIb   ad
+  TONS OF CLOTHES ON CLEAR@NCE #walmart !!!!
+* https://mavely.app.link/e/5DgVXPJIAIb  ad
+  Kids soft plush dinosaur bean bag chair 
+  25 (Reg. 40!) 
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/7SyD9FkHAIb  ad
+  Mini Beauty Fridge 💲29.88 (Reg. 40!) 
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/4yKYjJXFAIb
+  12.xx 
+  13"x9" Aluminum Foil Cake Pans, 50 Count
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* 🌈🌈CAMPING SUPPLY SALE🏃‍♀️🏃‍♀️ walmart
+  https://mavely.app.link/e/NhHcyltFAIb   ad
+* https://geni.us/BMRvD   ad
+  Coworker Leaving Gifts for Women - Coworker Gifts for Women - Farewell Going Away Gifts for Coworkers 
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/A9nhuofPzIb
+  28.80 (REG. 69.00)
+  Automatic 1.5 Qt Frozen Yogurt-Ice Cre am & Sorbet Maker
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/ZM41QtRMzIb   ad
+  6.xx
+  Childrens Adirondack Chair Turquoise
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/U19TfWvLzIb
+  7.02 (REG. 16.98)
+  Inflatable Splash Pad with Sprinkler System for Kids Ages 1 and up
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/EdfgYJpKzIb   AD
+  17.66\
+  16" 3-Speed Oscillating Pedestal Fan with Folding Base, Adjustable Height and Tilt,41"- 47", White
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/RlB4psG5yIb    AD
+  17.28 (REG. 39.98)
+  6 Can Mini Fridge
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/iL3m3DQ4yIb  AD
+  10'x20' Ez Pop up Canopy Tent, Commercial Instant Canopies with 6 Removable Sidewalls
+  Now $189.99
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/wbyAbzF3yIb   AD
+  Baby Food Maker, Multi-Function Baby Food Processor
+  Now $69.99
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/TkraVCd2yIb   AD
+  Kid Keyboard Piano, 37 Key Portable Electronic Piano Keyboard with Microphone Musical Instrument 
+  Now $21.99
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/MElJLlCRUDb   AD
+  Now $69.99
+  You save $60.00
+  Baby Swing for Infants - APP Remote Bluetooth Control, 5 Speed Settings, 10 Lullabies, USB Plug (Gray)
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/PdLc0DopyIb   ad
+  Now $49.97
+  Toy Story 4 Plastic Toddler Bed by Delta Children
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/GOPzIoEayIb   ad
+  Now $129.99
+  You save $130.00
+  60”Convertible Sofa Bed Small Folding Loveseat Couch Removable Armrest
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
+* https://mavely.app.link/e/bQANPuk9xIb   AD
+  L-Shaped Computer Desk Office Workstation Laptop Wooden Table 2-Layer Bookshelves
+  Now $84.99
+  You save $42.50
+  ･:ﾟ*:･｡ﾟ☆⭐ℍ𝕌𝔾𝔼 ℙℝ!ℂ𝔼 𝔻ℝ𝟘ℙ⭐☆ ･:ﾟ*:･｡
