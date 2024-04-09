@@ -49,3 +49,14 @@ description: Exciting deals for TOYS
   ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  50 ASSORTED POKEMON CARDS
+
+  🏃‍♂️💳 𝔾𝕣𝕒𝕓 & 𝔾𝕠 𝕎𝕚𝕥𝕙 ℂ𝕠𝕦𝕡𝕠𝕟 💸💨
+
+  https://geni.us/nW66H
+
+  ad
+
+  <!--EndFragment-->
