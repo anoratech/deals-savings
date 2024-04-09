@@ -5,6 +5,62 @@ tags: AMAZON
 Category: KIDS
 description: Exciting deals for TOYS
 ---
+
+
+* DinoSquad Armorstrike Dart Blaster 
+  62% Off 
+  https://geni.us/g3N9P
+  ad 
+* .Teenage Mutant Ninja Turtles 
+   🏃‍♂💳 𝔾𝕣𝕒𝕓 & 𝔾𝕠  💸💨 
+  https://geni.us/aYN5nt
+  ad
+* Dinosaur Toys, 252 PCS Create A Dinosaur World Road Race Tracks
+  https://geni.us/YmDgpuQ\
+  ⬇ PRICE DROP ⬇ 
+  ad  
+* 50 ASSORTED POKEMON CARDS
+  🏃‍♂💳 𝔾𝕣𝕒𝕓 & 𝔾𝕠 𝕎𝕚𝕥𝕙 ℂ𝕠𝕦𝕡𝕠𝕟 💸💨
+  https://geni.us/nW66H
+  ad 
+* Little Machines 5pk Truck Toy Set,
+  🏃‍♂💳 𝔾𝕣𝕒𝕓 & 𝔾𝕠 💸💨
+  🔽 PRICE DROP ⏬
+  https://geni.us/s4IX2dh
+  ad 
+* Charm Bracelet Making Kit & Unicorn/Mermaid Girl Toy
+  Price Drop +code
+  ( code: 5JSHL8ZW on page )
+  https://geni.us/z4jh3XX
+  ad 
+* Remote Control Car，Transform Robot RC Cars with Cool LED Headlights,
+  Price Drop + coupon 
+  52% Off\
+  https://geni.us/D4HBr
+  ad
+* LCD Writing Tablet for Kids 
+  50% clip coupon 
+  https://geni.us/HEsCE 
+  ad
+* Elite 2.0 Commander RD-6 Dart Blaster, 12 Darts, 6-Dart Rotating Drum,\
+  Grab & go 
+  https://geni.us/AkeCVqV 
+  ad 
+* L.O.L. Surprise! 
+  https://geni.us/MqHAB 
+  Grab & go ad
+* Fashion Fidgets Sensory Toy Dolls – Push Pop Fidget Toy 
+  https://amzn.to/4as5NGu 
+  Grab & go ad 
+* The Super Mario Bros
+  https://amzn.to/49A6bl8
+  ad
+* 29PCS Real Washable Kids Toys
+  https://amzn.to/3xlWGsj
+  ad 
+* Fire Truck Toy for Boys,
+  46% Off https://geni.us/EwR7Mos 
+  ad
 * https://amzn.to/4ayEyug   ad
   Cute Dinosaur Plush Toys, Fat Dinosaur Stuffed Animals Dolls
   PRICE DROP
