@@ -11,7 +11,7 @@ image: img/whatsapp-image-2024-04-09-at-3.25.19-pm.jpeg
   USE⏩ PZXWQ3LJ
   https://amzn.to/4cLZgYX
   AD
-*  Baby Baby Girls' Cotton Dresses
+* Baby Baby Girls' Cotton Dresses
   ‼️NO CODE NEEDED ‼️
   https://amzn.to/3J7URlA
   AD
@@ -68,4 +68,26 @@ image: img/whatsapp-image-2024-04-09-at-3.25.19-pm.jpeg
   PRICE DROP
 * https://amzn.to/3JgIMdC   ad
   Women's 2024 Summer Ruched Bodycon Dress Sleeveless One Shoulder
-  PRICE DROP
+  PRICE DROP\
+  \
+  Womens Summer Dresses\
+  https://geni.us/gDAQd8 
+  50% off 
+  ad  
+* 45% OFF Women's Summer Tops
+   https://geni.us/kSb47qi
+    Code: 40Y6YNVU   𝕎𝕚𝕥𝕙 ℂ𝕠𝕦𝕡𝕠𝕟 
+  ad 
+* Boho Dresses for Women 2024 Summer Linen Floral\
+  50% Off CODE: U2GVA34J 
+  https://geni.us/p4dFX 
+  ad 
+* Cotton and linen suit 
+  50% Off   code： UZGE9V68 
+  https://geni.us/9CFo
+  ad 
+* Women's Sleeveless Chiffon Tank Top 
+  50% Off     𝕎𝕚𝕥𝕙 ℂ𝕠𝕦𝕡𝕠𝕟 💸💨 
+  code： L32GYVM5 
+   https://geni.us/l1a9XCZ 
+  ad
