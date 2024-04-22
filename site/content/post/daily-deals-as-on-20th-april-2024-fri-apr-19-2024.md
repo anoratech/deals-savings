@@ -1,5 +1,5 @@
 ---
-title: Daily deals as on 20th April 2024 Fri, Apr 19, 2024
+title: "Daily deals as on 20th April 2024 "
 date: 2024-04-20T10:18:34.066Z
 tags: AMAZON
 Category: OTHERS
