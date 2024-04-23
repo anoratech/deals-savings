@@ -1,10 +1,10 @@
 ---
-title: "Daily deals as on 22th April 2024 "
+title: "Daily deals as on 22nd April 2024 "
 date: 2024-04-22T09:15:27.289Z
 tags: AMAZON
 Category: OTHERS
 description: |-
-  Daily deals as on 22th April 2024 like our page for more details
+  Daily deals as on 22nd April 2024 like our page for more details
    https://www.facebook.com/profile.php?id=100063621219864
 ---
 ‼️3 piece Zero Gravity Lounge Chair & Table Sets ‼️
