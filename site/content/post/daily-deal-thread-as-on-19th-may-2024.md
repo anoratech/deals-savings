@@ -28,3 +28,22 @@ image: img/blue-and-pink-geometric-sale-quick-create-facebook-post.png
 * https://geni.us/TTnvW ad
   48% off
   Sunflower Garden Window Kitchen Curtain Tier and Valance, Yellow, 36-Inch Tier Set !!
+* <!--StartFragment-->
+
+  Women's Sleeveless Textured Tops -n0 c0de [https://amzn.to/4dFz2bb](https://amzn.to/4dFz2bb?fbclid=IwZXh0bgNhZW0CMTAAAR0J74XTwnCpCoSx3H08rL6GBDeAR524wiFvwCCKPa2FQ8c8S6VcfEDGIvI_aem_AWUFy1yrSCee8ans-UzCxN4HYqCNaFxXTMGoOs4XsBqhxXQ6ytgsIRL-ewG1fo4eITi7Ka2jQTPx-v_Y9qChXAo0) ad
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
+  77% off Dollhouse Kitty Narwhal’s Carnival Room, with Toy Figure ad [https://amzn.to/4bKJbBm](https://amzn.to/4bKJbBm?fbclid=IwZXh0bgNhZW0CMTAAAR1QUrQhcnUCdO3VNfREkZo7eOvMBrC1wT0KP0aaPkEEk8Tzf7wwXEMidTs_aem_AWV5w139e1ddWvY0BnOiosOcG5no2f-qM4NEZVjxRCI_FFQWjv3u4fxVbfud77NXzp-j4aBm0cUPobuxuHKc9BzF)
+
+  <!--EndFragment-->
+* <!--StartFragment-->
+
+  [https://geni.us/kU7PZlT](https://geni.us/kU7PZlT?fbclid=IwZXh0bgNhZW0CMTAAAR0gm78QDeN0BdCpxf5wCD7WpxxmQTSqsYOISSBY3B4DFr4f-akWURvY7_o_aem_AWXf6pfJ1bp6ERixK3yxqDKDNX9WBZeCJyob4a-Piq7VS-binpgsXC7LYYIHxhoZm1gzfSv2Ej14qpZO9w6k0KZE) ad
+
+  Camping Sleeping Bag
+
+  51% OFF
+
+  <!--EndFragment-->
