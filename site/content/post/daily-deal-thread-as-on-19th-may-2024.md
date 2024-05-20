@@ -62,3 +62,8 @@ image: img/blue-and-pink-geometric-sale-quick-create-facebook-post.png
   drink and food storage containers are 50% 0FF right now! ad [https://amzn.to/44OdCnY](https://amzn.to/44OdCnY?fbclid=IwZXh0bgNhZW0CMTAAAR03JTSAQ7turUXyTuvyoh_TtH1dnHgqca0DZwMoj-5pHdgxY7FReY1siLg_aem_AWVmauMbdQp2qxUlcGJsOE_M0SlyQ9wSHWGoBC9DI-p3S6RuRZacOzAesgJYRhZbmQIqJFX2EI5UwRTipKw0m0F4)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Inflatable Water Slide Bounce House priec drop [https://amzn.to/3QQh9wm](https://amzn.to/3QQh9wm?fbclid=IwZXh0bgNhZW0CMTAAAR3JgcMQc3gn8IzOVXgselvxAap_TNAvnAmfjhvyF82pi_xISI9Va54YF_4_aem_AWU1SRirw6hYDgsgR1J_92atkHQeSS7WAxewys3ULUamxl60-adv7_Dq2ap1GfRxCUVgpQsOuByQiu5fcyKaWJ8h) ad
+
+  <!--EndFragment-->
