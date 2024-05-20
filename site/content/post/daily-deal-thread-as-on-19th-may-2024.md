@@ -22,3 +22,6 @@ image: img/blue-and-pink-geometric-sale-quick-create-facebook-post.png
 * Super deals on Nerf and more!  ad https://geni.us/O50qv
 * Wild One Birthday Decorations Girl, ad https://geni.us/0tsPex
 * Moon Lamp Galaxy Lamp ad https://amzn.to/3ULPUo0 ad
+* https://geni.us/rIFfJYR ad
+  LEGO The Mandalorian’s N-1 Starfighter Microfighter
+* under 3! Digital Teaching Math Stamp ad https://amzn.to/3yle0y6
