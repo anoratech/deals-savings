@@ -81,3 +81,12 @@ image: img/blue-and-pink-geometric-sale-quick-create-facebook-post.png
   43% OFF
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  [https://geni.us/P3vuz6A](https://l.facebook.com/l.php?u=https%3A%2F%2Fgeni.us%2FP3vuz6A%3Ffbclid%3DIwZXh0bgNhZW0CMTAAAR3JgcMQc3gn8IzOVXgselvxAap_TNAvnAmfjhvyF82pi_xISI9Va54YF_4_aem_AWU1SRirw6hYDgsgR1J_92atkHQeSS7WAxewys3ULUamxl60-adv7_Dq2ap1GfRxCUVgpQsOuByQiu5fcyKaWJ8h&h=AT2VX5TRJ-G-mUjkKiPn8ab8ErSyS8ezv9Q6SIT9f5bgfV6uV0TFBZOS6zM-J2fMgE5MINv3Z8lnAWgVFHbX9K2CmLjksVIwfsymOGl4hp-VsGZC4ULC6BWrxBEHnDpKqLNnKLNckGw_exHThuVM&__tn__=R]-R&c[0]=AT0VOSWTmwTmkZjtvv2c9F8UTfFj_H0Z0QLWmEE0CXUR8FoM5ejNCyogw8saqw8-zdsGMHSdFJXHo_xyoy5R4q-ywgudf4m7XhPGX1jUbrAk9rlnBUeqIQM-DfVPxAjardVbfPagPb2k0ve98S6iQ0qcMoD2vEUWN9o12Nw6DEtXvxwwSmQpba7RVN7dJF6R9652jZKu5rbjGB8Y71mG5qUuqw_iz-7U5vwG) ad
+
+  LED Rechargeable Book Light
+
+  63% OFF
+
+  <!--EndFragment-->
