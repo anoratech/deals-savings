@@ -47,3 +47,8 @@ image: img/blue-and-pink-geometric-sale-quick-create-facebook-post.png
   51% OFF
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Pool and Spas ad [https://amzn.to/4aoTXw5](https://amzn.to/4aoTXw5?fbclid=IwZXh0bgNhZW0CMTAAAR0zI03AM5TCeNlnM_FgHOmeck39YVZktIqkF1NCqmDuTrLbktiLa-_BDdk_aem_AWUf6E6n28uKQ-rQN-1IzDboyDt7bbKWjS-uCwt9XgN3ePKqMyQbJGSDhDTjFlWaFXYFqNu2ew908cqIfCPD7BrQ)
+
+  <!--EndFragment-->
