@@ -52,3 +52,8 @@ image: img/blue-and-pink-geometric-sale-quick-create-facebook-post.png
   Pool and Spas ad [https://amzn.to/4aoTXw5](https://amzn.to/4aoTXw5?fbclid=IwZXh0bgNhZW0CMTAAAR0zI03AM5TCeNlnM_FgHOmeck39YVZktIqkF1NCqmDuTrLbktiLa-_BDdk_aem_AWUf6E6n28uKQ-rQN-1IzDboyDt7bbKWjS-uCwt9XgN3ePKqMyQbJGSDhDTjFlWaFXYFqNu2ew908cqIfCPD7BrQ)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  $15 2-Pc. Set Enamel Kitty Stud Earrings in Sterling Silver & Ceramic Trinket Dish [https://go.sylikes.com/eMJz3Dm9K0op](https://go.sylikes.com/eMJz3Dm9K0op?fbclid=IwZXh0bgNhZW0CMTAAAR3t04grtYHssXzVb0YP-MlSyUK1_ajbAl3SWIvYp-UL1QydZB4WIYfivNE_aem_AWVfHxnATGf6Zj9348uJ1a0odX2tkX3zNBE9tifNbZT0K5YAvJcNumIG5ug3urQa0tjSXIAtw2oKujAB462aR5a6) ad
+
+  <!--EndFragment-->
