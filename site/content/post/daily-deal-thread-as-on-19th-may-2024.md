@@ -57,3 +57,8 @@ image: img/blue-and-pink-geometric-sale-quick-create-facebook-post.png
   $15 2-Pc. Set Enamel Kitty Stud Earrings in Sterling Silver & Ceramic Trinket Dish [https://go.sylikes.com/eMJz3Dm9K0op](https://go.sylikes.com/eMJz3Dm9K0op?fbclid=IwZXh0bgNhZW0CMTAAAR3t04grtYHssXzVb0YP-MlSyUK1_ajbAl3SWIvYp-UL1QydZB4WIYfivNE_aem_AWVfHxnATGf6Zj9348uJ1a0odX2tkX3zNBE9tifNbZT0K5YAvJcNumIG5ug3urQa0tjSXIAtw2oKujAB462aR5a6) ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  drink and food storage containers are 50% 0FF right now! ad [https://amzn.to/44OdCnY](https://amzn.to/44OdCnY?fbclid=IwZXh0bgNhZW0CMTAAAR03JTSAQ7turUXyTuvyoh_TtH1dnHgqca0DZwMoj-5pHdgxY7FReY1siLg_aem_AWVmauMbdQp2qxUlcGJsOE_M0SlyQ9wSHWGoBC9DI-p3S6RuRZacOzAesgJYRhZbmQIqJFX2EI5UwRTipKw0m0F4)
+
+  <!--EndFragment-->
