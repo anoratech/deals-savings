@@ -67,3 +67,8 @@ image: img/blue-and-pink-geometric-sale-quick-create-facebook-post.png
   Inflatable Water Slide Bounce House priec drop [https://amzn.to/3QQh9wm](https://amzn.to/3QQh9wm?fbclid=IwZXh0bgNhZW0CMTAAAR3JgcMQc3gn8IzOVXgselvxAap_TNAvnAmfjhvyF82pi_xISI9Va54YF_4_aem_AWU1SRirw6hYDgsgR1J_92atkHQeSS7WAxewys3ULUamxl60-adv7_Dq2ap1GfRxCUVgpQsOuByQiu5fcyKaWJ8h) ad
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  Baby Girl Headbands with Bows, 20 Colors under 8 [https://amzn.to/3UOFunr](https://amzn.to/3UOFunr?fbclid=IwZXh0bgNhZW0CMTAAAR0dO8LKLyAV5pqIFD3hHURbqFMOmGOJyOyyWxrXbTqtwmOOQ8ZAPxPu8mo_aem_AWU38K7ok_dlw-nnhXyIyfhZ6S2Usdb1bND4Oz_5ZG5U-fjCQwMz3qb09V-syMM-AERchxBu1qt3FBQr_X_tV7jo) ad
+
+  <!--EndFragment-->
