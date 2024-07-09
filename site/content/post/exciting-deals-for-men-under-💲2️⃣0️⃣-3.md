@@ -88,5 +88,46 @@ image: blob:https://slicksavers.com/54938bf2-465d-44cd-b8ee-77545aefa593
 * Gifts for Men,
   https://amzn.to/3Lizf7c
   AD
+* PRICE DROP
+  https://amzn.to/3xX3kph    ad
+  Mens Ecosmart Hoodie
 
   \====================
+* PRICE DROP
+  https://amzn.to/4aRdoyT   ad
+  ComfortSoft EcoSmart Men's Fleece Sweatpants
+
+  \====================
+* PRICE DROP
+  https://amzn.to/3wo4xW6   ad
+  Men's T-shirt
+
+  \====================
+* PRICE DROP
+  https://amzn.to/3UE1RwQ   ad
+  Super Universal Socket Tools Gifts for Dad Father Husband
+
+  \====================
+* PRICE DROP
+  https://amzn.to/4a5I91S    ad
+  Men's Wallets 15 Card Holder Slim Rfid Leather
+
+  \====================
+* PRICE DROP
+  https://amzn.to/3UmtPfu   ad
+  Midweight Fleece Sweatshirt, Pullover Hooded Sweatshirt for Men
+
+  \====================
+* PRICE DROP
+  https://amzn.to/44kxFu4    ad
+  Essentials Men's Full-Zip Fleece Jacket (Available in Big & Tall)
+
+  \====================
+* PRICE DROP
+  https://amzn.to/3Wpj3b3   ad
+  Ratchet Belt Dress with 1 3/8" Premium Leather
+
+  \====================
+* PRICE DROP
+  https://amzn.to/44mvWo1   ad
+  Men's V-Neck T-Shirts, Multipack, Style G1103
