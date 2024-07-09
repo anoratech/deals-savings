@@ -122,6 +122,3 @@ image: blob:https://slicksavers.com/54938bf2-465d-44cd-b8ee-77545aefa593
   https://amzn.to/3Wpj3b3   ad
   Ratchet Belt Dress with 1 3/8" Premium Leather
   ====================
-* 𝐏𝐑𝐈𝐂𝐄 𝐃𝐑𝐎𝐏
-  https://amzn.to/44mvWo1   ad
-  Men's V-Neck T-Shirts, Multipack, Style G1103
