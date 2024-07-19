@@ -73,9 +73,9 @@ description: HOT DEALS
   Men's 559 Relaxed Straight Jeans 
   29.XX with Prime (was 69.XX)
   https://amzn.to/3WpTpm2
-  ad
+  ad====================
 
-  \====================
+
 * 𝐏𝐑𝐈𝐂𝐄 𝐃𝐑𝐎𝐏
   BUG BITE THING Suction Tool - Bug Bites and Bee/Wasp Stings, Natural Insect Bite Relief, Pink
   https://amzn.to/4cIe0HV   ad
