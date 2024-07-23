@@ -60,3 +60,69 @@ description: See all De@lS Here
   4.XX w/ extra s&s clip\
   Slow Cooker Liners, Regular 
   https://amzn.to/3SfS1Qk  AD 📌
+* # PRICE DROP
+
+  50℅ OFF 
+   C0DE 50KXGY89
+  Ice Cube Tray with Lid and Bin
+  https://amzn.to/3zORzlL    AD 📌
+* # PRICE DROP
+
+  60% OFF 
+  Becky Turn Lock Satchel
+  https://amzn.to/3xYsYdQ   AD 📌
+* # PRICE DROP
+
+  Dresser with 3 Drawers, Fabric Nightstand
+  https://amzn.to/3A2ltD1   AD 📌
+* # PRICE DROP
+
+  Apply  c0upon
+  All Season Queen Comforter Winter Warm Summer Soft Quilted
+  https://amzn.to/3WHsOkF  AD 📌
+* # PRICE DROP
+
+  This Gaming Chair is 53% off! 
+  https://amzn.to/4d7Nzes  AD 📌
+* # PRICE DROP
+
+  https://geni.us/VC7z\
+  Microwavable Macaroni and Cheese Cups (8 ct)
+  *Save more with Subscribe & Save AD 📌
+* # PRICE DROP
+
+  Dog Waste Bags, Lavender Scented, 270 Count
+  *Save more with Subscribe & Save
+  https://amzn.to/3SjVDAN  AD 📌
+* # PRICE DROP
+
+  Stainless Steel Skeleton Dangling Barbells
+  70 %off
+  Save at checkout + Use C0de: XEK77Z2F
+  https://amzn.to/3WvCJJH   AD 📌
+* # PRICE DROP
+
+  Convertible Sofa
+  ✂ coupon
+  https://amzn.to/46gsZX9   AD 📌
+* # PRICE DROP
+
+  Swing Top Glass Bottle, 8 Pack 8.5/17oz Flip Top Brewing Bottles with Airtight Lid 
+  ✂ coupon
+  https://amzn.to/3Ye1Thl  AD 📌
+* # PRICE DROP
+
+  50% Off 26 Pcs Food Storage Containers with Airtight Lids ONLY 15.XX
+  https://amzn.to/3SgAsQa  AD 📌
+* # PRICE DROP
+
+  7-piece Workpro Pliers Set with Groove Joint just 19.xx
+  https://amzn.to/4bT91Tz   AD 📌
+* # PRICE DROP
+
+  24 Inches Metal Bar Stools Bar Height High Backless Stools Indoor Outdoor Stackable Kitchen Stools Set of 4
+  https://amzn.to/3WgNwWQ   AD 📌
+* # PRICE DROP
+
+  Retinol Body Lotion Firming Moisturizer |
+  https://amzn.to/46gM6Am   AD 📌
