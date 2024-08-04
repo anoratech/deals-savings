@@ -11,37 +11,27 @@ description: AMAZING HOT DEALS
   https://amzn.to/3AalOny<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81TdrrIcCiL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ♥ HUGE MARKDOWN ♥
   Hair Removal Cream
   https://amzn.to/4ftpCQF<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61gw9xAS4SL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * ♥ HUGE MARKDOWN ♥
   Sp1derman Head Ceramic Cup
   https://amzn.to/46KB0UF<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71HiMhTSxTL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ♥ HUGE MARKDOWN ♥
   Desktop Computer
   ONLY IO4.xx
   https://amzn.to/3A4cjGr<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71fssf27L+L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ♥ HUGE MARKDOWN ♥
   @pple iPad Pro 11-inch 
   https://amzn.to/4d41R09<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81S05k6p0xL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://geni.us/UuIB4U    AD
   Portable Mini Treadmill  JUST 99.XX
 * ♥ HUGE MARKDOWN ♥
@@ -49,16 +39,12 @@ description: AMAZING HOT DEALS
   https://amzn.to/3A5I0zb<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71R5C6jl91L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * ♥ HUGE MARKDOWN ♥
   Divided Snack Serving Tray with Lid and Handle
   9.Xx 
   https://amzn.to/4dt5bll   AD<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71GzPkb2zqL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * ♥ HUGE MARKDOWN ♥
   Big and Tall Office Chair 400lbs Wide Seat
   279.XX
@@ -76,16 +62,12 @@ description: AMAZING HOT DEALS
 
   ![](https://m.media-amazon.com/images/I/718REgzGBHL._AC_SL1500_.jpg)
 
-  <!--EndFragment-->
-
   ♥ HUGE MARKDOWN ♥
   Original Macaroni & Cheese Microwavable Dinner (18 ct Packets)
   Stock up🏃‍♀🏃‍♀💥💥
   https://amzn.to/3YxO7q9<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/715kw5O-11L._SL1500_.jpg)
-
-  <!--EndFragment-->
 
   ♥ HUGE MARKDOWN ♥
   13 w/ C-upon and s&s 
@@ -111,8 +93,6 @@ description: AMAZING HOT DEALS
   https://amzn.to/3Yr9ysT<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81FZ5Up8sJL._SL1500_.jpg)
-
-  <!--EndFragment-->
 
   ♥ HUGE MARKDOWN ♥
   All-in-One Wireless Inkjet Printer 
@@ -142,8 +122,6 @@ description: AMAZING HOT DEALS
   https://amzn.to/3WItgis<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81j68d7Jh3L._SL1500_.jpg)
-
-  <!--EndFragment-->
 
   ♥ HUGE MARKDOWN ♥
   Adult Incontinence Pads for Women, 162 CT
@@ -193,8 +171,6 @@ description: AMAZING HOT DEALS
   https://amzn.to/3ysfBTa<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81IeLpxIVPL._SL1500_.jpg)
-
-  <!--EndFragment-->
 
   ♥ HUGE MARKDOWN ♥
   Cold Press Juicer
