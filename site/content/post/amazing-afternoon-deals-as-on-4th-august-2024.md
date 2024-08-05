@@ -1,9 +1,9 @@
 ---
-title: AMAZING AFTERNOON DEALS as on 4th AUGUST 2024
+title: AMAZING AFTERNOON DEALS as on 5th AUGUST 2024
 date: 2024-08-05T14:54:53.507Z
 tags: AMAZON
 Category: OTHERS
-description: AMAZING AFTERNOON DEALS 4th AUGUST 2024 like our page for more
+description: AMAZING AFTERNOON DEALS 5th AUGUST 2024 like our page for more
   details https://www.facebook.com/profile.php?id=1000636212198641st AUGUST
 ---
 Just 7.xx
