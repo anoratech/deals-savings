@@ -9,23 +9,17 @@ description: AMAZING HOT DEALS
   https://amzn.to/3SC0hub<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71iLfMdKj4L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Life is Better at The Campsite Camper/RV Queen-Sized Bed Sheet Set for 36.XX
   ♢Ｎ░ＤＲ♢Ｐ
   https://amzn.to/3Sxk0eE<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81foshFyXgL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Protein Shake, Cookie Dough, 11.5 Fl Oz (12 Pack)
   CL!P C0UPON & CHECKOUT VIA SUBSCRIBE & SAVE - YOU CAN CANCEL SUBSCRIPTION ONCE YOUR ORDER SHIPS.
   ♢Ｎ░ＤＲ♢Ｐ
   https://amzn.to/4cfjQzw<!--StartFragment-->
 
   ![Premier Protein Shake, Cookie Dough, 11.5 Fl Oz (12 Pack), 30g Protein, 1g Sugar, 3g Carbs](https://m.media-amazon.com/images/I/81vw8+EonPL._SX679_PIbundle-12,TopRight,0,0_AA679SH20_.jpg)
-
-  <!--EndFragment-->
 * CL!P THAT B!G C0UP0N!!
   4 Pack Antiperspirant for Women
   CL!P C0UPON & CHECKOUT VIA SUBSCRIBE & SAVE - YOU CAN CANCEL SUBSCRIPTION ONCE YOUR ORDER SHIPS.
@@ -37,28 +31,20 @@ description: AMAZING HOT DEALS
   https://amzn.to/3AbMPXx<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/51K0O9EfmSL._SR400,400_.jpg)
-
-  <!--EndFragment-->
 * ST0CK UP TIME! 🔥🔥🔥
   12 Pack Toothbrushes for 6.xx
   https://amzn.to/46xbodI<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/912IDUOaQdL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Rope Storage Organizer Basket for 19.xx
   https://amzn.to/3YCtjxL<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/812EwCc-HdL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Keyless Entry Door Lock 
   ♢Ｎ░ＤＲ♢Ｐ
   https://amzn.to/3SBX4L9<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61jgj6ShrkL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Rotary Cheese Grater 
   23.xx 
   ♢Ｎ░ＤＲ♢Ｐ
@@ -73,8 +59,6 @@ description: AMAZING HOT DEALS
   https://amzn.to/3YPBdUD<!--StartFragment-->
 
   ![Hisense 65-Inch Class U6HF Series ULED 4K UHD Smart Fire TV (65U6HF, 2024) - QLED, 600-Nit Dolby Vision, Game Mode Plus VRR, HDR 10+, 240 Motion Rate, MEMC, Voice Remote, Compatible with Alexa, Black](https://m.media-amazon.com/images/I/71oAhtaqY1L.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * 70%OFF
   Halloween Sweatshirts for Women 
   17.XX
@@ -83,8 +67,6 @@ description: AMAZING HOT DEALS
   https://amzn.to/3YqoJm2<!--StartFragment-->
 
   ![Halloween Sweatshirts for Women Cute Ghost Long Sleeve Sweater Spooky Shirt Fall Casual Pullover Graphic Tops](https://m.media-amazon.com/images/I/81FJipgUq0L._AC_SX679_.jpg)
-
-  <!--EndFragment-->
 * Electric Kettle
   24.XX
   ♢Ｎ░ＤＲ♢Ｐ
@@ -131,5 +113,3 @@ description: AMAZING HOT DEALS
   https://amzn.to/4fw5Dkm<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61R3gkaoPbL._AC_SL1100_.jpg)
-
-  <!--EndFragment-->
