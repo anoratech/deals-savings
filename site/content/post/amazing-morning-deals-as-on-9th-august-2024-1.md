@@ -1,5 +1,5 @@
 ---
-title: AMAZING MORNING DEALS as on 9th August 2024
+title: AMAZING MORNING DEALS as on 10th August 2024
 date: 2024-08-10T10:30:50.924Z
 tags: AMAZON
 Category: OTHERS
@@ -11,45 +11,33 @@ description: HOT DEALS
   https://amzn.to/46DWUZm<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/91RxfCiiPsL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 4.xx Moon Lamp 4.9 inches 
   https://amzn.to/4dB3BxF<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71f5XEsPAeL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 179.xx 
   Pro - Wireless Bluetooth Noise Cancelling Headphones
   ♢Ｎ░ＤＲ♢Ｐ
   https://amzn.to/4de7Cs4<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61u-OaDSfQL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * As low as 19.xx Comforter Set Queen Size, 3 Pieces
   22.xx for King Size
   ♢Ｎ░ＤＲ♢Ｐ
   https://amzn.to/3ywgZ7w<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81PtEYSVBeL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Unisex MW-240-1E2VCF Classic Analog Display Quartz Black Watch
   ♢Ｎ░ＤＲ♢Ｐ
   https://amzn.to/3YWvKvh<!--StartFragment-->
 
   ![Casio Unisex MW-240-1E2VCF Classic Analog Display Quartz Black Watch](https://m.media-amazon.com/images/I/61Q90GIiqLL._AC_SY445_.jpg)
-
-  <!--EndFragment-->
 * 64.xx 
   Keyless-Entry Fingerprint Digital Smart Lock
   ♢Ｎ░ＤＲ♢Ｐ
   https://amzn.to/4dCEGKg<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81odwa2XsjL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 0nly 11.xx Spacemaker 10-Tier Tower
   ♢Ｎ░ＤＲ♢Ｐ
   https://amzn.to/3yz6zUI
@@ -59,8 +47,6 @@ description: HOT DEALS
   https://amzn.to/3Yzxo5L<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81tILGf7gXL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * ![HONEIER over the Toilet Storage 3 Tier Bathroom Shelf 62\*24\*10 inch Metal Bathroom Organizer Over Toilet Bathroom Storage Rack](https://i5.walmartimages.com/seo/HONEIER-over-the-Toilet-Storage-3-Tier-Bathroom-Shelf-62-24-10-inch-Metal-Bathroom-Organizer-Over-Toilet-Bathroom-Storage-Rack_647df547-6fa5-4fba-9e14-9385b29e1d32.5bfa3dfb91597bb130735c772494b9c4.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
 * https://mavely.app.link/e/5xTtFS9QSLb
   Drones with Camera🏃♂🏃♂  Only 38.xx<!--StartFragment-->
