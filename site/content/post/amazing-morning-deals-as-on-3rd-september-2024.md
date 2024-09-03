@@ -96,33 +96,61 @@ description: HOT DEALS
   19.xx
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3z2ofIm
+  https://amzn.to/3z2ofIm<!--StartFragment-->
+
+  ![YUN TAO Pasta Bowls set of 4,8.8 Inch Ceramic Salad Bowls, Large Corlorful Serving Bowls for Kitchen,Pasta Plates,Soup Bowls,Dinner Bowls- Bohemian Style](https://f.media-amazon.com/images/I/811KfTRhxLL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
+
+  <!--EndFragment-->
 * 12FT Giant Halloween Inflatables Ghost Decorations
   C0UP0N
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3MrWE6A
+  https://amzn.to/3MrWE6A<!--StartFragment-->
+
+  ![](https://f.media-amazon.com/images/I/81NggVBuxSL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Liquid Glue!!75% OFF!! JUST 8.xx
-  https://amzn.to/3Xs1hnB
+  https://amzn.to/3Xs1hnB<!--StartFragment-->
+
+  ![](https://f.media-amazon.com/images/I/81ZXoq4mSIL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * Bento Box
   40% OFF
   JUST 11.XX
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3XqAnfB
+  https://amzn.to/3XqAnfB<!--StartFragment-->
+
+  ![Itopor® Bento Box,Ideal Leak-Proof Lunch Box Kids,Mom’s Top Choice Bento Box for Kids,No BPA \&amp; Dyes Kids Lunch Box Containers,Microwave Safe Bento Box Adult,Durable Lunch Containers for Kids(Blue)](https://f.media-amazon.com/images/I/81sYHD4PH9L.__AC_SX300_SY300_QL70_FMwebp_.jpg)
+
+  <!--EndFragment-->
 * Elvive Hyaluron Plump Flash Hydration Wonder Water Hair Rinse
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
 
-  https://amzn.to/3TcStiP
+  https://amzn.to/3TcStiP<!--StartFragment-->
+
+  ![](https://f.media-amazon.com/images/I/61nZg1CKDaL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * Vertical Expansion Set - Marble Run and STEM Toy for Kids Ages 6 and Up
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/47qnt4Z             ad
+  https://amzn.to/47qnt4Z             ad<!--StartFragment-->
+
+  ![Ravensburger GraviTrax PRO Vertical Expansion Set - Marble Run and STEM Toy for Kids Ages 6 and Up - 33-Piece Gray Plastic Marble Run](https://f.media-amazon.com/images/I/61+aGrxm7PL._AC_SY300_SX300_.jpg)
+
+  <!--EndFragment-->
 * Pom-Poms, Assorted Sizes/Colors, 300/Bag (69330)
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/4dXlozy
+  https://amzn.to/4dXlozy<!--StartFragment-->
+
+  ![Creative Arts by Charles Leonard Pom-Poms, Assorted Sizes/Colors, 300/Bag (69330)](https://f.media-amazon.com/images/I/81YrGXgEfUL._AC_SX569_.jpg)
+
+  <!--EndFragment-->
 * 65% OFF JUST 19.XX
   All Season Microfiber Comforter, Twin, Dark Gray
   ♢Ｎ░ＤＲ♢Ｐ
