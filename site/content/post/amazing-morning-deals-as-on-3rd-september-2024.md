@@ -184,11 +184,6 @@ description: HOT DEALS
   ![](https://f.media-amazon.com/images/I/81ZJn9lvULL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
-* Sweeper 2-in-1 Dry + Wet Floor Mopping and Sweeping Kit
-  BIG C0UP0N
-  ♢Ｎ░ＤＲ♢Ｐ
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/4e3FEzb
 * Wagon Stroller for 2 Kids!!
   BIG C0UP0N
   ♢Ｎ░ＤＲ♢Ｐ
