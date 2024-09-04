@@ -5,8 +5,6 @@ tags: AMAZON
 Category: "OTHERS "
 description: HOT DEALS
 ---
-
-
 <!---->
 
 OREO Mini Cookies 
@@ -29,3 +27,20 @@ https://amzn.to/4dQPipa
 <!--EndFragment-->
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+𝐿𝒪𝒲 𝒫𝑅𝐼𝒞𝐸
+
+CRUNCH FLAKE AND CLUSTER BOX 15.5 OUNCES 1\
+https://amzn.to/4cRgiDY ad 
+
+Checkout with sub/save for max savings if available.<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/613wvodJ2lL._SL1340_.jpg)
+
+<!--EndFragment-->
+
+ <!--EndFragment-->
+
+!--EndFragment-->
