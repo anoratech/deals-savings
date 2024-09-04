@@ -47,6 +47,15 @@ https://amzn.to/3Xsimh0 ad <!--StartFragment-->
 
 ![](https://a.media-amazon.com/images/I/81wr0acFUeL._AC_SL1500_.jpg)
 
+
+
+✮｡ PRICE DROP ｡✮
+Weleda Shaving Cream, 2.5 Fluid Ounce 
+https://amzn.to/4eaw2Tn
+ad <!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/410WikI2FpL._AC_SL1000_.jpg)
+
 <!--EndFragment-->
 
  <!--EndFragment-->
