@@ -41,6 +41,14 @@ Checkout with sub/save for max savings if available.<!--StartFragment-->
 
 <!--EndFragment-->
 
+PRICE DROP 
+Mecko Boho Tribal Area Rug - 2x4  (GoldPink, 2x4ft)
+https://amzn.to/3Xsimh0 ad <!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/81wr0acFUeL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
  <!--EndFragment-->
 
 !--EndFragment-->
