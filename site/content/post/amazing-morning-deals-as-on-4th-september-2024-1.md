@@ -68,6 +68,17 @@ ad
 
 ![](https://a.media-amazon.com/images/I/91AuUy0apBL._SL1500_.jpg)
 
+
+
+✮｡ PRICE DROP ｡✮
+ !! G0000 Get it!!!
+ Wireless Earbuds 
+ ONLY 24.xx 
+https://amzn.to/3TcFm12
+ad <!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/51AZ-3wXiTL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
 
  <!--EndFragment-->
