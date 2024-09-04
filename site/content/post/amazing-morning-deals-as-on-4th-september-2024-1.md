@@ -123,7 +123,19 @@ ad
 
 ![](https://a.media-amazon.com/images/I/91RvUmGXJmL._AC_SL1500_.jpg)
 
-<!--EndFragment-->
+
+
+✮｡ 𝙿𝚁𝙸𝙲𝙴 𝙳𝚁𝙾𝙿 ｡✮
+𝙻𝚒𝚝𝚝𝚕𝚎 𝚃𝚒𝚔𝚎𝚜 𝚁𝚘𝚌𝚔𝚒𝚗' 𝙿𝚞𝚙𝚙𝚢 
+𝙳𝚁𝟶𝙿𝙿𝙴𝙳 𝚝𝚘 𝟸𝟽.𝚡𝚡!!
+
+https://amzn.to/47fpIYL ad <!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/81iICELcE3L._AC_SL1500_.jpg)
+
+
+
+
 
 <!--EndFragment-->
 
