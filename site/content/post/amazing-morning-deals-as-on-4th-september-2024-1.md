@@ -1,5 +1,5 @@
 ---
-title: AMAZING MORNING DEALS as on  4th September  2024
+title: AMAZING  DEALS as on  4th September  2024
 date: 2024-09-04T11:35:34.990Z
 tags: AMAZON
 Category: "OTHERS "
