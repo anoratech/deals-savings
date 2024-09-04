@@ -79,6 +79,18 @@ ad <!--StartFragment-->
 
 ![](https://a.media-amazon.com/images/I/51AZ-3wXiTL._AC_SL1500_.jpg)
 
+
+
+ ✮｡ ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ ｡✮ 
+Squishmall0ws Little and Big Girls Slippers
+  Now $8.97  𝔾𝕣𝕒𝕓 & 𝕘𝕠 
+https://brandcycle.shop/1mys1
+ad <!--StartFragment-->
+
+![Squishmallows Little and Big Girls Slippers](https://i5.walmartimages.com/seo/Squishmallows-Little-Girls-Big-Girls-Maribel-the-Butterfly-Indoor-Step-in-Slipper-Kid-s-Dual-Sizes-7-5-Medium-Width_7cdaa616-7610-46bf-93c6-97c81f772639.1a18c59b671cbd5163b6ef566c75fa03.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
+
+<!--EndFragment-->
+
 <!--EndFragment-->
 
  <!--EndFragment-->
