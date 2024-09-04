@@ -150,7 +150,15 @@ ad <!--StartFragment-->
 
 ![](https://a.media-amazon.com/images/I/71rwPv3fQVL._AC_SL1500_.jpg)
 
+⚛✴✮｡ Price Drop｡✮⚛✴
+35% 0ff This LEG0 Set!! 
+25.xx‼️ (reg. 39.xx) 
+https://amzn.to/3z8wt1H
+ad <!--StartFragment-->
 
+![](https://a.media-amazon.com/images/I/71gdCN6iLkL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
 
 <!--EndFragment-->
 
