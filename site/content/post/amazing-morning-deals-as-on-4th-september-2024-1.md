@@ -135,6 +135,14 @@ https://amzn.to/47fpIYL ad <!--StartFragment-->
 
 
 
+✮｡ 𝘗𝘙𝘐𝘊𝘌 𝘋𝘙𝘖𝘗 ｡✮
+𝘉𝘢𝘣𝘺 𝘍𝘦𝘦𝘥𝘪𝘯𝘨 𝘚𝘦𝘵 
+👶5𝘖% 0𝘧𝘧! 7.𝘹𝘹!  𝘎𝘳𝘢𝘣 & 𝘨𝘰 
+
+https://amzn.to/3XvQrgc ad <!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/51cDItyIZ4L._SL1500_.jpg)
+
 
 
 <!--EndFragment-->
