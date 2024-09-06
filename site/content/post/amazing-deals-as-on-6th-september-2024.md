@@ -13,8 +13,6 @@ https://amzn.to/3Zb4xVt\
 𝙶𝚛𝚊𝚋 & 𝚐𝚘 9.Xx\
 ad
 
-https://amzn.to/4eeg9vm 
-
 ![](https://a.media-amazon.com/images/I/61XpxYjmQxL._AC_SL1500_.jpg)
 
 <!--StartFragment-->
@@ -47,8 +45,6 @@ ad <!--StartFragment-->
 
 ![](https://a.media-amazon.com/images/I/61Wy3cozDQL._AC_SL1241_.jpg)
 
-
-
 <!--StartFragment-->
 
 PRICE DROP\
@@ -60,4 +56,11 @@ ad
 
 ![](https://a.media-amazon.com/images/I/81LWFgGmwfL._AC_SL1500_.jpg)
 
-<!--EndFragment-->
+<!--StartFragment-->
+
+https://geni.us/iFezn4T\
+𝔹𝕒𝕥𝕙𝕣𝕠𝕠𝕞 ℝ𝕦𝕘 𝕄𝕒𝕥 👺💜\
+ℙ𝕣𝕚𝕔𝕖 𝕕𝕣𝕠𝕡\
+ad 
+
+![](img/81siu-tokpl._ac_sl1500_.jpg)
