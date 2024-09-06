@@ -13,8 +13,6 @@ https://amzn.to/47dDFq1\
 𝙶𝚛𝚊𝚋 & 𝚐𝚘 9.Xx\
 ad
 
-https://amzn.to/3XwAPsK
-
 https://amzn.to/4eeg9vm 
 
 <!--StartFragment-->
