@@ -5,8 +5,6 @@ tags: AMAZON
 Category: OTHERS
 description: HOT DEALS
 ---
-
-
 * Women's Strap Watch (Beige/Gold)
   51% OFF 
   17.xx
@@ -15,16 +13,12 @@ description: HOT DEALS
   https://amzn.to/3Xv18zH<!--StartFragment-->
 
   ![Nine West Women\&#39;s Strap Watch](https://f.media-amazon.com/images/I/81yd4o7uKZL._AC_SY445_.jpg)
-
-  <!--EndFragment-->
 * Antibacterial Liquid Hand Soap, Spring Water, 11 fl oz (Pack of 4)
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3XvbsaN<!--StartFragment-->
 
   ![Dial Antibacterial Liquid Hand Soap, Spring Water, 11 fl oz (Pack of 4)](https://f.media-amazon.com/images/I/51-NGJi6d8L._SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Blonde Hair Lightener and Tone Enhancer Travel Kit
   13.xx
   *Save more with Subscribe & Save
@@ -33,8 +27,6 @@ description: HOT DEALS
   https://amzn.to/3MAUOjK<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/71vZh8Q-dyL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * Just 19.xx
   Monopoly: Barbie Edition
   ♢Ｎ░ＤＲ♢Ｐ
@@ -42,17 +34,13 @@ description: HOT DEALS
   https://amzn.to/3AT8g01<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/91j9XjUdEGL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 4.5 FT Halloween Inflatable Scary Flying Ghost
   38% OFF ONLY 19.XX 
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3XwkzYP<!--StartFragment-->
 
-  ![](https://f.media-amazon.com/images/I/91j9XjUdEGL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
+  ![]()
 * Crunchy and Soft Adult Cat Treats (Pack of 12)
   59% OFF , JUST 12.XX
   Subscribe & Save.
@@ -61,8 +49,6 @@ description: HOT DEALS
   https://amzn.to/4cYkdyC<!--StartFragment-->
 
   ![Temptations Tender Fills Roasted Chicken Flavor Crunchy and Soft Adult Cat Treats, 2.1 oz. Pouch (Pack of 12)](https://f.media-amazon.com/images/I/81VLpfJfelL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Cookie & Cracker Variety Pack
   22.XX with Subscribe & Save discount
   ♢Ｎ░ＤＲ♢Ｐ
@@ -70,8 +56,6 @@ description: HOT DEALS
   https://amzn.to/4dah8Mh<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/91k-dJ5md+L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * Baby Nasal Saline Spray
   57% off! 
   ♢Ｎ░ＤＲ♢Ｐ
@@ -79,8 +63,6 @@ description: HOT DEALS
   https://amzn.to/47cVoxC<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/61LTsKPAl2L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Snack Cakes
   SAVE MORE WITH SUB $ SAVE
   ♢Ｎ░ＤＲ♢Ｐ
@@ -88,16 +70,12 @@ description: HOT DEALS
   https://amzn.to/3zag50L   AD<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/811HVarpeIL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * 273 pcs Emergency First Aid Kits are half off at checkout JUST 9.XX
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3My8e01<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/512pCDHjtvL._SR400,400_.jpg)
-
-  <!--EndFragment-->
 * https://geni.us/7wUQd    AD\
   Finding Dory Set is 59% off! JUST 4.XX
   ♢Ｎ░ＤＲ♢Ｐ
@@ -108,8 +86,6 @@ description: HOT DEALS
   https://amzn.to/3MxPZaZ<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/41iDksObz-L._SR400,400_.jpg)
-
-  <!--EndFragment-->
 * 50% off  JUST 18.XX
   TWO pack of StorageWorks Storage Bins!
   ♢Ｎ░ＤＲ♢Ｐ
@@ -117,8 +93,6 @@ description: HOT DEALS
   https://amzn.to/4dRjzUP<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/31nIBu6JHFL._SR400,400_.jpg)
-
-  <!--EndFragment-->
 * 7.xx ONLY
   Grape Cutters are 50% off at checkout!
   ♢Ｎ░ＤＲ♢Ｐ
@@ -126,16 +100,12 @@ description: HOT DEALS
   https://amzn.to/3Z8h4ZZ<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/41iKb5S04nL._SR400,400_.jpg)
-
-  <!--EndFragment-->
 * https://amzn.to/3TfhdqA       AD
   Pink Pots and Pans Set Non Stick 55.XX
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/81GeWmdY+-L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * No Sugar Added Applesauce Variety Pack, 3.2 oz clear pouches
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
