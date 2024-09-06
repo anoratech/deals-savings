@@ -40,7 +40,7 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3XwkzYP<!--StartFragment-->
 
-  ![]()
+  ![](https://f.media-amazon.com/images/I/61vmGMZAAiL._AC_SL1298_.jpg)
 * Crunchy and Soft Adult Cat Treats (Pack of 12)
   59% OFF , JUST 12.XX
   Subscribe & Save.
