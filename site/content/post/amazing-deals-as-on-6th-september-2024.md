@@ -31,4 +31,15 @@ https://amzn.to/4eeg9vm
 https://amzn.to/3Xv9NCf\
 ad
 
+<!--StartFragment-->
+
+Lip Vibes \
+35% Off with SS\
+ https://amzn.to/3XwTMeR\
+ad 
+
+<!--EndFragment--><!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/91caweQU5cL._SL1500_.jpg)
+
 <!--EndFragment-->
