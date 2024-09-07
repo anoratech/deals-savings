@@ -187,4 +187,19 @@ ad
 
 ![](https://a.media-amazon.com/images/I/81WeMKP50zL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+\
+ℙ𝕣𝕚𝕔𝕖 𝔻𝕣𝕠𝕡 21.Xx 
+
+Wearable Blanket 
+
+https://amzn.to/3XBi5IV 
+
+ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/81SuandHFCL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
