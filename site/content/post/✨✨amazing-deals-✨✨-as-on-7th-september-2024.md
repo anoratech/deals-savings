@@ -147,15 +147,15 @@ ad
 
 PRICE DROP 9.Xx
 
-<!--StartFragment-->
-
-![](https://a.media-amazon.com/images/I/71J-fRNwjgL._SL1500_.jpg)
-
-<!--EndFragment-->Gel Polish Set- 6 Colors 
+Gel Polish Set- 6 Colors 
 
 https://amzn.to/4dSZkpY 
 
-ad
+ad <!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/71J-fRNwjgL._SL1500_.jpg)
+
+<!--EndFragment-->
 
 <!--StartFragment-->
 
@@ -170,5 +170,21 @@ ad
 <!--StartFragment-->
 
 ![](https://a.media-amazon.com/images/I/81QO8iaAbKL._AC_SL1500_.jpg)
+
+
+
+<!--StartFragment-->
+
+ℙ𝕣𝕚𝕔𝕖 𝔻𝕣𝕠𝕡 25.Xx 
+
+Autumn Leaves Table Runner, 15''x54'', Beige
+
+https://amzn.to/4cYOnC2 
+
+ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/81WeMKP50zL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
