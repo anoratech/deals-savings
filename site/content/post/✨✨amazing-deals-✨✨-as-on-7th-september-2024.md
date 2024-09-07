@@ -63,4 +63,20 @@ ad
 
 ![](https://a.media-amazon.com/images/I/81cZLApJKSL._SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+Super Strong Nail Glue For Nail Tips
+
+44% Off Grab & go
+
+https://amzn.to/3XAaryv
+
+ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/71oyUfJPThL._SL1500_.jpg)
+
 <!--EndFragment-->
