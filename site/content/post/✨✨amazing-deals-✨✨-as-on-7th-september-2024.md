@@ -79,4 +79,18 @@ ad
 
 ![](https://a.media-amazon.com/images/I/71oyUfJPThL._SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+𝟦𝟢% 𝒪𝐹𝐹 𝒦𝒾𝒹𝓈 𝒞𝑜𝓊𝒸𝒽\
+https://amzn.to/47jnrvw\
+𝒞𝑜𝒹𝑒: 𝟦𝟢𝟪𝒞𝒮𝒦𝟪𝐹\
+(𝓌𝑜𝓇𝓀𝓈 𝑜𝓃 𝒶𝓁𝓁 𝑜𝓅𝓉𝒾𝑜𝓃𝓈)\
+ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/71zkGpIGZYL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
