@@ -143,4 +143,18 @@ ad
 
 ![](https://a.media-amazon.com/images/I/81mwx8BEVXL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+PRICE DROP 9.Xx
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/71J-fRNwjgL._SL1500_.jpg)
+
+<!--EndFragment-->Gel Polish Set- 6 Colors 
+
+https://amzn.to/4dSZkpY 
+
+ad
+
 <!--EndFragment-->
