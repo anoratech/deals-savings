@@ -47,4 +47,20 @@ ad
 
 ![](https://a.media-amazon.com/images/I/711WvO77wQL._AC_SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+𝒮𝓊𝓃𝓈𝒸𝓇𝑒𝑒𝓃 𝟤 𝓅𝒶𝒸𝓀!
+
+ 𝑅𝒰𝒩 𝟣𝟢.𝓍𝓍 𝒮&𝒮!!
+
+https://amzn.to/4cVlcjk
+
+ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/81cZLApJKSL._SL1500_.jpg)
+
 <!--EndFragment-->
