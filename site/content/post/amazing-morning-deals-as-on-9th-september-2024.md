@@ -178,9 +178,7 @@ description: HOT DEALS
   16.xx with coupon
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3ZgPwlk<!--StartFragment-->
-
-  ![](https://f.media-amazon.com/images/I/61aqXO8ZmJL._AC_.jpg)
+  https://amzn.to/3ZgPwlk
 * Stainless Steel Cookware Set
   70% OFF,59.XX
   ♢Ｎ░ＤＲ♢Ｐ
