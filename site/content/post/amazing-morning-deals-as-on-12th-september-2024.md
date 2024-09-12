@@ -34,8 +34,6 @@ ad
 
 ![](https://a.media-amazon.com/images/I/41ZMqatvzkL._AC_.jpg)
 
-
-
 <!--StartFragment-->
 
 \
@@ -50,5 +48,16 @@ https://amzn.to/3MKaDok ad
 <!--StartFragment-->
 
 ![](https://a.media-amazon.com/images/I/81ALWAQCJSL._SL1500_.jpg)
+
+<!--StartFragment--> PRICE DROP \
+Kids Bedding Comforter Set Full/Queen Size 
+
+https://amzn.to/3z5q2N7 
+
+ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/81hH7XE2TML._AC_SL1500_.jpg)
 
 <!--EndFragment-->
