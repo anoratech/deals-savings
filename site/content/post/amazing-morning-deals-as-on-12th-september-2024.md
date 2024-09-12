@@ -192,4 +192,18 @@ The Black Series Bad Batch Crosshair Toy
 
 ![](https://a.media-amazon.com/images/I/41yqzvbOk2L._AC_SL1000_.jpg)
 
+
+
+<!--StartFragment-->
+
+PRICE DROP
+
+Black Comforter Set Twin Size 
+
+https://amzn.to/3AYvBgT ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/71cSilAt12L._AC_SL1500_.jpg)
+
 <!--EndFragment-->
