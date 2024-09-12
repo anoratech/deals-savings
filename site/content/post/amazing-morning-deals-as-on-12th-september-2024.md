@@ -252,4 +252,20 @@ https://amzn.to/3Ts0ujU ad
 
 ![](https://a.media-amazon.com/images/I/51ZpxybFnHL._SL1375_.jpg)
 
+
+
+<!--StartFragment-->
+
+PRICE DROP 
+
+Tall Nightstand with Charging Station
+
+https://amzn.to/47qGtzX ad 
+
+
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/71Pjg5Yrd5L._AC_SL1500_.jpg)
+
 <!--EndFragment-->
