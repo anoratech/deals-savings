@@ -1,0 +1,54 @@
+---
+title: AMAZING MORNING DEALS as on 12th SEPTEMBER 2024
+date: 2024-09-12T12:00:27.738Z
+tags: AMAZON
+Category: "OTHERS "
+description: HOT DEALS
+---
+<!--StartFragment-->
+
+Rice Krispies Treats Mini Squares 
+
+https://amzn.to/3Xm8Cni 
+
+Grab & go 7.xx 
+
+ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/81Rw1vzOI9L._SL1500_.jpg)
+
+<!--StartFragment-->
+
+ LOW PRICE 4.Xx 
+
+\
+Mini Baby Pink Plastic Bottle Favors 
+
+https://amzn.to/4gmno6c 
+
+ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/41ZMqatvzkL._AC_.jpg)
+
+
+
+<!--StartFragment-->
+
+\
+𝐇𝐎𝐓 𝐃𝐄𝐀𝐋
+
+Semi Cured Gel Nail Strips Animal Print 20 Pcs. 
+
+𝐂𝐥𝐢𝐩 𝐜𝐨𝐮𝐩𝐨𝐧 𝐚𝐧𝐝 𝐜𝐡𝐞𝐜𝐤𝐨𝐮𝐭 𝐰𝐢𝐭𝐡 SS 𝐟𝐨𝐫 𝐦𝐚𝐱𝐢𝐦𝐮𝐦 𝐝𝐢𝐬𝐜𝐨𝐮𝐧𝐭! 
+
+https://amzn.to/3MKaDok ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/81ALWAQCJSL._SL1500_.jpg)
+
+<!--EndFragment-->
