@@ -178,4 +178,18 @@ https://amzn.to/4gjDvl3 ad
 
 ![](https://a.media-amazon.com/images/I/51Oy71uHjKS._SL1000_.jpg)
 
+
+
+<!--StartFragment-->
+
+PRICE DROP
+
+The Black Series Bad Batch Crosshair Toy
+
+<https://amzn.to/3z3RScA> ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/41yqzvbOk2L._AC_SL1000_.jpg)
+
 <!--EndFragment-->
