@@ -148,4 +148,20 @@ https://amzn.to/3MHh63r ad
 
 ![](https://a.media-amazon.com/images/I/713PtO+7W7L._AC_SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+LOW PRICE 
+
+ Lip Cure +3 Fortifying Lip Treatment 
+
+https://amzn.to/4d1MaWw 
+
+Grab & go 4.Xx ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/31j71bXMsCL.jpg)
+
 <!--EndFragment-->
