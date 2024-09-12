@@ -103,4 +103,23 @@ Price Drop ad
 
 ![](https://a.media-amazon.com/images/I/81iMDS-hbZL._AC_SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+\
+𝐇𝐎𝐓 𝐃𝐄𝐀𝐋
+
+ 50 Pack 2 Compartment Paper Bowls with Lids, 
+
+https://amzn.to/3zctmWF 
+
+𝐂𝐥𝐢𝐩 𝐜𝐨𝐮𝐩𝐨𝐧 𝐚𝐧𝐝 𝐜𝐡𝐞𝐜𝐤𝐨𝐮𝐭 𝐰𝐢𝐭𝐡 𝐬/𝐬 𝐟𝐨𝐫 𝐦𝐚𝐱𝐢𝐦𝐮𝐦 𝐝𝐢𝐬𝐜𝐨𝐮𝐧𝐭! 
+
+ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/61O4mG3ULtL._AC_SL1200_.jpg)
+
 <!--EndFragment-->
