@@ -164,4 +164,18 @@ Grab & go 4.Xx ad
 
 ![](https://a.media-amazon.com/images/I/31j71bXMsCL.jpg)
 
+
+
+<!--StartFragment-->
+
+ PRICE DROP 8.xx
+
+The Crème Shop Makeup Removing Wipes 
+
+https://amzn.to/4gjDvl3 ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/51Oy71uHjKS._SL1000_.jpg)
+
 <!--EndFragment-->
