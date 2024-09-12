@@ -134,4 +134,18 @@ https://amzn.to/4eDyTVp
 
 ad
 
+
+
+<!--StartFragment-->
+
+PRICE DROP
+
+Classic City Street View Building Block Set for Kids 
+
+https://amzn.to/3MHh63r ad
+
+<!--StartFragment-->
+
+![](https://a.media-amazon.com/images/I/713PtO+7W7L._AC_SL1500_.jpg)
+
 <!--EndFragment-->
