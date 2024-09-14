@@ -217,4 +217,18 @@ https://amzn.to/3XqscyL ad
 
 ![](https://m.media-amazon.com/images/I/81n4IQrKMfL._SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+Halloween Temporary Tattoos for Kids 
+
+https://amzn.to/4e8lSTJ 
+
+Price Drop + coupon 5.Xx ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71Pvf6fjR-L._SL1500_.jpg)
+
 <!--EndFragment-->
