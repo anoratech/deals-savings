@@ -131,4 +131,16 @@ Grab & go
 
 ![](https://m.media-amazon.com/images/I/71ojD6OFxyL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Only 5.xx!! 5100 Clay Beads Bracelet Making Kit 
+
+https://amzn.to/4ens9KT 
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81zT3TwsJcL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
