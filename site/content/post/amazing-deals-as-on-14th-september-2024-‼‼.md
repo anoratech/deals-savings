@@ -294,4 +294,20 @@ https://amzn.to/3TrlUO4 ad
 
 ![](https://m.media-amazon.com/images/I/81ix6LzY6KL._AC_SL1500_.jpg)
 
+
+
+
+
+<!--StartFragment-->
+
+ Handbag!! By L0UNGEFLY!
+
+5O% 0ff!! 37.xx 
+
+https://amzn.to/3XHCags ad
+
+<!--StartFragment-->
+
+![Loungefly Pokemon First Generation Allover Print Crossbody Satchel Handbag Purse](https://m.media-amazon.com/images/I/81nVg2473OL._AC_SX500_.jpg)
+
 <!--EndFragment-->
