@@ -31,4 +31,19 @@ Garb & go ad
 
 ![](https://m.media-amazon.com/images/I/618PpEz6vwL._AC_SL1000_.jpg)
 
+
+
+<!--StartFragment-->
+
+ℙℝ𝕀ℂ𝔼 𝔻ℝ𝕆ℙ \
+ℙ𝕁𝕞𝕒𝕤𝕜𝕤 ℂ𝕠𝕝𝕝𝕖𝕔𝕥𝕚𝕓𝕝𝕖 𝔽𝕚𝕘𝕦𝕣𝕖 𝕊𝕖𝕥 𝟠 ℙ𝕚𝕖𝕔𝕖𝕤 
+
+https://amzn.to/3N5PcP3 
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/614dDoQAkQL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
