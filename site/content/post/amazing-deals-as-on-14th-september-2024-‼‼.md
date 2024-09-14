@@ -277,4 +277,21 @@ https://amzn.to/3zlPLkm ad
 
 ![](https://m.media-amazon.com/images/I/81ca3M+VQAL._SL1500_.jpg)
 
+
+
+
+
+<!--StartFragment-->
+
+\
+Quick Dry Gel Pens
+
+!!28% OFF!! 
+
+https://amzn.to/3TrlUO4 ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81ix6LzY6KL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
