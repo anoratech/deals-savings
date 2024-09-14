@@ -247,4 +247,18 @@ Price Drop 19.xx ad
 
 ![](https://m.media-amazon.com/images/I/81KyAuCN+yL._AC_SL1500_.jpg)
 
+
+
+
+
+<!--StartFragment-->
+
+The Berenstain Bears' Night Before Christmas: A Christmas Holiday Book for Kids
+
+https://amzn.to/3Tsj4se ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/9131+CUZIbL._SL1500_.jpg)
+
 <!--EndFragment-->
