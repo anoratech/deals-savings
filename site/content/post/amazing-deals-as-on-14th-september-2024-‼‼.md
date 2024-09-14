@@ -310,4 +310,21 @@ https://amzn.to/3XHCags ad
 
 ![Loungefly Pokemon First Generation Allover Print Crossbody Satchel Handbag Purse](https://m.media-amazon.com/images/I/81nVg2473OL._AC_SX500_.jpg)
 
+
+
+
+
+<!--StartFragment-->
+
+\
+Price drop! Now $8.xx
+
+144 Pcs Glow Sticks 
+
+https://amzn.to/3XHCiws ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/51TPzf+HWyL._AC_SL1000_.jpg)
+
 <!--EndFragment-->
