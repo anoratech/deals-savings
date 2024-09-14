@@ -90,4 +90,20 @@ https://amzn.to/3TwHSzw ad
 
 ![](https://m.media-amazon.com/images/I/715Y1ZEIGVL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Diamond Painting Kits 
+
+50% Off Grab & go 3.XX 
+
+https://amzn.to/3XoW1zK   
+
+discount apply at checkout 
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61UpvWU-KfL._AC_.jpg)
+
 <!--EndFragment-->
