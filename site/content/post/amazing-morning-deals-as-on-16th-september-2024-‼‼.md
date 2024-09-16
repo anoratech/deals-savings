@@ -132,4 +132,16 @@ Checkout with sub/save for more savings if available.
 
 ![](https://m.media-amazon.com/images/I/41zalKhg66L._SY879_.jpg)
 
+<!--StartFragment-->
+
+CLIP 20% COUPON ON PAGE 
+
+ Magnetic Glitter Case for iPhone
+
+https://amzn.to/3ZkDYxk ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81v3S-FZNWL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
