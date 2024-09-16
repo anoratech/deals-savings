@@ -197,4 +197,18 @@ https://amzn.to/3zk6Vih ad
 
 ![](https://m.media-amazon.com/images/I/91wEv5ThUCL._AC_SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+ PRICE DROP
+
+Jacquard Weighted Blanket for Adult, 
+
+https://amzn.to/3B2JvON ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81axTp-gHqL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
