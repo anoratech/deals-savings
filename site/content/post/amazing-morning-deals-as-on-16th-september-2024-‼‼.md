@@ -42,8 +42,6 @@ save with Qpon ad
 
 ![](https://m.media-amazon.com/images/I/91Up1jg83FL._AC_SL1500_.jpg)
 
-
-
 <!--StartFragment-->
 
 𝕋𝕠𝕚𝕝𝕖𝕥 𝔹𝕠𝕨𝕝 ℂ𝕝𝕖𝕒𝕟𝕖𝕣 𝕗𝕠𝕣 𝟚𝕩𝕩
@@ -64,7 +62,6 @@ Rainbow Scratch Paper
 
 https://amzn.to/3Zl2C0N
 
-
 a﻿d <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/81d2o47Ty2L._AC_SL1280_.jpg)
@@ -81,8 +78,6 @@ https://amzn.to/4e2864V ad
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/81iO+ganauL._SL1500_.jpg)
-
-
 
 <!--StartFragment-->
 
@@ -113,8 +108,6 @@ https://amzn.to/4go0jA9
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/81B96bChGgL._SL1500_.jpg)
-
-
 
 <!--StartFragment-->
 
@@ -156,8 +149,6 @@ https://amzn.to/3XIQVQf ad
 
 ![](https://m.media-amazon.com/images/I/71Xqn1+INeL._AC_SL1500_.jpg)
 
-
-
 <!--StartFragment-->
 
 6.xx\
@@ -171,8 +162,6 @@ Reusable Sticker Books
 
 ![](https://m.media-amazon.com/images/I/81-h6Y1faEL._AC_SL1500_.jpg)
 
-
-
 <!--StartFragment-->
 
 50% OFF Egg Washer for Fresh Eggs 
@@ -182,8 +171,6 @@ https://amzn.to/3Bew0vs ad
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/61XhVCDEtlL._AC_SL1500_.jpg)
-
-
 
 <!--StartFragment-->
 
@@ -197,8 +184,6 @@ https://amzn.to/3zk6Vih ad
 
 ![](https://m.media-amazon.com/images/I/91wEv5ThUCL._AC_SL1500_.jpg)
 
-
-
 <!--StartFragment-->
 
  PRICE DROP
@@ -210,8 +195,6 @@ https://amzn.to/3B2JvON ad
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/81axTp-gHqL._AC_SL1500_.jpg)
-
-
 
 <!--StartFragment-->
 
@@ -227,8 +210,6 @@ ad
 
 ![](https://m.media-amazon.com/images/I/71lsDtSHpgL._AC_SL1500_.jpg)
 
-
-
 <!--StartFragment-->
 
 PRICE DROP
@@ -242,5 +223,19 @@ ad
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/814gk2jsURL._AC_SL1500_.jpg)
+
+<!--StartFragment-->
+
+LOW PRICE 
+
+Electronic Fairy Jar Catches 30+ Virtual Fairies
+
+39% OFF   9.xx 
+
+https://amzn.to/3MKaLnM ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71xdFx5OW5S._AC_SL1500_.jpg)
 
 <!--EndFragment-->
