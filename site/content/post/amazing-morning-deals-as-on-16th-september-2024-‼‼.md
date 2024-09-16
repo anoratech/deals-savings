@@ -156,4 +156,19 @@ https://amzn.to/3XIQVQf ad
 
 ![](https://m.media-amazon.com/images/I/71Xqn1+INeL._AC_SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+6.xx\
+PRICE DROP
+
+Reusable Sticker Books
+
+ https://amzn.to/4e3CtIf ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81-h6Y1faEL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
