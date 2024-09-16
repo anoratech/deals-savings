@@ -16,4 +16,18 @@ ad
 
 ![](https://m.media-amazon.com/images/I/71sGiyfIuiL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Clear Preppy Patch Makeup Bag 
+
+3.Xx Grab & go 
+
+https://amzn.to/47sU1em 
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71Py1Lghb6L._AC_SL1500_.jpg)
+
 <!--EndFragment-->
