@@ -42,4 +42,20 @@ save with Qpon ad
 
 ![](https://m.media-amazon.com/images/I/91Up1jg83FL._AC_SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+𝕋𝕠𝕚𝕝𝕖𝕥 𝔹𝕠𝕨𝕝 ℂ𝕝𝕖𝕒𝕟𝕖𝕣 𝕗𝕠𝕣 𝟚𝕩𝕩
+
+https://amzn.to/4enabID 
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71k0ux8iS3L._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 <!--EndFragment-->
