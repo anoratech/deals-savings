@@ -69,4 +69,17 @@ a﻿d <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/81d2o47Ty2L._AC_SL1280_.jpg)
 
+<!--StartFragment-->
+
+𝕃 𝔻 !\
+𝕊𝕖𝕣𝕦𝕞 𝔹𝕝𝕦𝕤𝕙 𝕋𝕚𝕟𝕥, ℙ𝕣𝕒𝕔𝕥𝕚𝕔𝕒𝕝  ℙ𝕚𝕟𝕜
+
+𝟜𝟜% 𝕆𝔽𝔽   𝟙𝟜.𝕩𝕩 
+
+https://amzn.to/4e2864V ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81iO+ganauL._SL1500_.jpg)
+
 <!--EndFragment-->
