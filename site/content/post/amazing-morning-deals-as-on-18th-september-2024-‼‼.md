@@ -44,4 +44,17 @@ a﻿d <!--StartFragment-->
 
 ![KitchenAid Classic Pizza Wheel with Sharp Blade For Cutting Through Crusts, Pies and More, Built In Finger Guard for Safety and Comfort Grip to Protect Fingers, Dishwasher Safe, 9-Inch, Black](https://m.media-amazon.com/images/I/61zsVzkFqAL._AC_SX679_.jpg)
 
+
+
+𝒪𝓃𝓁𝓎 𝟦𝟪.𝓍𝓍
+
+𝒯𝓇𝒶𝓋𝑒𝓁𝑒𝓇𝓈 𝒞𝓁𝓊𝒷 𝟧 𝒫𝒾𝑒𝒸𝑒 𝒦𝒾𝒹𝓈’ 𝐿𝓊𝑔𝑔𝒶𝑔𝑒 𝒮𝑒𝓉, 𝐵𝓊𝓉𝓉𝑒𝓇𝒻𝓁𝓎! 
+
+
+𝒫𝓇𝒾𝒸𝑒 𝒟𝓇𝑜𝓅 
+
+https://amzn.to/47uscCA   ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81DKGHR4KKL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
