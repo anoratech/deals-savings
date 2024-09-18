@@ -211,3 +211,15 @@ https://amzn.to/3XLxK8w    ad
 ![](https://m.media-amazon.com/images/I/71h5rmcnlBL._SL1500_.jpg)
 
 <!--EndFragment-->
+
+🛍  𝕃𝕆𝕎 ℙℝ𝕀ℂ𝔼🛍
+
+𝕋𝕚𝕔𝕠𝕟𝕕𝕖𝕣𝕠𝕘𝕒 𝕎𝕠𝕠𝕕-ℂ𝕒𝕤𝕖𝕕 ℙ𝕖𝕟𝕔𝕚𝕝𝕤, ℙ𝕣𝕖-𝕊𝕙𝕒𝕣𝕡𝕖𝕟𝕖𝕕, 𝟚 ℍ𝔹 𝕊𝕠𝕗𝕥, 𝕐𝕖𝕝𝕝𝕠𝕨, 𝟜 ℂ𝕠𝕦𝕟𝕥 
+
+𝔾𝕣𝕒𝕓 & 𝕘𝕠  𝟛.𝕩𝕩 
+
+https://amzn.to/3MN5bRR     ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71e7lhaz1YL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
