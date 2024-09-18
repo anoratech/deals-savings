@@ -32,4 +32,16 @@ a﻿d
 
 ![](https://m.media-amazon.com/images/I/91RCpPIasCL._AC_SL1500_.jpg)
 
+ℂ𝕝𝕒𝕤𝕤𝕚𝕔 ℙ𝕚𝕫𝕫𝕒 𝕎𝕙𝕖𝕖𝕝
+
+𝟞𝟘% 𝕆𝕗𝕗 ℙ𝕣𝕚𝕔𝕖 𝔻𝕣𝕠𝕡 
+
+𝔾𝕣𝕒𝕓 & 𝕘𝕠 5.Xx 
+
+https://amzn.to/4ddG0CL
+
+a﻿d <!--StartFragment-->
+
+![KitchenAid Classic Pizza Wheel with Sharp Blade For Cutting Through Crusts, Pies and More, Built In Finger Guard for Safety and Comfort Grip to Protect Fingers, Dishwasher Safe, 9-Inch, Black](https://m.media-amazon.com/images/I/61zsVzkFqAL._AC_SX679_.jpg)
+
 <!--EndFragment-->
