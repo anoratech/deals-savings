@@ -118,3 +118,16 @@ https://amzn.to/3Tud8PG    ad
 ![](https://m.media-amazon.com/images/I/815inAQgw5L._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+
+
+
+
+𝟝𝟘 ℙ𝕒𝕔𝕜 𝟚 ℂ𝕠𝕞𝕡𝕒𝕣𝕥𝕞𝕖𝕟𝕥 ℙ𝕒𝕡𝕖𝕣 𝔹𝕠𝕨𝕝𝕤 𝕨𝕚𝕥𝕙 𝕃𝕚𝕕𝕤 
+
+* 𝟚𝟘 % ℚ𝕡𝕠𝕟 
+* https://amzn.to/3Tw3ICY   ad <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61O4mG3ULtL._AC_SL1200_.jpg)
+
+  <!--EndFragment-->
