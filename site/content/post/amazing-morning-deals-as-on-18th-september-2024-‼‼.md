@@ -177,3 +177,19 @@ https://amzn.to/3XCyn34   ad <!--StartFragment-->
 ![](https://m.media-amazon.com/images/I/71CMaUee9-L._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+
+
+✨𝐏 𝐑 𝐈 𝐂 𝐄 • 𝐃 𝐑 𝐎 𝐏✨
+
+𝐹𝒾𝓃𝑒𝒟𝒾𝓃𝑒 𝐼𝓃𝓈𝓊𝓁𝒶𝓉𝑒𝒹 𝒮𝓀𝒾𝓃𝓃𝓎 𝒮𝓉𝒶𝒾𝓃𝓁𝑒𝓈𝓈-𝒮𝓉𝑒𝑒𝓁 𝒯𝓊𝓂𝒷𝓁𝑒𝓇 
+
+𝒢𝓇𝒶𝒷 & 𝑔𝑜  9.xx  
+
+https://amzn.to/4e7ejfU   ad 
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/8133TA0HHmL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
