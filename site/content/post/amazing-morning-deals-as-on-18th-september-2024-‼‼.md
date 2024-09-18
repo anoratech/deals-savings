@@ -70,3 +70,17 @@ https://amzn.to/3XtwfdQ ad
 ![](https://m.media-amazon.com/images/I/91a1ltgG29L._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+
+
+𝙲𝚑𝚎𝚠𝚢 𝙲𝚊𝚗𝚍𝚢 𝚂𝚠𝚒𝚛𝚕  
+
+𝙿𝚛𝚒𝚌𝚎 𝙳𝚛𝚘𝚙 
+
+𝙶𝚛𝚊𝚋 & 𝚐𝚘  1.xx 
+
+https://amzn.to/3BhIxye    ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81DCeRjResL._SL1500_.jpg)
+
+<!--EndFragment-->
