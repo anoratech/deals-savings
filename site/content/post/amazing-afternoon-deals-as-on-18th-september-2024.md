@@ -68,17 +68,11 @@ AD
 
 <!--EndFragment-->
 
-
-
-
-
 Only 59.xx
 🔐Fingerprint Door Lock  🔐\
 USE➡️31GZWFVU + CL!P C0UPON\
 https://amzn.to/3ZoA7zi 
  AD
-
-
 
 <!--StartFragment-->
 
@@ -97,8 +91,6 @@ AD
 ![](https://m.media-amazon.com/images/I/71jyzjWP67L._AC_SL1500_.jpg)
 
 <!--EndFragment-->
-
-
 
 Only 16.xx
 ‼️Folding Step Ladder 2 Step ‼️
@@ -130,8 +122,6 @@ HURYYYY 🏃‍♀️🏃🏃‍♀️
 https://amzn.to/3XOrmNT
 AD
 
-
-
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/71jokyX07+L._AC_SL1500_.jpg)
@@ -143,8 +133,6 @@ Only 95.xx
 ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
 https://amzn.to/3XBqyuu
 AD
-
-
 
 <!--StartFragment-->
 
@@ -158,8 +146,6 @@ USE➡️7DMYY3GT
 https://amzn.to/4eqbu9M
 AD
 
-
-
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/81Jvy0bGenL._AC_SL1500_.jpg)
@@ -171,8 +157,6 @@ Kids Battery Powered Toothbrush, Kids Battery
 ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
 https://amzn.to/3MOKDbr
 AD
-
-
 
 <!--StartFragment-->
 
@@ -187,11 +171,8 @@ As low as 7.xx
 https://amzn.to/4gse5Sa
 AD
 
-
-
-
-
  As low as 9.xx
+
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/81WkzK88wxL._AC_SL1500_.jpg)
@@ -210,8 +191,6 @@ AD
 
 <!--EndFragment-->
 
-
-
 AS LOW AS 23.xx
 💞💞Toddler Nap Mat with Pillow & Blanket 💞
 54%OFF
@@ -223,8 +202,6 @@ AD
 ![](https://m.media-amazon.com/images/I/810PUQu2jPL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
-
-
 
 😍139.xx😍
 🌟✨Cordless Circular Saw with Brake, Bare Tool ✨🌟
@@ -238,15 +215,12 @@ AD
 
 <!--EndFragment-->
 
-
-
-
-
 Only 34.xx
 😻😻Cat Tree 😻😻\
 USE➡️50ZE8RDN 
 https://amzn.to/4guSCs0
  AD\
+
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/71-4QGnKjEL._AC_SL1500_.jpg)
@@ -265,8 +239,6 @@ https://amzn.to/3TzsVfR\
 
 <!--EndFragment-->
 
-
-
 Only 11.xx
 😻😻Cat Window Perch Cat Hammock for Large Cats 😻😻\
 USE➡️30M2T4V7\
@@ -278,8 +250,6 @@ AD
 ![](https://m.media-amazon.com/images/I/81Oa-6wFOrL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
-
-
 
 😍799.xx😍
 💻13.6-inch Laptop with M2 chip💻
@@ -294,22 +264,12 @@ AD
 
 <!--EndFragment-->
 
-
-
-
-
-
-
-
-
 Just 9.xx
 ‼️6 Pack Adhesive Shower Caddy 
 Set ‼️\
 ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️\
 https://amzn.to/4gm85ut\
  AD
-
-
 
 <!--StartFragment-->
 
@@ -326,10 +286,6 @@ https://amzn.to/4gm85ut\
 https://amzn.to/3TUTVqD
 AD
 
-
-
-
-
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/61n+MZXna-L._AC_SL1500_.jpg)
@@ -342,15 +298,11 @@ USE➡️ZPQFK5SW + CL!P C0UPON\
 https://amzn.to/4esUAHk
 AD
 
-
-
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/61VmujLNICL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
-
-
 
 Only 17.xx
 🚽360 ° Activity Toilet Plunger
@@ -359,6 +311,14 @@ USE➡️L5HXUPLL+ ℚℙ𝕆ℕ✂️
 https://amzn.to/47wjxj9
 AD
 
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61xb8vOaauL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
+
+
 Just 7.xx
 🚽Toilet Paper Holder Stand 🚽
 ‼️discount apply at checkout ‼️
@@ -366,10 +326,26 @@ USE➡️50BNHO1V+ ℚℙ𝕆ℕ✂️
 https://amzn.to/47uBEFU
 AD
 
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61TJJI1aVxL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
+
+
 ☕☕Variety 
 The Cozy Cup☕☕
 https://amzn.to/3ZqRxeu
 AD
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81CgNww+X6L._SL1500_.jpg)
+
+<!--EndFragment-->
+
+
 
 😍28.xx-84.xx😍
 ✨Rustic Mirror for Wall Wood
@@ -379,11 +355,27 @@ USE➡️50GNE79U
 https://amzn.to/4gsQpwX
 AD
 
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81Jcc5zmhBL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
+
+
 Just 9.xx
 80%OFF
 💦💦300 Loads Laundry Detergent Sheets 💦💦
  https://amzn.to/3MMHKbe
 AD
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/91XAhrIGOpL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
+
 
 AWESOME DEAL STOCK UP TIME! 👇🏻👇🏻👇🏻
 💞Hair Products 💞
@@ -392,11 +384,27 @@ AWESOME DEAL STOCK UP TIME! 👇🏻👇🏻👇🏻
 https://amzn.to/3MLCaWL 
 AD
 
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81BwwqNESkL._SL1500_.jpg)
+
+<!--EndFragment-->
+
+
+
 Just 5.xx
 💅Long Lasting, Streak-Free Shine, Pink Nail Polish 💅 
 💸𝗛𝗨𝗚𝗘 𝗗𝗥𝗢𝗣 𝗤𝗣𝗢𝗡💸
 https://amzn.to/3TwMJ3r
 AD
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61HKxqqSijL._SL1500_.jpg)
+
+<!--EndFragment-->
+
+
 
 💓SKINCARE💓
 53% OFF
@@ -404,6 +412,14 @@ AD
 ✂️𝗦&𝗦✂️
 https://amzn.to/3zq8BXx
 AD
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61xJtwrEIjL._SL1080_.jpg)
+
+<!--EndFragment-->
+
+
 
 💓BEAUTY DEAL💓
 Just 6.xx
@@ -413,12 +429,28 @@ Just 6.xx
 https://amzn.to/4gsoRba
 AD
 
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71ljB4KG9OL._SL1500_.jpg)
+
+<!--EndFragment-->
+
+
+
 As low as 10.xx
 ✨✨PANTRY STOCK UP! CHIPS  with C0UP0NS!✨✨
 ✂️ℂ𝕃𝕀ℙ ℚℙ𝕆ℕ✂️
 ✂️𝗦&𝗦✂️
 https://amzn.to/3zxLcU1
 AD
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/91f7ZyWZOeL._SL1500_.jpg)
+
+<!--EndFragment-->
+
+
 
 Only 14.xx
 💞Toy Storage Organizer & Play Mat💞
@@ -427,8 +459,22 @@ Only 14.xx
 https://amzn.to/3zydIou 
 AD
 
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81fLn8Zk6yL._SL1500_.jpg)
+
+<!--EndFragment-->
+
+
+
 64.xx
 💃💃💃 WHOOHOO! IN STOCK My First Christmas Tree, 
 ⬇️🅿🆁🅸🅲🅴 🅳🆁🅾🅿⬇️
 https://amzn.to/47tzAy4
 AD
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/91FOWYtycdL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
