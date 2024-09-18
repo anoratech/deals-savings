@@ -141,3 +141,13 @@ https://amzn.to/4e48SP1    ad <!--StartFragment-->
 ![](https://m.media-amazon.com/images/I/81noXWXB-iL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+🔥✂ℂ𝕃𝕀ℙ ℂ𝕆𝕌ℙ𝕆ℕ  ✂🔥 
+
+𝔻𝕦𝕒𝕝 𝕄𝕠𝕟𝕚𝕥𝕠𝕣 𝕊𝕥𝕒𝕟𝕕 ℝ𝕚𝕤𝕖𝕣 𝕨𝕚𝕥𝕙 𝔻𝕣𝕒𝕨𝕖𝕣 
+
+https://amzn.to/3XwY191    ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71U8rZZmydL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
