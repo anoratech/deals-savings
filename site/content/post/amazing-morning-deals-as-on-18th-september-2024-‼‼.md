@@ -96,3 +96,13 @@ https://amzn.to/4gsL1Ks   ad
 ![](https://m.media-amazon.com/images/I/81H2kCCJgJL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+𝔼𝕟𝕙𝕒𝕟𝕔𝕖 𝕒𝕟𝕕 𝔻𝕖𝕗𝕚𝕟𝕖 𝕄𝕖𝕘𝕒𝕨𝕖𝕒𝕣 𝕄𝕒𝕤𝕔𝕒𝕣𝕒
+
+ ℙ𝕣𝕚𝕔𝕖 𝔻𝕣𝕠𝕡 + ℚ𝕡𝕠𝕟  1.Xx 
+
+https://amzn.to/47ux6zg    ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81NfTOfu76L._SL1500_.jpg)
+
+<!--EndFragment-->
