@@ -120,3 +120,15 @@ https://amzn.to/3ZvywaQ   ad <!--StartFragment-->
 ![](https://m.media-amazon.com/images/I/71ruiy5QlOL._SL1000_.jpg)
 
 <!--EndFragment-->
+
+ℍ𝕒𝕟𝕘𝕚𝕟𝕘 ℍ𝕒𝕝𝕝𝕠𝕨𝕖𝕖𝕟 𝔻𝕖𝕔𝕠𝕣𝕒𝕥𝕚𝕠𝕟𝕤 
+
+!!𝟞𝟛% 𝕆𝔽𝔽!! 𝟡.𝕏𝕏
+ 
+𝔾𝕣𝕒𝕓 & 𝕘𝕠   
+
+https://amzn.to/3XvR1JS   ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/715n8MPPX0L._AC_SL1280_.jpg)
+
+<!--EndFragment-->
