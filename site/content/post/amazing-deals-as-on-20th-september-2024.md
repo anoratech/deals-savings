@@ -86,3 +86,15 @@ https://amzn.to/3MPWyGf    ad <!--StartFragment-->
 ![](https://m.media-amazon.com/images/I/817uQw6+7LL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+𝕌𝕟𝕕𝕖𝕣 𝔼𝕪𝕖 ℙ𝕒𝕥𝕔𝕙𝕖𝕤 - 𝟞𝟘 ℙ𝕔𝕤 
+
+ℙ𝕣𝕚𝕔𝕖 𝔻𝕣𝕠𝕡  + ℚℙ𝕆ℕ 
+
+𝔾𝕣𝕒𝕓 & 𝕘𝕠  𝟚.𝕩𝕩
+
+https://amzn.to/3XOal6l   ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71ViE-GAVOL._SL1500_.jpg)
+
+<!--EndFragment-->
