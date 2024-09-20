@@ -10,71 +10,51 @@ description: HOT DEALS
   https://amzn.to/4gsNBQA<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/716u4c-MwhL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 50% OFF
   Unisex-Adult Classic Nerf Clog
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4e2xhEw<!--StartFragment-->
 
   ![Crocs Unisex-Adult Classic Nerf Clog](https://m.media-amazon.com/images/I/81pfqFHrYHL._AC_SX575_.jpg)
-
-  <!--EndFragment-->
 * Holy book: Gift and Award, 54% Price Drop –JUST 4.XX
   https://amzn.to/3Zr0PXU<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61xPSCI2rEL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * Weighted Blanket for Adult JUST 14.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3XJQCEW <!--StartFragment-->
 
   ![Wellfeel Weighted Blanket for Adult,15lbs Heavy Weighted Blanket 48\&#34;x72\&#34; Breathable Cooling Summer Blankets, Ultra Soft Cotton Comfort Throw Blanket with Glass Beads for All-Season (Dark Grey)](https://m.media-amazon.com/images/I/71-PZnV9rCL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * 10.XX for 2 ITEMS ,
   USE SUB+S@VE FOR MORE SAV!NGS
   https://amzn.to/47xcdDB<!--StartFragment-->
 
   ![Greenies Feline Adult Natural Dental Care Cat Treats, Oven Roasted Chicken Flavor, 4.6 oz. Pouch](https://m.media-amazon.com/images/I/51WNgR-XQ6L.jpg)
-
-  <!--EndFragment-->
 * 6 Pack Organizing Set 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3B86Y19<!--StartFragment-->
 
   ![Simplify 6 Pack Organizing Set | Square Bins | Multipurpose | Office | Desk | Dorm | Bathroom | Storage Basket | Small Items | Accessories | Black](https://m.media-amazon.com/images/I/71TFa6pQnxL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Quaker Instant Oatmeal JUST 2.XX
   https://amzn.to/47C6a0Q<!--StartFragment-->
 
   ![Quaker Instant Oatmeal, Gluten Free, Maple \&amp; Brown Sugar, Heart Healthy Oatmeal, Individual Packs, 1.51 Oz (Pack of 8)](https://m.media-amazon.com/images/I/51Di6HSpR8L._SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Electric Pressure Washer 13 Amp 1.4 GPM 2100 Max PSI with Foam Bottle CSA Certified
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3B9hDZC<!--StartFragment-->
 
   ![LawnMaster LT306-1800C Electric Pressure Washer 13 Amp 1.4 GPM 2100 Max PSI with Foam Bottle CSA Certified](https://m.media-amazon.com/images/I/71ZFvbekC0L.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Concentrated Laundry Detergent, Fresh Lavender scent, 40 oz, Pack of 2 (106 Loads)
   Drop with Sub/Save + C0UPON
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/47quXox<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71GzUMOjMyL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Wild Imagination Quencher Tumbler JUST 20
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3TwdMvO<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/51NzT68-Q3L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 50% off 
   Halloween Shirts for Men Funny 3D Skeleton Print Party Costumes
   C0de:HUPF6PQR
@@ -82,39 +62,29 @@ description: HOT DEALS
   https://amzn.to/3XrzmTC<!--StartFragment-->
 
   ![HJINGSUN Halloween Shirts for Men Funny 3D Skeleton Print Novelty Shirt Plus Size Crewneck Long Sleeve Tops Party Costumes](https://m.media-amazon.com/images/I/71eUQqY1qoL._AC_SX679_.jpg)
-
-  <!--EndFragment-->
 * Silky Touch Women's Disposable Razors, 10 Count
   65% Price Drop + Sub/Save JUST 2.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4d8artY<!--StartFragment-->
 
   ![BIC Silky Touch Women\&#39;s Disposable Razors, With 2 Blades, Pretty Pastel Razor Handles, 10 Count (Pack of 1)](https://m.media-amazon.com/images/I/41fQ69in3VL._SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Transport Chair Lightweight Foldable with Telescopic Handle
   40% OFF at Checkout JUST 239.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3XKAvXv<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/41KspbwNz2L._SR400,400_.jpg)
-
-  <!--EndFragment-->
 * Hidden Cat Litter Box Furniture with Cat Litter Mat
   25% OFF at Checkout +20% OFF Coupon JUST 59.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4d4a17W<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/51Zfx45zFyL._SR400,400_.jpg)
-
-  <!--EndFragment-->
 * 59% Drop with Sub/Save+ Coupon JUST 3.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4gsLwE7<!--StartFragment-->
 
   ![Dry Idea Gel Deodorant \&amp; Antiperspirant | 2X Longer Sweat Protection | 72-Hour Odor Protection | Unscented \&amp; Hypoallergenic for Sensitive Skin, 3 oz.](https://m.media-amazon.com/images/I/41KrKHdgYfL._SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Sub/Save+2.XX OFF Coupon -Around 4.XX
   OGX Locking + Coconut Curls Air Dry Cream, No Parabens, 6 oz
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
@@ -125,16 +95,12 @@ description: HOT DEALS
   https://amzn.to/4e7sRw4<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61+pcsP0FfL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * UP to 20% Price Drop + Sub/Save+✂40% OFF Coupon 
   9" Paper Plate Bulk, White 200-500 COUNTS AVAILABLE
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4d47Gda<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/714ONNnzBfL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 50-inch Class F30 Series LED 4K UHD Smart Fire TV with Alexa Voice Remote
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4dcTYVs<!--StartFragment-->
