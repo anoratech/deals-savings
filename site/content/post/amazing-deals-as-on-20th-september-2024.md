@@ -174,3 +174,13 @@ https://amzn.to/3TAo0eE   ad <!--StartFragment-->
 ![](https://m.media-amazon.com/images/I/71u6BSjXkAL._SL1500_.jpg)
 
 <!--EndFragment-->
+
+🔥✂ ℂ𝕆𝕌ℙ𝕆ℕ 𝕆ℕ ℙ𝔸𝔾𝔼✂🔥
+
+𝔻𝕣𝕠𝕡 𝔻𝕒𝕟𝕘𝕝𝕖 𝔼𝕒𝕣𝕣𝕚𝕟𝕘𝕤 
+
+https://amzn.to/4dcuQya    ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71wrBJHiDzL._AC_SY575_.jpg)
+
+<!--EndFragment-->
