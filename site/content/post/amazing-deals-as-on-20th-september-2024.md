@@ -98,3 +98,15 @@ https://amzn.to/3XOal6l   ad <!--StartFragment-->
 ![](https://m.media-amazon.com/images/I/71ViE-GAVOL._SL1500_.jpg)
 
 <!--EndFragment-->
+
+𝐼𝓃𝒻𝓁𝒶𝓉𝒶𝒷𝓁𝑒 𝒲𝒶𝓉𝑒𝓇 𝒯𝓌𝒾𝓈𝓉𝑒𝓇 𝒢𝒶𝓂𝑒 𝒻𝑜𝓇 𝒦𝒾𝒹𝓈
+
+𝒫𝓇𝒾𝒸𝑒 𝒟𝓇𝑜𝓅  
+
+𝒢𝓇𝒶𝒷 & 𝑔𝑜  𝟨.𝓍𝓍
+
+https://amzn.to/3zrhlfZ   ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/613XP+iz5dL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
