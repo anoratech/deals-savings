@@ -42,3 +42,15 @@ https://amzn.to/3XPsHUn  ad
 ![](https://m.media-amazon.com/images/I/81j6lgx6bKL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+𝙺𝚒𝚍𝚜 𝙱𝚊𝚝𝚝𝚎𝚛𝚢 𝙿𝚘𝚠𝚎𝚛𝚎𝚍 𝚃𝚘𝚘𝚝𝚑𝚋𝚛𝚞𝚜𝚑
+
+𝙿𝚛𝚒𝚌𝚎 𝙳𝚛𝚘𝚙  +S/ S 𝚀𝙿𝙾𝙽 
+
+𝙶𝚛𝚊𝚋 & 𝚐𝚘 𝟺.𝚡𝚡 
+
+https://amzn.to/4gzvf0a    ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61DCRIfVbHL._SL1500_.jpg)
+
+<!--EndFragment-->
