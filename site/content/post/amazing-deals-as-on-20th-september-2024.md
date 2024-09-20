@@ -28,3 +28,17 @@ https://amzn.to/4efPT43   ad <!--StartFragment-->
 ![Hanes Girls\&#39; Cool Comfort Ankle, 12-Pair Pack Fashion Liner Socks](https://m.media-amazon.com/images/I/81njXhJeDxS._AC_SX679_.jpg)
 
 <!--EndFragment-->
+
+
+
+ ♥ Christmas Swim Advent Calendar
+
+Hot 24.xx  
+
+https://amzn.to/3XPsHUn  ad 
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81j6lgx6bKL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
