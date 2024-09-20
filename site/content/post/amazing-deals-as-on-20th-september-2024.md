@@ -18,3 +18,13 @@ https://amzn.to/3zglbIZ   ad
 ![](https://m.media-amazon.com/images/I/71A4ERiD3vL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+𝟣𝟤 𝒫𝒶𝒾𝓇!! 𝐹𝒶𝓈𝒽𝒾𝑜𝓃 𝐿𝒾𝓃𝑒𝓇 𝒮𝑜𝒸𝓀𝓈
+
+ 𝟨.𝓍𝓍!! 𝒢𝟢𝟢𝟢𝟢‼️ 
+
+https://amzn.to/4efPT43   ad <!--StartFragment-->
+
+![Hanes Girls\&#39; Cool Comfort Ankle, 12-Pair Pack Fashion Liner Socks](https://m.media-amazon.com/images/I/81njXhJeDxS._AC_SX679_.jpg)
+
+<!--EndFragment-->
