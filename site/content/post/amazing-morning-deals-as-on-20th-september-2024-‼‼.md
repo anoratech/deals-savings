@@ -10,54 +10,40 @@ description: HOT DEALS
   https://amzn.to/4dcvk79<!--StartFragment-->
 
   ![LIPSBOR 40oz Stainless Steel Vacuum Insulated Tumbler with Lid and Straw for Water, Iced Tea or Coffee (White)](https://m.media-amazon.com/images/I/616fDYOydUL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Original Blend Medium Roast Ground Coffee 
   CLIP C0UPON  + S+S ,  JUST 9.xx! 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3TzumLk<!--StartFragment-->
 
   ![Dunkin\&#39; Original Blend Medium Roast Ground Coffee, 30 Ounce](https://m.media-amazon.com/images/I/51md6FLlL9L._SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * 4.xx  P0kemon Fruit Snacks, 22 ct
   Checkout with sub and save
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3TD2iqp<!--StartFragment-->
 
   ![Pokemon Fruit Flavored Snacks, Treat Pouches, Value Pack, Kids Snacks, Halloween Candy Alternative, 22 ct](https://m.media-amazon.com/images/I/51s1v-LSzeL._SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Add 4 save 10.xx 🌟✨🏃♀
   https://amzn.to/3MQB2kr<!--StartFragment-->
 
   ![Tide Power PODs 2-in-1 Laundry Detergent Pods with Downy Soft Boosters, Lasting Freshness with April Fresh Scent, 63 Count](https://images-na.ssl-images-amazon.com/images/I/815TKd+f4RL.AC_SL240_.jpg)
-
-  <!--EndFragment-->
 * Home Repair Tool Kit - 226 Piece 
   Just 35.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4evsJ9v    ad<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71r1UybuVwL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Only 9.xx 
   Under Sink Organizers
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3zujesn<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81zzN7-YMCL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Potato Chips, 4 Flavor Variety Pack, 1 oz Single Serve Bags, (40 Pack)
   14.XX w/ c0upon +Sub&Save
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4dglQYP<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81sL2BKYS9L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzn.to/4eqPGuu      ad
   SCHOOL SNACKS
   Mixed Fruit & Summer Fruits Variety Pack
@@ -65,95 +51,69 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/91zWbVKBu0L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * Fog Lights LED Bulbs 600% Brightness
   ONLY 17.Xx 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4dtVpPz<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71bPE1qn+5L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Liquid Fabric Softener- (125 oz)  ONLY 5.Xx\
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3XOJuqB<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71VSaspFGhL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Foaming Bath with Pure Epsom Salt ONLY 19.Xx 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4gyitiM<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81QcEMmkmLL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * Infrared Sauna Blanket
   C0UPON
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4erL1bK<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71y7YgFOgPL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 30 PACKS of Cookies
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4etNT8a<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81j8-mHCugL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * EPIC DEALS FOR KIDS, GAMES , TOYS AND MANY MORE……🏃♂🏃♂🏃♂
   BUY 1 GET 1 HALF OFF 
   https://amzn.to/3TxlUfC<!--StartFragment-->
 
   ![The Original Slinky Walking Spring Toy, 2.75-inch Diameter Metal Slinky, Fidget Toys, Kids Toys for Ages 5 Up by Just Play](https://m.media-amazon.com/images/I/51dy-qDZFxL.jpg)
-
-  <!--EndFragment-->
 * BOOKS THOSE ARE INSPIRING AS WELL AS INTERESTING 🎁⭐💡 GREAT GIFTING IDEA !!!!!!!!!
   BUY 1 GET 1 HALF OFF
   https://amzn.to/3MSAr1G<!--StartFragment-->
 
   ![Good Lookin' Cookin': A Year of Meals - A Lifetime of Family, Friends, and Food \[A Cookbook\]](https://m.media-amazon.com/images/I/518J4CCf2lL.jpg)
-
-  <!--EndFragment-->
 * Outdoor Inflatable Water Twister Game for Kids
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4eaQJPp<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71+60q0gxlL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Lunch Bag Women/Men JUST 3.XX
   https://amzn.to/3MPJwZl<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71cEeG5qyLL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Only 6.xx ,24 Pack Alkaline Triple A Battery
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3ZwqvT9<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71qjRSjcTEL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 6.xx
   3-Piece Silicone Spatula Set
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3ZtYpI2<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61vfrv3e0WS._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 6.xx
   2 Piece Toddler Dinosaur Short and Shorts Set
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4ewdOMb   AD<!--StartFragment-->
 
   ![Gorboig Toddler Boy Clothes Little Boys Summer Outfits Short Sleeve Clothing Dinosaur T-Shirt \&amp; Shorts Sets 2-7T](https://m.media-amazon.com/images/I/61ttDuHuf2L._AC_SX679_.jpg)
-
-  <!--EndFragment-->
 * Comforter Set 7 Pieces
   50% OFF click redeem 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
@@ -161,8 +121,6 @@ description: HOT DEALS
   https://amzn.to/3BcrLAQ<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/91pExI8a1AL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Premium Golf GPS Watch, Built-in Virtual Caddie
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4gsNBQA<!--StartFragment-->
