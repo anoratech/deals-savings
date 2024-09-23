@@ -158,17 +158,33 @@ description: HOT DEALS
 * 50% OFF
   Kitchen Utensil Set - 11 (Pink) JUST 9.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3XwSmjn
+  https://amzn.to/3XwSmjn<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61L6wq0tCOL._AC_SL1246_.jpg)
+
+  <!--EndFragment-->
 * 54% OFF
   Rotating Makeup Organizer Tray for Perfume
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3XrzSAI
+  https://amzn.to/3XrzSAI<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71t+SJf1HUL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * 50Pcs Fridge Magnets just 3.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/4eaXMHV
+  https://amzn.to/4eaXMHV<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61ZVIuFHPwL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Oil Dispenser For Kitchen Oil Sprayer For Cooking 2 in 1 JUST 3.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3XCI4OT
+  https://amzn.to/3XCI4OT<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71sObSToUrL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * 2 Pack- 28 oz Protein Shaker Bottles for Protein Mixes - 2x Wire Whisk 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4gyxjpd
