@@ -22,19 +22,33 @@ description: HOT DEALS
 * 8 Tier Shoe Rack
   55% OFF,13.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/47yY2xQ
+  https://amzn.to/47yY2xQ<!--StartFragment-->
+
+  ![Z\&amp;L HOUSE 8 Tier Shoe Rack Narrow, Sturdy Shoe Rack Tall Store 16-20 Pairs of Shoes, Stackable Shoe Shelf for Closet Entryway to Increase The Use of Space](https://m.media-amazon.com/images/I/81tTTdcoXRL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
+
+  <!--EndFragment-->
 * 3 Step Acne Treatment 
   Save even more if you S+S!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/4eAsryp
+  https://amzn.to/4eAsryp<!--StartFragment-->
+
+  ![Proactiv 3 Step Acne Treatment - Benzoyl Peroxide Face Wash, Repairing Acne Spot Treatment for Face And Body, Exfoliating Toner - 60 Day Complete Acne Skin Care Kit,Multicolor](https://m.media-amazon.com/images/I/41cdBwD2I8L._SX300_SY300_QL70_FMwebp_.jpg)
+
+  <!--EndFragment-->
 * 50" TV JUST 199.XX   RUNNNNN 🔥
-  https://amzn.to/47Cd4TI
+  https://amzn.to/47Cd4TI<!--StartFragment-->
+
+  ![INSIGNIA 50-inch Class F30 Series LED 4K UHD Smart Fire TV with Alexa Voice Remote (NS-50F301NA24)](https://m.media-amazon.com/images/I/81DM+ZzL8rL._AC_SX300_SY300_.jpg)
+
+  <!--EndFragment-->
 * Air Fryer Pressure Cooker Combo 
   JUST 129.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/47C0kwn
-* Laundry Detergent Sheets 300 Loads ONLY 4.xx, APPLY C0UPON
-  https://amzn.to/4ebPAHA
+  https://amzn.to/47C0kwn<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71uVj+gxeDL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Granola Bars,
   C-upon +use Sub&Save
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
