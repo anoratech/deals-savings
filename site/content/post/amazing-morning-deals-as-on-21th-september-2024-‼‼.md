@@ -127,18 +127,34 @@ description: HOT DEALS
 * 50% OFF
   Girls Charm Bracelet Making Kit - Unicorn Jewelry Supplies 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3Xy9qpk    
+  https://amzn.to/3Xy9qpk    <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81q3emUlhTL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * JUST 1.XX
-  https://amzn.to/47y5l92
+  https://amzn.to/47y5l92<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81MAFUgrcgL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * Inflatable Water Slide
   Clip the coupon on the page.
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3TDjagZ
+  https://amzn.to/3TDjagZ<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/7165oU3NB0L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * ‼ 50% OFF ‼
   Retractable Baby Gate, 
   Clip the coupon on the page.
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3zDZgLI
+  https://amzn.to/3zDZgLI<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81sxWAj-9-L._SL1500_.jpg)
+
+  <!--EndFragment-->
 * 50% OFF
   Kitchen Utensil Set - 11 (Pink) JUST 9.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
