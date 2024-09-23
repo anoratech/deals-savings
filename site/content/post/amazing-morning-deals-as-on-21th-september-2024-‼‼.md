@@ -52,21 +52,41 @@ description: HOT DEALS
 * Granola Bars,
   C-upon +use Sub&Save
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3XSJKFl
+  https://amzn.to/3XSJKFl<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81vP7BTWOnL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * OMG 0.42 CENTS / INDIVIDUAL BOX
   48 PACK 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/4gyT3RR
+  https://amzn.to/4gyT3RR<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81Cn1O-hEdL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * Unisex Baby Cotton Sleeveless Bodysuits   JUST 10.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3Xy2o3Y
+  https://amzn.to/3Xy2o3Y<!--StartFragment-->
+
+  ![Luvable Friends Unisex Baby Cotton Sleeveless Bodysuits](https://m.media-amazon.com/images/I/71C6F-6pulL._AC_SX679_.jpg)
+
+  <!--EndFragment-->
 * HALLOWEEN CANDY FOR KIDS
   USE S&S
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3ZxMh9a
+  https://amzn.to/3ZxMh9a<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/813Vz6f0uZL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * Full Size Chocolate Candy Variety Mix 56.11-Ounce 30-Count Box
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  https://amzn.to/3BesqBP   ad
+  https://amzn.to/3BesqBP   ad<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71tlGAMRcNL._SL1000_.jpg)
+
+  <!--EndFragment-->
 * 17.XX 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3ZAJaNA
