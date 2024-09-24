@@ -1,9 +1,9 @@
 ---
-title: AMAZING AFTERNOON DEALS as on 24rd SEPTEMBER 2024
+title: AMAZING AFTERNOON DEALS as on 24th SEPTEMBER 2024
 date: 2024-09-24T11:21:56.386Z
 tags: AMAZON,WALMART
 Category: OTHERS
-description: AMAZING AFTERNOON DEALS 24rd SEPTEMBER 2024 like our page for more
+description: AMAZING AFTERNOON DEALS 24th SEPTEMBER 2024 like our page for more
   details https://www.facebook.com/profile.php?id=1000636212198641st AUGUST9th
   SEPTEMBER
 ---
