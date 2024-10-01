@@ -5,13 +5,9 @@ tags: AMAZON
 Category: "OTHERS "
 description: HOT DEALS
 ---
-
-
 * https://amzlink.to/az0JkfusLVfyX AD Only 3.XX or less snack / groceries finds<!--StartFragment-->
 
   ![Bauducco Strawberry Wafers - Crispy Wafer Cookies With 3 Delicious, Indulgent, Decadent Layers of Strawberry Flavored Crea...](https://m.media-amazon.com/images/I/51MsK4fwObL._AC_UL320_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az01e62hut5I5 AD JUST 17.xx 50% OFF CLIP COUPON Cooling bed sheets are on sale ╚»★«╝ HUGE SAV!NGS ╚»★«╝<!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/71DGskpvFsL._AC_SL1500_.jpg)
