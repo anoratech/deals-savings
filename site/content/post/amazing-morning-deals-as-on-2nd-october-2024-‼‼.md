@@ -1,6 +1,6 @@
 ---
-title: AMAZING MORNING DEALS as on 2ND OCTOBER 2024 ‼‼
-date: 2024-10-02T11:46:25.941Z
+title: AMAZING MORNING DEALS as on 3rd OCTOBER 2024 ‼‼
+date: 2024-10-03T11:46:25.941Z
 tags: AMAZON
 Category: "OTHERS "
 description: HOT DEALS
