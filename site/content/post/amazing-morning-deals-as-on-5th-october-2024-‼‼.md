@@ -9,23 +9,17 @@ description: HOT DEALS
   https://amzn.to/3NaXhlm<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71g7OyUe21L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * Wireless Gaming Headset with Microphone for 31.xx\
   CL!P C0UPON\
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3TVVdS3<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61hRlwVl79L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Articulated Crystal Dragon in Egg for 14.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/47QMy96     AD<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61r+78E1iyL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/ZwQXU1NSoNb   ad 
   Just 5.xx
   ↤↤↤↤↤ #𝗪𝗔𝗟𝗠𝗔𝗥𝗧 𝐁𝐀𝐑𝐆𝐀𝐈𝐍𝗦  ↦↦↦↦↦
@@ -33,22 +27,16 @@ description: HOT DEALS
   ★•.•´¯•.•★ ★•.•´¯•.•★<!--StartFragment-->
 
   ![Corona Men's Sport Slide Sandals](https://i5.walmartimages.com/seo/Corona-Men-s-Sport-Slide-Sandals_b519469c-ee40-4738-8b12-aa31a588f6f4.fa0a0a1bbbe1bfd11ec52d654a4f8732.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/a6MtmeBSoNb    ad
   Men’s slides sandal starting from just 4.xx <!--StartFragment-->
 
   ![AND1 Men’s Puffer Slide Sandals](https://i5.walmartimages.com/seo/AND1-Men-s-Puffer-Slide-Sandals_cfa38a13-d364-4ae0-826a-2cd5341f4f4a.f4d44c2e3e99a7cca2d028bfc9e883df.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/CBj7zkDvoNb   AD
   Laundry Basket Portable Dirty Clothes  JUST 3.XX
   ↤↤↤↤↤ 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 𝐁𝐀𝐑𝐆𝐀𝐈𝐍𝗦  ↦↦↦↦↦
   ✌✌𝘼𝙈𝘼𝙕𝙄𝙉𝙂 𝙎𝙏𝙀𝘼𝙇✌✌<!--StartFragment-->
 
   ![InsCrazy Laundry Basket Portable Dirty Clothes Basket Dirty Clothes Storage Basket Large Clothes Rack Laundry Basket Bathroom Hollow Dirty Clothes Basket](https://i5.walmartimages.com/seo/InsCrazy-Laundry-Basket-Portable-Dirty-Clothes-Storage-Large-Rack-Bathroom-Hollow_5c281f09-c98d-44b4-be26-ed2c654f0568.dad545de6ed3d714e5ba3fde9602bb9d.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/GSaWzOauoNb   AD
   Collapsible Carry-on Luggage, Hardshell 20 inch 
   JUST 42.XX
@@ -57,8 +45,6 @@ description: HOT DEALS
   ★•.•´¯•.•★ ★•.•´¯•.•★<!--StartFragment-->
 
   ![Landisun Collapsible Carry-on Luggage, Hardshell 20 inch Travel Luggage with Spinner Wheels, Light Green](https://i5.walmartimages.com/seo/Landisun-Collapsible-Carry-on-Luggage-Water-and-Impact-Resistant-Hardshell-20-inch-Carry-On-Luggage-with-Spinner-Wheels-Light-Green_6b6a79c9-b7e6-4526-8f50-457ed766684d.f340c2403e776f11a5c6d394e9a8e91a.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/juhj5ZFtoNb    AD
   Dextrus 3-Seats Wicker Hanging Porch Swing Chair Outdoor JUST  114.XX
   ↤↤↤↤↤ 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 𝐁𝐀𝐑𝐆𝐀𝐈𝐍𝗦  ↦↦↦↦↦
@@ -66,8 +52,6 @@ description: HOT DEALS
   ★•.•´¯•.•★ ★•.•´¯•.•★<!--StartFragment-->
 
   ![Gymax Outdoor Wicker Porch Swing 2-Person Hanging Seat w/ Seat & Back Cushions Backyard](https://i5.walmartimages.com/seo/Gymax-Outdoor-Wicker-Porch-Swing-2-Person-Hanging-Seat-w-Seat-Back-Cushions-Backyard_819b8200-a73b-4943-93b9-33d0b8f3ffc1.a357dbdddb70a12f5d5b3a20452c4eb6.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/5wy0Mp4qoNb    ad
   40 Piece Tool Sets All Purpose Household Tool Kit JUST 22.XX
   ↤↤↤↤↤ 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 𝐁𝐀𝐑𝐆𝐀𝐈𝐍𝗦  ↦↦↦↦↦
@@ -80,14 +64,10 @@ description: HOT DEALS
   ★•.•´¯•.•★ ★•.•´¯•.•★<!--StartFragment-->
 
   ![WARMOUNTS Portable Camping Chair, 400LBS Backpacking Chair w/ Side Pocket Carrying Bag, Ultralight Compact Beach Chair for Picnic Hiking Fishing, Black](https://i5.walmartimages.com/seo/WARMOUNTS-Portable-Camping-Chair-400LBS-Folding-Backpacking-Chair-w-Side-Pocket-Carrying-Bag-Ultralight-Compact-Beach-Picnic-Hiking-Fishing-Black_d05d6637-6cfd-44c0-9e0e-18b1a9cbdeab.4f4065d57e7f60016184f7da04af1cb8.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/FEpV7AkloNb        AD
   Commuter Tech Backpack, Black JUST 7.XX<!--StartFragment-->
 
   ![Eastsport Unisex Commuter Tech Backpack, Black](https://i5.walmartimages.com/seo/Eastsport-Unisex-Commuter-Tech-Backpack-Black_d06c7f24-54f9-40e3-8b64-04d95f00df17.46fff0884dee127e7b7d4203a51a9e7e.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * 100% Lemon Juice, 2.5 fl oz bottle (Pack of 24) for 7.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3Y7okEv<!--StartFragment-->
