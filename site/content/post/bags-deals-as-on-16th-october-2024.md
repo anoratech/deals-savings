@@ -4,6 +4,7 @@ date: 2024-10-16T16:41:00.625Z
 tags: "amazon "
 Category: Bags
 description: "Hot deals as on 10/16/2024 "
+image: img/brown-simple-fashion-photo-collage-portrait-.png
 ---
 50% OFF Gifts Canvas Tote Bag --2 Pack
  
