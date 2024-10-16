@@ -6,8 +6,9 @@ Category: Bags
 description: "Hot deals as on 10/16/2024 "
 ---
 50% OFF Gifts Canvas Tote Bag --2 Pack
- 6.xx~12.xx
-50% off Code: 50DT3ZBE
+ 
+
+6.xx~12.xx  Code: 50DT3ZBE
 
 
 https://amzn.to/3zYQt7u
