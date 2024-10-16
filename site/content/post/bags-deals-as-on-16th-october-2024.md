@@ -19,10 +19,6 @@ ad
 
 <!--EndFragment-->
 
-
-
-
-
 50% OFF Crossbody Bag
  11.xx~19.xx
   Code: 50OATQT6 
@@ -31,8 +27,25 @@ https://amzn.to/4063VAY
 discount will auto apply at checkout 
 ad \
 \
+
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/412nIc4vvvL._SR400,400_.jpg)
+
+<!--EndFragment-->
+
+
+
+50% OFF Crossbody Phone Bag
+ 11.xx~19.xx
+  Code: 50OATQT6
+https://amzn.to/485XQ9T
+(works on all options in the promotion link)
+discount will auto apply at checkout 
+ad 
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/41LfEtOHT7L._SR400,400_.jpg)
 
 <!--EndFragment-->
