@@ -102,3 +102,11 @@ ad <!--StartFragment-->
 60% off Code: XRMG8NEA (works on all options)
 https://amzn.to/4h6rwrq
 (っ◔◡◔)っ ♥ HUGE SAVINGS ♥
+
+
+
+53% OFF Cosmetic Bag
+6.XX
+53% off Code: VA2R2QRX (works on all options)
+https://amzn.to/3Nqza2n
+(っ◔◡◔)っ ♥ HUGE SAVINGS ♥
