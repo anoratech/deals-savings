@@ -33,8 +33,7 @@ https://amzn.to/4063VAY
 
 (works on all options in the promotion link)
 discount will auto apply at checkout 
-ad  \
-\
+ad  
 
 <!--StartFragment-->
 
@@ -79,5 +78,19 @@ ad
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/71VNWqjo3TL.jpg)
+
+<!--EndFragment-->
+
+
+
+50% OFF Puffer Tote Bag
+ 14.xx    Code: RBNMAPL7 
+
+https://amzn.to/3A1qNqI
+
+(works on all options except Black)
+ad <!--StartFragment-->
+
+![Quilted Puffer Tote Bag - Lightweight Nylon Puffy Crossbody Shoulder Bag, Soft Carryall Hobo Handbag with Big Capacity](https://m.media-amazon.com/images/I/61YUqA+YClL._AC_SX679_.jpg)
 
 <!--EndFragment-->
