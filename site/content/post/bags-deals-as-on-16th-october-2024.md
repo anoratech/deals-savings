@@ -110,3 +110,16 @@ https://amzn.to/4h6rwrq
 53% off Code: VA2R2QRX (works on all options)
 https://amzn.to/3Nqza2n
 (っ◔◡◔)っ ♥ HUGE SAVINGS ♥
+
+55% OFF Initial Makeup Bag
+7.XX
+50% off Code: 50EUVRTT + 5% off coupon (works on all options)
+https://amzn.to/48hg20k
+(っ◔◡◔)っ ♥ HUGE SAVINGS ♥\
+\
+\
+50% OFF Crossbody Bags
+9.XX
+50% off Code: 50LUY32O (works on all options)
+https://amzn.to/48hpgJR
+(っ◔◡◔)っ ♥ HUGE SAVINGS ♥
