@@ -94,3 +94,11 @@ ad <!--StartFragment-->
 ![Quilted Puffer Tote Bag - Lightweight Nylon Puffy Crossbody Shoulder Bag, Soft Carryall Hobo Handbag with Big Capacity](https://m.media-amazon.com/images/I/61YUqA+YClL._AC_SX679_.jpg)
 
 <!--EndFragment-->
+
+
+
+60% OFF Initial Clear Crossbody Bag
+7.XX
+60% off Code: XRMG8NEA (works on all options)
+https://amzn.to/4h6rwrq
+(っ◔◡◔)っ ♥ HUGE SAVINGS ♥
