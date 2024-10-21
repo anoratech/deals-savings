@@ -117,77 +117,128 @@ description: HOT DEALS
   Complete Cheese Garlic Biscuit 9pk
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
-  https://amzn.to/4dVqDPI
+  https://amzn.to/4dVqDPI<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81NvC01FDQL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * 45%0ff Just 10.xx 
   Under Armour Boys Tech 2.0 Short-Sleeve T-Shirt
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
-  https://amzn.to/4eV5syE
+  https://amzn.to/4eV5syE<!--StartFragment-->
+
+  ![Under Armour Boys Tech 2.0 Short-Sleeve T-Shirt](https://m.media-amazon.com/images/I/61NCMLaeS-L._AC_SX679_.jpg)
+
+  <!--EndFragment-->
 * 2 Pack Black Halloween Tree
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
   https://amzn.to/4ePmxtJ
-* 6000 Clay Beads Bracelet Making Kit
-  77% Off Only 6.xx
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-  AD
-  https://amzn.to/3Y4QGxK
 * AD  Get This Modern Wall Clocks at Just 3.xx
-  https://amzn.to/3BJC3Zh
+  https://amzn.to/3BJC3Zh<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61trMedTU6L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * 7.xx , 65% off
   Scented Tealight Candles 100 Pack! 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
-  https://amzn.to/3UgH5mC
+  https://amzn.to/3UgH5mC<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71bWC5FqOsL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   19.xx 
   7Ft Halloween Inflatable! 
   50% off
   AD
-  https://amzn.to/3NRNnWl
+  https://amzn.to/3NRNnWl<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71TMcktw+qL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://geni.us/lp2l      ad
   4 PCS Handbag Set! Add lightning deal and clip 10% coupon!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
-  https://amzn.to/3Y6EOeO
+  https://amzn.to/3Y6EOeO<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81g88BEaREL._AC_SX679_.jpg)
+
+  <!--EndFragment-->
 * 29.xx Only
   Kids' Softside Upright Luggage , Carry-On 18-Inch
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
-  https://amzn.to/4f4ZWZC
+  https://amzn.to/4f4ZWZC<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71d+Yi1YtPS._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Just  10.xx 
   3 Flavor Variety Pack 
   Use S&S
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
-  https://amzn.to/3UgMxWq
+  https://amzn.to/3UgMxWq<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81t+j7kv-mL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * Coffee maker, 50 oz
   Now 49.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
-  https://amzn.to/4h8Jj1b
+  https://amzn.to/4h8Jj1b<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/8150coh3TDL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Bathroom rug 30x20 🔥🔥🔥
   Just 8.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
-  https://amzn.to/4f7w6E0
+  https://amzn.to/4f7w6E0<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91-9H6R6Y4L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * DIY Felt Christmas Tree Set, 
   14.xx + coupon
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
-  https://amzn.to/4hn24OC   ad
+  https://amzn.to/4hn24OC   ad<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71tOgE8sJ1L._AC_SL1001_.jpg)
+
+  <!--EndFragment-->
 * Indulge in Deliciousness, Snack Love
   AD
   Snacks Variety Pack, 56 Snack Packs (2 Cookies Per Pack)
-  https://amzn.to/3NwAO2s
+  https://amzn.to/3NwAO2s<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81JPbVpwI1L._SL1500_.jpg)
+
+  <!--EndFragment-->
 * AD
   Mini Mix Sandwich Cookies Variety Pack, 20 Snack Packs
-  https://amzn.to/3NxGCZu
+  https://amzn.to/3NxGCZu<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81afVt1zpmL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * Just 9.xx 
   Dog Toys
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   AD
-  https://amzn.to/48bVfLy
+  https://amzn.to/48bVfLy<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91Rgyiif18L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * Just 224.xx 
   Heat press machine
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
