@@ -264,3 +264,16 @@ ad
 ![](https://m.media-amazon.com/images/I/61dVjYX+ooL._SL1500_.jpg)
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+Super Stay Vinyl Ink Longwear 8.xx
+
+https://amzn.to/4hapOW1
+
+ad\
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71fDh3OdobL._SL1500_.jpg)
+
+<!--EndFragment-->
