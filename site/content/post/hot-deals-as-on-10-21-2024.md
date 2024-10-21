@@ -194,3 +194,19 @@ ad
 ![](https://m.media-amazon.com/images/I/61DcdgnhAZL._SL1500_.jpg)
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+Micellar Water 6,xx
+
+with coupon
+
+https://amzn.to/3YhinUa
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/7162GZ9DLWL._SL1500_.jpg)
+
+<!--EndFragment-->
