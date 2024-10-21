@@ -3,7 +3,7 @@ title: "Hot deals as on 10.21.2024 "
 date: 2024-10-21T06:28:46.564Z
 tags: "amazon "
 Category: "others "
-description: Hot deals
+description: "Hot makeup deals under 10.xx "
 ---
 
 
