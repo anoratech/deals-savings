@@ -422,4 +422,18 @@ ad
 
 ![](https://m.media-amazon.com/images/I/91SO3BMezCL._SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+Color Bloom Liquid Blush Makeup for Cheeks Matte Finish - Swipe Right 6.xx
+
+https://amzn.to/4eHXpF7
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/513x7FVxVIL._SL1500_.jpg)
+
 <!--EndFragment-->
