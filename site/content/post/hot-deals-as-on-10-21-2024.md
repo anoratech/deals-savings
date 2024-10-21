@@ -73,4 +73,20 @@ ad
 
 ![](https://m.media-amazon.com/images/I/71a8hxhh0bL._SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+Makeup Setting Spray 9.xx
+
+with 10% SS coupon
+
+https://amzn.to/4dQ3nCt
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/914DYplAWNL._SL1500_.jpg)
+
 <!--EndFragment-->
