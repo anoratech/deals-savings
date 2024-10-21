@@ -29,4 +29,18 @@ with SS coupon
 
 ![](https://m.media-amazon.com/images/I/711BkLez67L._SL1500_.jpg)
 
+\
+\
+<!--StartFragment-->
+
+Power Grip Primer 9.xx
+
+https://amzn.to/3UcOlA0
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71JoBHcDvqL._SL1500_.jpg)
+
 <!--EndFragment-->
