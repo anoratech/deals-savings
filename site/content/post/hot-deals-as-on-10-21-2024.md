@@ -276,4 +276,16 @@ ad\
 
 ![](https://m.media-amazon.com/images/I/71fDh3OdobL._SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+Silk Finish Lipstick 1.xx\
+https://amzn.to/3NvR9nU\
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71wNU6XQoPL._SL1500_.jpg)
+
 <!--EndFragment-->
