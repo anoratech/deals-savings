@@ -178,3 +178,19 @@ https://amzn.to/4fcs3WZ ad
 ![](https://m.media-amazon.com/images/I/71MQo8pHmBL._SL1500_.jpg)
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+Super Stay Matte Ink Liquid Lipstick 5.xx
+
+save more 10% with SS coupon
+
+https://amzn.to/4dSURms
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61DcdgnhAZL._SL1500_.jpg)
+
+<!--EndFragment-->
