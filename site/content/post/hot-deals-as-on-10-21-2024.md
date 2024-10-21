@@ -59,4 +59,18 @@ ad
 
 ![](https://m.media-amazon.com/images/I/81AYsjroocL._SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+Gua Sha & Jade Roller Facial Tools 7.xx
+
+https://amzn.to/3BR48Op
+
+ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71a8hxhh0bL._SL1500_.jpg)
+
 <!--EndFragment-->
