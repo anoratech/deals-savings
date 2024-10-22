@@ -39,3 +39,18 @@ description: GRAB THIS AMAZING DEALS
   ![UGG Women\&#39;s Cozy Chenille Sock](https://m.media-amazon.com/images/I/61g6vyza-4L._AC_SX679_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  8xx
+
+  🔥6000 Clay Beads Bracelet Making Kit
+
+  🅰🆆🅴🆂🅾🅼🅴 🅳🆁🅾🅿
+
+  https://amzn.to/3UfX6sU (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/819HZrh0cIL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
