@@ -172,3 +172,16 @@ description: GRAB THIS AMAZING DEALS
   ![](https://m.media-amazon.com/images/I/71mHd49OclL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  19xx
+
+  💥💥Hair Tie Bracelets for Women
+
+  https://amzn.to/4hdrf62 (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71PyHDmxOfL._SL1500_.jpg)
+
+  <!--EndFragment-->
