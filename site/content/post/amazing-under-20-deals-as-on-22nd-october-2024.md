@@ -185,3 +185,18 @@ description: GRAB THIS AMAZING DEALS
   ![](https://m.media-amazon.com/images/I/71PyHDmxOfL._SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  9xx
+
+  Foldable Phone Stand for Desk
+
+  🍭💙 g𝕣𝐞𝓪Ť 𝓈ά𝐯ｉη𝓖𝐬
+
+  https://amzn.to/3AbOm0b (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61kvIyvKxVL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
