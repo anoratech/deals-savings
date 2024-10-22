@@ -97,3 +97,18 @@ description: GRAB THIS AMAZING DEALS
   ![](https://m.media-amazon.com/images/I/41gdf+cFGrL._AC_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  18xx
+
+  𝕊𝕠𝕗𝕥 𝕋𝕙𝕣𝕠𝕨 𝔹𝕝𝕒𝕟𝕜𝕖𝕥 𝕗𝕠𝕣 ℂ𝕠𝕦𝕔𝕙
+
+  𝓐𝓦𝓔𝓢𝓞𝓜𝓔 𝓢𝓐𝓥𝓘𝓝𝓖𝓢 🔽⏬
+
+  https://amzn.to/3YgDNkz (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91nc6x8xtjL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
