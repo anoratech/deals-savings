@@ -69,3 +69,16 @@ description: GRAB THIS AMAZING DEALS
   ![](https://m.media-amazon.com/images/I/91m2EWJd+FL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  9xx
+
+  Women Spinner Ring 😍😍
+
+  https://amzn.to/48ym50J (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61duy+2MHRL._AC_SL1200_.jpg)
+
+  <!--EndFragment-->
