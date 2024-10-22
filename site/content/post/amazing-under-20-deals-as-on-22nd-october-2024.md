@@ -112,3 +112,18 @@ description: GRAB THIS AMAZING DEALS
   ![](https://m.media-amazon.com/images/I/91nc6x8xtjL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  14xx
+
+  🎀 𝒫𝑅𝐼𝒞𝐸 𝒟💙𝒲𝒩 🎀
+
+  Tea Spa Petal-Infused Effervescent Mineral Bath Salts
+
+  https://amzn.to/3zY4DG5 (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81ngmknuuxL._SL1500_.jpg)
+
+  <!--EndFragment-->
