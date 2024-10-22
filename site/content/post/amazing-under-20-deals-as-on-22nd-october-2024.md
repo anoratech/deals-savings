@@ -230,3 +230,18 @@ description: GRAB THIS AMAZING DEALS
   ![](https://m.media-amazon.com/images/I/81M+5Ns0I0L._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  12xx
+
+  Layered Initial Necklaces for Women Girls Trendy
+
+  ♩♠ คω€sØᵐ乇 ｐ𝓻𝓲匚𝔼 ᵈг𝐨卩 ☝♨
+
+  https://amzn.to/3UkHGUa (AD)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71yo3U4gSgL._AC_SY500_.jpg)
+
+  <!--EndFragment-->
