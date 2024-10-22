@@ -54,3 +54,18 @@ description: GRAB THIS AMAZING DEALS
   ![](https://m.media-amazon.com/images/I/819HZrh0cIL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  22xx
+
+  Patented Iced Coffee/Beverage Cooler ❄️❄️
+
+  💋💜 𝔤ᖇ𝔼ａ𝕋 ƤŘ丨𝓒ᵉ ｄŘ𝐨ᵖ
+
+  https://amzn.to/4dVt2dg (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/91m2EWJd+FL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
