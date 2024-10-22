@@ -24,3 +24,18 @@ description: GRAB THIS AMAZING DEALS
   <!--EndFragment-->
 
   ![]()
+* <!--StartFragment-->
+
+  19xx
+
+  🧦🧦Women's Cozy Chenille Sock
+
+  🅾🅽 🅳🆁🅾🅿
+
+  https://amzn.to/3A9EELF (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![UGG Women\&#39;s Cozy Chenille Sock](https://m.media-amazon.com/images/I/61g6vyza-4L._AC_SX679_.jpg)
+
+  <!--EndFragment-->
