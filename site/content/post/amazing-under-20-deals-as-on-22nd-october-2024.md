@@ -290,3 +290,18 @@ description: GRAB THIS AMAZING DEALS
   ![](https://m.media-amazon.com/images/I/81b-q1sXYnL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  19xx
+
+  💥𝔹𝕒𝕥𝕙 𝔹𝕠𝕞𝕓𝕤 𝔾𝕚𝕗𝕥 𝕊𝕖𝕥
+
+  𝓗𝓤𝓖𝓔 𝓢𝓐𝓥𝓘𝓝𝓖𝓢 🔽⏬
+
+  https://amzn.to/3zWfd0g (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81TKKrVWC2L._SL1500_.jpg)
+
+  <!--EndFragment-->
