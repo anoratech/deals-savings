@@ -200,3 +200,18 @@ description: GRAB THIS AMAZING DEALS
   ![](https://m.media-amazon.com/images/I/61kvIyvKxVL._AC_SL1500_.jpg)
 
   <!--EndFragment-->
+* <!--StartFragment-->
+
+  17xx
+
+  ℍ𝕒𝕟𝕕𝕙𝕖𝕝𝕕 𝔹𝕝𝕖𝕟𝕕𝕖𝕣 𝟝𝟘𝟘𝕎 𝕨𝕚𝕥𝕙 𝟟𝟘𝟘𝕞𝕝 𝔹𝕖𝕒𝕜𝕖𝕣
+
+  🍒 🎀 𝒫𝑅𝐼𝒞𝐸 𝒟♡𝒲𝒩 🎀 🍒
+
+  https://amzn.to/40lxQ8i (ad)
+
+  <!--EndFragment--><!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/715SOlRB7WL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
