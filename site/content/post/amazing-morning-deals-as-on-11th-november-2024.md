@@ -32,14 +32,12 @@ description: HOT DEALS
   ✌✌𝘼𝙈𝘼𝙕𝙄𝙉𝙂 𝙎𝙏𝙀𝘼𝙇✌✌
    (¯`*•.¸,¤°´✿.｡.:* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 𝗕𝗘𝗦𝗧 𝗗𝗘@𝗟𝗦 *.:｡.✿`°¤,¸.•*´¯) 
 
-
 <!---->
 
 * https://mavely.app.link/e/pWaFXz9tqOb    AD
   3 Burner Propane Gas Grill
   ✌✌𝘼𝙈𝘼𝙕𝙄𝙉𝙂 𝙎𝙏𝙀𝘼𝙇✌✌
    (¯`*•.¸,¤°´✿.｡.:* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 𝗕𝗘𝗦𝗧 𝗗𝗘@𝗟𝗦 *.:｡.✿`°¤,¸.•*´¯) 
-
 
 ![May be an image of text](https://scontent.fixr3-4.fna.fbcdn.net/v/t39.30808-6/466478378_9226551070702244_6242913873738441951_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=aa7b47&_nc_ohc=fw-5JvfX7EwQ7kNvgHtbnXt&_nc_zt=23&_nc_ht=scontent.fixr3-4.fna&_nc_gid=Aru5HeCj029BeYXANC4wHZ1&oh=00_AYAIva60hWQhDP8Jrfd4tEai0U6Z4usVNyNLOYTR6pmPhQ&oe=67372946)
 
@@ -54,18 +52,7 @@ description: HOT DEALS
   ✌✌𝘼𝙈𝘼𝙕𝙄𝙉𝙂 𝙎𝙏𝙀𝘼𝙇✌✌
    (¯`*•.¸,¤°´✿.｡.:* 𝗪𝗔𝗟𝗠𝗔𝗥𝗧 𝗕𝗘𝗦𝗧 𝗗𝗘@𝗟𝗦 *.:｡.✿`°¤,¸.•*´¯) 
 
-
+  * https://geni.us/XBtFGpU   AD
+    STOCKING STUFFER DEAL
+    Chocolate Covered Candy Pack JUST 9.XX
   *
-  *
-  *
-*
-*
-*
-*
-
-<!---->
-
-*
-*
-*
-*
