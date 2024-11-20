@@ -5,42 +5,61 @@ tags: AMAZON
 Category: OTHERS
 description: HOT DEALS
 ---
-Electric Hand Mixer 
-Just 15.xx! 
-💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
-╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-https://amzn.to/3YM37ik
+* Electric Hand Mixer 
+  Just 15.xx! 
+  💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
+  https://amzn.to/3YM37ik<!--StartFragment-->
 
-20V MAX Power Tool Combo Kit JUST  599! 
-💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
-╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-https://amzn.to/48RgOBv
+  ![](https://m.media-amazon.com/images/I/71xKhTkIerL._AC_SL1500_.jpg)
 
-Grave Digger Remote Control Just 13.xx
-💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
-╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-https://amzn.to/3YUVw17
+  <!--EndFragment-->
+* 20V MAX Power Tool Combo Kit JUST  599! 
+  💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
+  https://amzn.to/48RgOBv
+* Grave Digger Remote Control Just 13.xx
+  💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
+  https://amzn.to/3YUVw17<!--StartFragment-->
 
-Magic Tape, 6 Rolls with Dispenser,ONLY 10.XX
-💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
-╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-https://amzn.to/3AP0yEr
+  ![](https://m.media-amazon.com/images/I/81GqudEBqgL._AC_SL1500_.jpg)
 
-Sweet & Salty Snacks, (Pack of 50) ON DROP
-ONLY 21 w/ s&s
-https://amzn.to/4hSmQFQ
+  <!--EndFragment-->
+* Magic Tape, 6 Rolls with Dispenser,ONLY 10.XX
+  💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
+  https://amzn.to/3AP0yEr<!--StartFragment-->
 
-10.xx for 12 cans or less 
-WITH S&S 
-💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
-╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-https://amzn.to/3UWg7B6
+  ![](https://m.media-amazon.com/images/I/71Y2em1MtzL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
+* Sweet & Salty Snacks, (Pack of 50) ON DROP
+  ONLY 21 w/ s&s
+  https://amzn.to/4hSmQFQ<!--StartFragment-->
+
+  ![Frito Lay Sweet \&amp; Salty Snacks, Variety Mix of Cookies, Crackers, Chips \&amp; Nuts, (Pack of 50)](https://m.media-amazon.com/images/I/91z823Kh7kL._SX679_PIbundle-50,TopRight,0,0_AA679SH20_.jpg)
+
+  <!--EndFragment-->
+* 10.xx for 12 cans or less 
+  WITH S&S 
+  💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
+  https://amzn.to/3UWg7B6<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71Kun5l2u3L._SL1500_.jpg)
+
+  <!--EndFragment-->
 
 Ultimate Light Board - White, Kids Drawing Tablet, JUST 16.XX 
 CL!P C0UPON
 💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
 ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-https://amzn.to/4hWh6Lh
+https://amzn.to/4hWh6Lh<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71myPnSfcYL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
 
 Christmas Peppermint Nougats - 11oz (Pack of 2) JUST 15.XX
 https://amzn.to/4fNZGib
@@ -48,25 +67,41 @@ https://amzn.to/4fNZGib
 Stain Remover Gel Cleaner – Heavy Duty Power! 15.xx
 💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
 ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-https://amzn.to/3YWyAPf
+https://amzn.to/3YWyAPf<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81pKCBlM0XL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
 
 8 Count,Handwriting Triangular Mechanical Pencil Set 📝 Includes Lead & Erasers!
 ONLY 3.xx
 💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
 ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-https://amzn.to/4fw0iJD
+https://amzn.to/4fw0iJD<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81eig0pSd8L._AC_SL1500_.jpg)
+
+<!--EndFragment-->
 
 50 PACK, Freshware Meal Prep Containers 
 ONLY 19.XX
 💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
 ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-https://amzn.to/3OcB7Q7
+https://amzn.to/3OcB7Q7<!--StartFragment-->
 
-GAME FOR KIDS
-80% Off Just 3.xx
-💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
-╚»★«╝ HUGE SAV!NGS ╚»★«╝\
-https://amzn.to/4eAnTrj
+![](https://m.media-amazon.com/images/I/81lBJ004NdL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
+* GAME FOR KIDS
+  80% Off Just 3.xx
+  💥Prices are accurate at the time of posting but deals and codes can end at any time! 💥
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
+  https://amzn.to/4eAnTrj<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81MXI8iX3AL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
 Leave-In Styling Hair Cream Treatment, No code needed
 https://amzn.to/48OCGNW
