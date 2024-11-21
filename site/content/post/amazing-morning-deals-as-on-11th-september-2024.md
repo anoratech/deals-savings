@@ -5,24 +5,18 @@ tags: AMAZON
 Category: OTHERS
 description: HOT DEALS
 ---
-
-
 * Kids Snacks, Lunch Snacks, Variety Pack, 20.1oz Box (52 Bars)
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3XmKYHp<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/81Rw1vzOI9L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * (Pack of 60) Fruit Snacks
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3XEnRbB<!--StartFragment-->
 
   ![Welch\&#39;s Fruit Snacks, Mixed Fruit \&amp; Berries \&#39;N Cherries Variety Pack, Perfect Halloween Candy Bulk Pack, Gluten Free, 0.8 oz Individual Single Serve Bags (Pack of 60)](https://f.media-amazon.com/images/I/51piME9P2RL._SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Kids Dinosaur Backpacks 
   half off at checkout!
   ♢Ｎ░ＤＲ♢Ｐ
@@ -30,8 +24,6 @@ description: HOT DEALS
   https://amzn.to/3XbBw9u<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/51sEqJQ8jmL._SR400,400_.jpg)
-
-  <!--EndFragment-->
 * 40% off 
   4 pack of Bed Sheet Organizers
   Discount comes off at checkout 
@@ -40,8 +32,6 @@ description: HOT DEALS
   https://amzn.to/3Tios19<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/31tVAcgAUSL._SR400,400_.jpg)
-
-  <!--EndFragment-->
 * 50% off on a set of 3 Acacia Wood Cutting Boards
   Discount comes off at checkout.
   ♢Ｎ░ＤＲ♢Ｐ
@@ -49,16 +39,12 @@ description: HOT DEALS
   https://amzn.to/47hpvnR<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/41pxQAsztkL._SR400,400_.jpg)
-
-  <!--EndFragment-->
 * BBQ and Grill Caddy with Paper Towel Holder ,50% off
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3Xm5wjn<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/71HVkVEoZdL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 39%off
   Santa Claus Christmas Gift Bags, 12 Pack 
   ♢Ｎ░ＤＲ♢Ｐ
@@ -66,32 +52,24 @@ description: HOT DEALS
   https://amzn.to/3Tq9tlJ<!--StartFragment-->
 
   ![PREXTEX Santa Claus Christmas Gift Bags, 12 Pack - 7 Inch Medium Size, Bulk Holiday Bags for Kids and Adults](https://f.media-amazon.com/images/I/71iOTNIERnL.__AC_SY300_SX300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Espresso Italiano Whole Bean Coffee
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3B7saUT<!--StartFragment-->
 
   ![Lavazza Espresso Italiano Whole Bean Coffee 100% Arabica Rich-bodied Medium roast with delicious, fragrant flavor and aromatic notes, 12 oz soft bag](https://f.media-amazon.com/images/I/41289VAzlDL._SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Premium Grade AAA Batteries - 24 Pack 
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4cWUdE0<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/71qjRSjcTEL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Throw Pillow Covers 18x18 Set of 4 - Couch Pillow Covers 
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/4cXewkD<!--StartFragment-->
 
   ![JIIBERL Throw Pillow Covers 18x18 Set of 4 - Couch Pillow Covers for Living Room Decorative Velvet Pillow Covers Soft Sofa Pillow Covers for Bed Bedding Room(Green)](https://f.media-amazon.com/images/I/71u7pzQbA2L.__AC_SY300_SX300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * 24 Pack G@T0RADE
   Just .38 each S+S!!
   ♢Ｎ░ＤＲ♢Ｐ
@@ -99,8 +77,6 @@ description: HOT DEALS
   https://amzn.to/3AX8bZ5<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/812uU6XQOWL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * N!ntend0 Switch Lite – Blue
   Only 179.xx
   ♢Ｎ░ＤＲ♢Ｐ
@@ -108,24 +84,18 @@ description: HOT DEALS
   https://amzn.to/3z9Bvv0<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/61JhOrXMQYL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * As low as 14
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3XB0HE0<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/81gc8-gbShL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Mouse Squad Collection Tumblers. 15oz Stemless Wine Glasses Set of 4
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3TnbfUC<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/81aJHw9Sy3L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * 50 Pack Velvet Hangers
   coupon!! 
   ♢Ｎ░ＤＲ♢Ｐ
@@ -133,16 +103,12 @@ description: HOT DEALS
   https://amzn.to/4gknScU<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/8198oNymFtL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Save 10.XX on 4 select item(s)
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/47kQHlB<!--StartFragment-->
 
   ![Tide Power PODS Plus Ultra OXI White and Bright Laundry Detergent, 45 Count, Advanced Stain Removal and Whitening Power](https://f.media-amazon.com/images/I/81cP8AiWPNL.AC_SL240_.jpg)
-
-  <!--EndFragment-->
 * 14.xx
   Blue Professional Kitchen Knife Chef Set
   ♢Ｎ░ＤＲ♢Ｐ
@@ -150,8 +116,6 @@ description: HOT DEALS
   https://amzn.to/4cWNh9W   AD<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/71rk1jKVR6L._AC_SL1200_.jpg)
-
-  <!--EndFragment-->
 * Harry Potter: Holiday Magic: The Official Advent Calendar
   54% OFF,14.xx
   ♢Ｎ░ＤＲ♢Ｐ
@@ -159,8 +123,6 @@ description: HOT DEALS
   https://amzn.to/3XAmKdR<!--StartFragment-->
 
   ![Harry Potter: Holiday Magic: The Official Advent Calendar](https://f.media-amazon.com/images/I/51QuBgU12zS._SY445_SX342_.jpg)
-
-  <!--EndFragment-->
 * Just 13.xx
   Baby Soothing Starlight Igloo
   ♢Ｎ░ＤＲ♢Ｐ
@@ -168,8 +130,6 @@ description: HOT DEALS
   https://amzn.to/3z2eFFE<!--StartFragment-->
 
   ![VTech Baby Soothing Starlight Igloo](https://f.media-amazon.com/images/I/61lo3Jnu3JL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Under Eye Stick
   7.xx
   Clip C0upon
@@ -178,8 +138,6 @@ description: HOT DEALS
   https://amzn.to/4dWGwpG<!--StartFragment-->
 
   ![](https://f.media-amazon.com/images/I/711jllsgFpL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * HD 8 tablet, 8” HD Display
   54% OFF , 59.XX
   ♢Ｎ░ＤＲ♢Ｐ
@@ -187,8 +145,6 @@ description: HOT DEALS
   https://amzn.to/4gluwjp<!--StartFragment-->
 
   ![Amazon Fire HD 8 tablet, 8” HD Display, 64GB, 30% faster processor, designed for portable entertainment, (2022 release), Denim](https://f.media-amazon.com/images/I/716NHsSc3HL._AC_SY300_SX300_.jpg)
-
-  <!--EndFragment-->
 * Dog Waste Bag Refill Rolls, Lavender Scented, 270 Count
   As low as 9.09 when you Subscribe and Save
   ♢Ｎ░ＤＲ♢Ｐ
@@ -196,16 +152,12 @@ description: HOT DEALS
   https://amzn.to/3TlHXpI<!--StartFragment-->
 
   ![Earth Rated Dog Poop Bags, Guaranteed Leak Proof and Extra Thick Waste Bag Refill Rolls For Dogs, Lavender Scented, 270 Count](https://f.media-amazon.com/images/I/71ciGcL3WYL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * 8 Bay AA AAA Battery Charger, USB High-Speed Charging
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
   https://amzn.to/3Tn5HJY<!--StartFragment-->
 
   ![POWEROWL 8 Bay AA AAA Battery Charger, USB High-Speed Charging, Independent Slot, for Ni-MH Ni-CD Rechargeable Batteries, No Adapter](https://f.media-amazon.com/images/I/61MYQcv3jQL._AC_SY300_SX300_.jpg)
-
-  <!--EndFragment-->
 * Spincast Reel and Fishing Rod Combo
   41% OFF
   9.XX
@@ -214,8 +166,6 @@ description: HOT DEALS
   https://amzn.to/3XyV3lP<!--StartFragment-->
 
   ![Zebco Slingshot Spincast Reel and Fishing Rod Combo, 5-Foot 6-Inch 2-Piece Fishing Pole, Size 30 Reel, Right-Hand Retrieve, Pre-Spooled with 10-Pound Zebco Line](https://f.media-amazon.com/images/I/51HZzSypSUL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * 50 % OFF
   4 Pack Large Fruit Storage Containers for Fridge with vent holes and handle
   c0de: 50EFGA83
@@ -224,8 +174,6 @@ description: HOT DEALS
   https://amzn.to/4gkYqnF<!--StartFragment-->
 
   ![4 Pack Large Fruit Storage Containers for Fridge with vent holes and handle，Airtight Food Storage Containers Keep Fruits, Vegetables, Berry, Fresh longer,BPA-free Fridge Storage Container with Lid](https://f.media-amazon.com/images/I/814B7oVS5mL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * Baking Pans Set for 17.XX
   ♢Ｎ░ＤＲ♢Ｐ
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝\
