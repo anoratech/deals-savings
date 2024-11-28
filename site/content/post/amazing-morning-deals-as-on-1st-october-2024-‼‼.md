@@ -99,59 +99,12 @@ description: HOT DEALS
   AD<!--StartFragment-->
 
   ![PrinStory Women\&#39;s Pajamas Set Long Sleeve Sleepwear Casual Loungewear Soft Button Down Pjs Set with Pockets](https://m.media-amazon.com/images/I/51ref4USXEL._AC_SY679_.jpg)
-* 50% OFF Halloween Temporary Tattoos
-  2.xx
-  50% off C0de: MXUSBXHN (works on all options)
-  https://amzn.to/4ek3QOm
-  𝙃𝙐𝙂𝙀 𝙎@𝙑!𝙉𝙂𝙎🚨
-  AD<!--StartFragment-->
-
-  ![InIsaJace Halloween Temporary Tattoos for Kids - 26 Sheets Cute Halloween Tattoos Halloween Trick or Treat Fake Tattoos Stickers for Boys Girls Halloween Gifts Goody Bag Stuffers Party Decor Favors](https://m.media-amazon.com/images/I/51KqplHxJVL._SY300_SX300_.jpg)
-* 40% OFF Halloween Decorations Skeleton Arms Stakes--5 Pack
-  21.xx
-  40% off C0de: T92TG4KF (works on Purple & Orange)
-  https://amzn.to/3ZEg28k
-  AD<!--StartFragment-->
-
-  ![Halloween Decorations Outside Outdoor Decor: 5 Pcs Light Up Skeleton Arm Stakes Halloween Decoration, 225 LED Purple \&amp; Orange Lights with 11 Modes, Scary Halloween Decorations Outdoor Yard Lawn Garden](https://m.media-amazon.com/images/I/81TkLqXzAML.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-* https://amzn.to/4dnNQd9 ad
-  40% OFF 13 FT Halloween Inflatables Skeleton Archway
-  53.xx
-  40% off C0de: PUPWJPTK
-  𝙃𝙐𝙂𝙀 𝙎@𝙑!𝙉𝙂𝙎🚨
-  AD<!--StartFragment-->
-
-  ![ITEFDTUTNE 13 FT Halloween Inflatables Skeleton Archway Outdoor Decorations, Large Inflatable Arch with Build-in LED, Scary Music, Fan, Halloween Blow Ups Decoration Arch for Party, Yard, Lawn](https://m.media-amazon.com/images/I/71PQ8PULi+L._AC_SY300_SX300_.jpg)
-* 50% OFF Halloween Crawling Hand
-  9.xx
-  50% off Code: 3A2UO5XI (works on Warm White 1Pack)
-  https://amzn.to/47I2XwE
-  𝙃𝙐𝙂𝙀 𝙎@𝙑!𝙉𝙂𝙎🚨
-  AD<!--StartFragment-->
-
-  ![Green Convenience Halloween Decorations Crawling Hand,Halloween Automatic Crawl with Spooky Music Battery Powered Lifelike Scary Can Glow and Moving Hand for Costume Party Holiday Decorations](https://m.media-amazon.com/images/I/71OGmLxkPYL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-* 50% OFF Halloween Favors Stationery Gift Set--192 Pcs
-  Only 14.xx
-  50% off Code: 50JY321T
-  https://amzn.to/4dkHD1y
-  𝙃𝙐𝙂𝙀 𝙎@𝙑!𝙉𝙂𝙎🚨
-  AD<!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/91Qj9Cve6PL._AC_SL1500_.jpg)
-* 50% OFF Halloween Party Favors--300 Pcs
-  14.xx
-  50% off Code: 508DLF8Z
-  https://amzn.to/4gFuOBx
-  𝙃𝙐𝙂𝙀 𝙎@𝙑!𝙉𝙂𝙎🚨   AD<!--StartFragment-->
-
-  ![](https://m.media-amazon.com/images/I/81xYzKdmc4L._AC_SL1500_.jpg)
 * 60% OFF 3 Tier Shelf Bookcase
   Only 35.xx
   10% off C0de: 57QHOU3J + 50% off coupon (works on all options of 42.9IN)
   𝙃𝙐𝙂𝙀 𝙎@𝙑!𝙉𝙂𝙎🚨
   https://amzn.to/3TLuIi5<!--StartFragment-->
-
-  ![Kadigo 3 Tier Shelf Bookcase Storage: Wooden Shelves Standing Open Display Floor Bookshelf with Storage Shelves-42.9 in Home Decor Furniture for Home Office, Game Room, Small Bedroom-Brown](https://m.media-amazon.com/images/I/71y9MHOVdmL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
+* ![Kadigo 3 Tier Shelf Bookcase Storage: Wooden Shelves Standing Open Display Floor Bookshelf with Storage Shelves-42.9 in Home Decor Furniture for Home Office, Game Room, Small Bedroom-Brown](https://m.media-amazon.com/images/I/71y9MHOVdmL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
 * 50% OFF UV Nail Lamp 72W\
   Only 9.xx
   50% off C0de: H99SSXOV (works on White)
