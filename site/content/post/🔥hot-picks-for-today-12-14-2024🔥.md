@@ -34,8 +34,6 @@ description: HOT DEALS
   https://amzlink.to/az0E27GBy8of7   ad<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61K9vHlhKlL._AC_SL1000_.jpg)
-
-  <!--EndFragment-->
 * HURRYYYYY 🏃♂🏃♂🏃♂🏃♂
   N@tional Ge0graphic Deals!! 
 
@@ -43,35 +41,25 @@ description: HOT DEALS
   https://amzlink.to/az0TaLB3tmd8E<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81Px15OhhCL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * Santa's Christmas Craft Kit for Kids
   https://amzlink.to/az0cybxVIbFdp<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81Px15OhhCL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0xlUo6ncgrx    AD
   Extra Large Fleece Throw Blanket for Couch 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝  <!--StartFragment-->
 
   ![Exclusivo Mezcla Extra Large Fleece Throw Blanket for Couch, Sofa, 300GSM Super Soft and Warm Blankets, Forest Green Throw All Season Use, Cozy, Plush, Lightweight, 50x70 Inches](https://m.media-amazon.com/images/I/81YsV1VJgiL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0gwxSWRi6AC   AD
   Ginger Pepparkakor - 5.25 Ounce (Pack of 12) ONLY 15.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝  <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81xKir3Yv5L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/At4x6xCGiPb   ad
   Girls Faux Suede Shearling Bow Boots
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝ <!--StartFragment-->
 
   ![Pawz Little & Big Girls Faux Suede Shearling Bow Boots](https://i5.walmartimages.com/seo/Pawz-Jane-Little-Big-Girls-Faux-Suede-Bow-Boot_55ed3bcb-f984-44cc-92c3-54f518647af4.acf9c7aaba42f4bef0b594e475d30333.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * https://mavely.app.link/e/C7NdLRfGiPb   ad
   9 QT TriZone Air Fryer, White Icing
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
