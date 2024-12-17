@@ -137,4 +137,14 @@ https://amzlink.to/az0HWFAkyzd9g ad
 
 ![](https://m.media-amazon.com/images/I/71Ta1alrfBL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Basic Paddle Brush 5.xx
+
+https://amzlink.to/az0eTk1umF5Ia ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/71rIx6zzFqL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
