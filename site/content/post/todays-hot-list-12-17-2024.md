@@ -148,3 +148,14 @@ https://amzlink.to/az0eTk1umF5Ia ad
 ![](https://m.media-amazon.com/images/I/71rIx6zzFqL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+Bubble Letter Necklace\
+https://amzlink.to/az00dUzhRgJ6L ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61cz+5be54L._AC_SY535_.jpg)
+
+<!--EndFragment-->
