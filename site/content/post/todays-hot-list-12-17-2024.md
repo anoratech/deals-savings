@@ -44,3 +44,15 @@ https://amzlink.to/az0YmKQehLNgd ad
 ![](https://m.media-amazon.com/images/I/51KJp4Sgg9L._SL1500_.jpg)
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+Best of the Best Baked Palette - Full Size 52.xx
+
+https://amzlink.to/az0mWIKIWJZGK ad
+
+<!--EndFragment--><!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71Oul3dng1L._SL1500_.jpg)
+
+<!--EndFragment-->
