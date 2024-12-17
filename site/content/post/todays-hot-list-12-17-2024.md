@@ -95,4 +95,20 @@ https://amzlink.to/az0cKv7lbQoja ad
 
 ![](https://m.media-amazon.com/images/I/61X7hXXjoUL._SL1500_.jpg)
 
+
+
+
+
+
+
+<!--StartFragment-->
+
+Julep So Plush Glossy Lip Oil 12.xx
+
+https://amzlink.to/az0AdBiDEIEtK ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/71xhG4sLQaL._SL1500_.jpg)
+
 <!--EndFragment-->
