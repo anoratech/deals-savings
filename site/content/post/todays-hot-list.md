@@ -7,6 +7,16 @@ description: Today's Hot List
 ---
 <!--StartFragment-->
 
+Chicken Shredder 8 Inches, 5.xx
+
+https://amzlink.to/az0IGcWXS2tP1 ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71odoT1WkiL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 Gelfire Ignitor Blaster 3.xx
 
 https://amzlink.to/az0ce6OrFvplX ad
