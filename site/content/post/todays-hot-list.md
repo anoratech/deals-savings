@@ -42,3 +42,17 @@ https://amzlink.to/az08jg7JOnfTX ad
 ![Purse Pets Micros, Fuzzy Bunny BB Mini Kids Purse with Eye Roll, Shoulder Bag Crossbody Purse Accessories](https://m.media-amazon.com/images/I/71hk-KV4jGL._AC_SX679_.jpg)
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+6.xx
+
+Lilo and Stitch Colorful Jewelry 8 pieces Set for Girls
+
+https://amzlink.to/az0SDPbPFhiQs ad
+
+<!--StartFragment-->
+
+![May be an image of text](https://scontent.fccu31-1.fna.fbcdn.net/v/t39.30808-6/470649894_549396794760013_3985809352499354644_n.jpg?_nc_cat=100&ccb=1-7&_nc_sid=aa7b47&_nc_ohc=UxsL7DkkKPIQ7kNvgElTGfo&_nc_zt=23&_nc_ht=scontent.fccu31-1.fna&_nc_gid=ACVUnLLArmsMoHIDyC5mLuu&oh=00_AYBrwj_eB0AULiA7EnKXFal66cHZDdc2LP0Dwz5n5W2mBQ&oe=6768A92A)
+
+<!--EndFragment-->
