@@ -7,6 +7,18 @@ description: Today's Hot List
 ---
 <!--StartFragment-->
 
+⚡️ 7.xx for Kids See & Spell Learning Educational Toys⚡️
+
+add lightning deal price
+
+https://amzlink.to/az0OtXAM9BC9C ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/81h4xkuf-iS._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 Chicken Shredder 8 Inches, 5.xx
 
 https://amzlink.to/az0IGcWXS2tP1 ad
