@@ -66,12 +66,20 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
 * https://amzlink.to/az0TWzqCNgI0i   ad
   5 Surprise Mega Gross Minis Series 2 (2 Pack) by ZURU Boys, Mystery only 9.xx
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81Vpj3ibSPL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0Thcub4hEoL           AD
   NEW PRICE DROPS , UPTO 85% OFF, TONS OF EALS 🏃♂🏃♂🎁🎁
 * https://amzlink.to/az0cllEJvLivu     ad
   Black 6-Piece Pot Set  ONLY 22.XX
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61ZAjiDIDlL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0Nz0VArEdHK   ad
    Makeup Storage Organizer  only 17.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝
