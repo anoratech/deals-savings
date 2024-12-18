@@ -7,6 +7,18 @@ description: Today's Hot List
 ---
 <!--StartFragment-->
 
+Hard wax beads for hair removal
+
+50% SS coupon
+
+https://amzlink.to/az0yJ0eNMn1kU ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71RbG+gJ+EL._SL1500_.jpg)
+
+<!--EndFragment-->
+
 Cloud Stickers 3.xx
 
 https://amzlink.to/az0DSe4K5Wkvz ad
