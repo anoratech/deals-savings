@@ -7,6 +7,16 @@ description: Today's Hot List
 ---
 <!--StartFragment-->
 
+Gelfire Ignitor Blaster 3.xx
+
+https://amzlink.to/az0ce6OrFvplX ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71dziLIOJ0L._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 🔥2.xx
 
 ⬇️Price Drop⬇️2024-2025 Monthly Planner and Calendar Book
