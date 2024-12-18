@@ -1,5 +1,5 @@
 ---
-title: Today's Hot List
+title: "Today's Hot List   12.18.2024 "
 date: 2024-12-18T12:15:45.859Z
 tags: "amazon "
 Category: "others "
