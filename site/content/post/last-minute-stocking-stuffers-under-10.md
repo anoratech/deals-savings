@@ -50,3 +50,14 @@ https://amzlink.to/az0QETI1Eqhyc ad
 ![](https://m.media-amazon.com/images/I/61B21z2BKYL._SL1200_.jpg)
 
 <!--EndFragment-->
+
+ Full beard detangler   8.xx 
+
+https://amzlink.to/az0tp2ecIfrKg
+  ad 
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61pWAPXXS3L._SL1500_.jpg)
+
+<!--EndFragment-->
