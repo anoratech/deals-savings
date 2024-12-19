@@ -38,3 +38,15 @@ https://amzlink.to/az0eD9qQUULbj ad
 ![](https://m.media-amazon.com/images/I/71T6bmer5kL._SL1280_.jpg)
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+sea-salt flakes 7.xx
+
+https://amzlink.to/az0QETI1Eqhyc ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61B21z2BKYL._SL1200_.jpg)
+
+<!--EndFragment-->
