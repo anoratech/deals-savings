@@ -26,3 +26,15 @@ https://amzlink.to/az0mTyuz8MK2M ad
 ![](https://m.media-amazon.com/images/I/81PdxJm1gbL._SL1500_.jpg)
 
 <!--EndFragment-->
+
+<!--StartFragment-->
+
+gold metal claw clips 7.xx
+
+https://amzlink.to/az0eD9qQUULbj ad
+
+<!--EndFragment--><!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71T6bmer5kL._SL1280_.jpg)
+
+<!--EndFragment-->
