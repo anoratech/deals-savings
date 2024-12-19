@@ -91,4 +91,13 @@ https://amzlink.to/az0k0FVnrouj6  ad
 
 ![](https://m.media-amazon.com/images/I/81TUs9ivobL._AC_SL1500_.jpg)
 
+<!--EndFragment--> 
+
+Clinique clarifying lotion  5.xx 
+https://amzlink.to/az0aSxmwCr1WY ad 
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/51lvidzZ5VL._SL1500_.jpg)
+
 <!--EndFragment-->
