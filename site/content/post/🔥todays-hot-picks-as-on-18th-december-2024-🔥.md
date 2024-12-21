@@ -36,27 +36,19 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![Bluey My Size Bluey, 3ft Plush, Ages 3+, Toddler Toy](https://i5.walmartimages.com/seo/Bluey-My-Size-Bluey-Stuffed-Plush_1a90c081-92f6-442d-aa23-51c4b2b330bc.5db05041cb73396f90a5c42324a75d00.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0WznE2TqoVO   AD
   Relaxing Spa Gift Baskets for Her. This whole gift set is ONLY 9.XX <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81yglwl-LZL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0HzYzWPqmbt   AD
   Toomies Blue-eey Bath Toys ONLY 8.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![TOMY Toomies Bluey Bath Toys - Bluey\&#39;s Family Pourers - Water Pouring Bluey Figures Including Chilli, Bandit, Bingo, and Bluey - Nesting and Stacking Cups for Bath Time - Ages 18 Months and Up](https://m.media-amazon.com/images/I/71xJD0rkeAL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az02IY57vNduq   ad
   Save 5 when you buy 25 of select items, Runnn 🔥🔥<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71beHnXTUNL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0B9bzVNv6y2   AD
   Lovely Fun festive necklaces!!! 
   50% off at checkout
@@ -69,8 +61,6 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81Vpj3ibSPL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0Thcub4hEoL           AD
   NEW PRICE DROPS , UPTO 85% OFF, TONS OF EALS 🏃♂🏃♂🎁🎁
 * https://amzlink.to/az0cllEJvLivu     ad
@@ -78,8 +68,6 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61ZAjiDIDlL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0Nz0VArEdHK   ad
    Makeup Storage Organizer  only 17.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝
