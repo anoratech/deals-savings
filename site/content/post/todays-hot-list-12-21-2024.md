@@ -7,6 +7,15 @@ description: Today's Hot List (Toy deals )
 ---
 <!--StartFragment-->
 
+Garbage Truck Toy Set 19.xx\
+https://amzlink.to/az02eseChkmdF ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81mJg+Qgs-L._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 Montessori Toys 4.xx\
 https://amzlink.to/az08jBaHAnmWO ad
 
