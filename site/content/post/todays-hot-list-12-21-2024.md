@@ -7,6 +7,17 @@ description: Today's Hot List (Toy deals )
 ---
 \#kidsdec212024 
 
+<!--StartFragment-->
+
+1000+ Charms & Beads, Alphabet Charms 9.xx\
+https://amzlink.to/az0ueaAlhKlSn ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81Bl79Dt5ML._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 Magnetic Tiles 3D Frozen\
 https://amzlink.to/az01AVpSciQMU  ad
 
