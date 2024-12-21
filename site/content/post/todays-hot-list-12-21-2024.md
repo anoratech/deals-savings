@@ -7,6 +7,15 @@ description: Today's Hot List (Toy deals )
 ---
 <!--StartFragment-->
 
+Baby Learning Toy Link Squad Crawl ‘n Colors Chameleon with Music & Lights 8.xx\
+https://amzlink.to/az0LH1bySJZOK ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71Lu1ZeiQIL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 Crayola Musical Color Bug, Toddler Sensory Toy\
 https://amzlink.to/az0qOakiV3ldP ad 
 
