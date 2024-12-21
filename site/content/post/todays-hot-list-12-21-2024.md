@@ -7,6 +7,15 @@ description: Today's Hot List (Toy deals )
 ---
 <!--StartFragment-->
 
+Magnetic Tiles 3D Frozen\
+https://amzlink.to/az01AVpSciQMU  ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/814yvfqHg+L._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 RacerVerse Batman’s Escape Chase Vehicle Transforms\
 https://amzlink.to/az0Q36UZZ7KkB ad
 
