@@ -5,7 +5,7 @@ tags: "amazon "
 Category: "others "
 description: Today's Hot List (Toy deals )
 ---
-<!--StartFragment-->
+\#kidsdec212024 
 
 Magnetic Tiles 3D Frozen\
 https://amzlink.to/az01AVpSciQMU  ad
@@ -13,6 +13,15 @@ https://amzlink.to/az01AVpSciQMU  ad
 <!--EndFragment-->
 
 ![](https://m.media-amazon.com/images/I/814yvfqHg+L._AC_SL1500_.jpg)
+
+<!--StartFragment-->
+
+170pcs Purple Diamonds Birthday Party Supplies\
+https://amzlink.to/az0YyIxCxr9Nd ad
+
+<!--EndFragment-->
+
+![](https://m.media-amazon.com/images/I/81ew8nZkYrL._AC_SL1500_.jpg)
 
 <!--EndFragment-->
 
