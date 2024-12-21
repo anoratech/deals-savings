@@ -8,7 +8,11 @@ description: Today's Hot List (Toy deals )
 <!--StartFragment-->
 
 Crayola Musical Color Bug, Toddler Sensory Toy\
-https://amzlink.to/az0qOakiV3ldP ad
+https://amzlink.to/az0qOakiV3ldP ad 
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61QYFgAep9L._AC_SL1081_.jpg)
 
 <!--EndFragment-->
 
