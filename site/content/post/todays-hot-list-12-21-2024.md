@@ -7,6 +7,15 @@ description: Today's Hot List (Toy deals )
 ---
 <!--StartFragment-->
 
+RacerVerse Batman’s Escape Chase Vehicle Transforms\
+https://amzlink.to/az0Q36UZZ7KkB ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/711b0ifHS6L._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 Garbage Truck Toy Set 19.xx\
 https://amzlink.to/az02eseChkmdF ad
 
