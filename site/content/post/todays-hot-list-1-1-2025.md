@@ -203,6 +203,18 @@ Purse Charm and Keychain 4.xx
 
 ![](https://m.media-amazon.com/images/I/71JuhUb3muL._SL1024_.jpg)
 
+
+
+<!--StartFragment-->
+
+Bracelets Charms 4.xx 
+
+https://amzlink.to/az0QtUTaHXL0E ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81uve+UPbHL._AC_SY500_.jpg)
+
 <!--EndFragment-->
 
 <!--EndFragment-->
