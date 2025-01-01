@@ -181,6 +181,18 @@ https://amzlink.to/az0umlQqDYbrw ad
 
 ![](https://m.media-amazon.com/images/I/719o5jNrhmL._AC_SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+ Friends Frame Christmas Ornament 4.xx 
+
+https://amzlink.to/az0jgbVXC52kx ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/911KIApWTZL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
 
 <!--EndFragment-->
