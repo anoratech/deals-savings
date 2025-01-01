@@ -193,6 +193,18 @@ https://amzlink.to/az0jgbVXC52kx ad
 
 ![](https://m.media-amazon.com/images/I/911KIApWTZL._AC_SL1500_.jpg)
 
+
+
+Purse Charm and Keychain 4.xx 
+
+ https://amzlink.to/az0PVcgQbtWli ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71JuhUb3muL._SL1024_.jpg)
+
+<!--EndFragment-->
+
 <!--EndFragment-->
 
 <!--EndFragment-->
