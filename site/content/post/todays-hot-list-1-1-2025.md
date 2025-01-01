@@ -219,6 +219,18 @@ https://amzlink.to/az0tLtgeB35UB ad
 
 ![](https://m.media-amazon.com/images/I/715sTjPi3RL._SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+Stretchy Loop for Apple Watch Bands  9.xx 
+
+https://amzlink.to/az0EPs6Fylql4 ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/710XqW2E3EL._AC_SY500_.jpg)
+
 <!--EndFragment-->
 
 <!--StartFragment-->
