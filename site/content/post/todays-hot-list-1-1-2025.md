@@ -84,4 +84,17 @@ https://amzlink.to/az0dqYeTkJugQ ad
 
 ![](https://m.media-amazon.com/images/I/81DI3D1BdLL._AC_SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+\
+Love you by heart Hardcover 6.xx!!  
+
+https://amzlink.to/az0QmZcZN9Qkz ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61ansGsCfrL._SL1200_.jpg)
+
 <!--EndFragment-->
