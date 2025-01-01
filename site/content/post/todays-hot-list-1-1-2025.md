@@ -57,4 +57,19 @@ https://amzlink.to/az0FTDVsXuCfb ad<!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/81eU7gDhgwL._AC_SL1500_.jpg)
 
+
+
+<!--StartFragment-->
+
+Echo Show 8
+
+\
+43% 0ff!! 84.xx!! 
+
+https://amzlink.to/az0RYArO86LT8 ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/51B0KzSAh2L._AC_SL1000_.jpg)
+
 <!--EndFragment-->
