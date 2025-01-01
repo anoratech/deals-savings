@@ -72,4 +72,16 @@ https://amzlink.to/az0RYArO86LT8 ad
 
 ![](https://m.media-amazon.com/images/I/51B0KzSAh2L._AC_SL1000_.jpg)
 
+
+
+<!--StartFragment-->
+
+2 Blasters 13.xx 
+
+https://amzlink.to/az0dqYeTkJugQ ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81DI3D1BdLL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
