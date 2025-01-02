@@ -50,4 +50,15 @@ https://amzlink.to/az0obBdlAuM26  ad
 
 ![](https://m.media-amazon.com/images/I/9144YEt4DKL._AC_SL1500_.jpg)
 
+
+
+99.xx Portable Bluetooth Speaker 
+
+\
+https://amzlink.to/az0hqUowmu59C  ad 
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71IsrpuSomL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
