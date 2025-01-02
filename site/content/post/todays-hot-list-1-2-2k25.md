@@ -19,7 +19,7 @@ Giddy Buggy Binoculars   9.xx
 
 https://amzlink.to/az0vxKM2GH3I4  ad  
 
-<!--StartFragment-->
+
 
 ![](https://m.media-amazon.com/images/I/81JhAsO2UnL._AC_SL1500_.jpg)
 
@@ -28,7 +28,7 @@ https://amzlink.to/az0vxKM2GH3I4  ad
 \
 https://amzlink.to/az0COmuOhaJUZ  ad  
 
-<!--StartFragment-->
+
 
 ![](https://m.media-amazon.com/images/I/81J3Tfrk7WL._AC_SL1500_.jpg)
 
@@ -37,7 +37,7 @@ https://amzlink.to/az0COmuOhaJUZ  ad
 
 https://amzlink.to/az0HZPWjNiHAt  ad 
 
-<!--StartFragment-->
+
 
 ![](https://m.media-amazon.com/images/I/51l2V84JkcL.jpg)
 
@@ -48,7 +48,7 @@ https://amzlink.to/az0HZPWjNiHAt  ad
 
 https://amzlink.to/az0L4hW7rXaTI  ad 
 
-<!--StartFragment-->
+
 
 ![](https://m.media-amazon.com/images/I/81gVbaY8p2L._AC_SL1500_.jpg)
 
