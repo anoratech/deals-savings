@@ -137,7 +137,14 @@ https://amzlink.to/az0Hsoa2HZfI8 ad
 
 <!--EndFragment-->
 
+ 5.xx Go! Go! Smart Wheels Fire Truck 
 
+\
+https://amzlink.to/az0pERO5zkVgM  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/713tl+JBLxL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
 
 <!--EndFragment-->
 
