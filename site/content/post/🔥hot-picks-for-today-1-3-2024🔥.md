@@ -66,24 +66,18 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71814VtekQL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0HkgnLnZVGF   AD
   ONLY 7.XX Valentine's Day Pillow Covers, 16 x 16 Inch , Set of 4
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81h8MJUKrGL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0qiEYVrM9xk   AD
   ONLY 5.xx , Coppertop AA Batteries , 10 
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71qcX+mH94L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0WGAZYZIn15   AD
   40 Piece Silverware Set
   LD DEAL
@@ -91,8 +85,6 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61ysDODB69L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0CYD6JBztKF    AD
   JUST 6.xx
   Cc
@@ -101,39 +93,29 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61CWfmy-9RL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0gA5aHL9Gts   ad
   Moisturizing Body Wash for Dry Skin
   JUST 4.XX when you S&S! <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61gU-O1chBL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0Bxo051WSw8  ad
   Velvet puffer vest starting at 16.XX
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![Shiyifa Women\&#39;s Fashion High Neck Zipper Cropped Puffer Vest Jacket Coat](https://m.media-amazon.com/images/I/61alNsqC+fL._AC_SX679_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0StrBUJzxQx        ad
   4 pack chocolate chip cookie mix for 5.XX, When S+S
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81d-u1QMXWL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0hJY47mcrVF      ad
   Purse Organizer Insert  only 9.xx
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![ZTUJO Purse Organizer Insert, Felt Bag Organizer with Metal Zipper, Handbag \&amp; Tote Shaper, For Speedy Neverfull Tote, 7 Sizes](https://m.media-amazon.com/images/I/71WHxaiuDlL._AC_SX466_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0yy3yjDg4LB   ad
   STOCK UP ON EVERYDAY ITEMS!
   BUY 50 & Get 15 Credit
@@ -144,16 +126,12 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71Hn1LJm+CL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0CRV7cyEA6A     AD
   ONLY 22.XX  , Boho Duvet Cover King Size
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81een6uuOtL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0j8BhH2ntP0    AD
   TONS of candy 
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
