@@ -8,23 +8,39 @@ description: HOT DEALS
 * https://amzlink.to/az0xhoLQ9XdBm   AD
   14.xx , Insulated Womens Lunch Bag For Work  ONLY 14
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81EYDxmBj5L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
   https://amzlink.to/az0SbdKgt751V   AD
   23.xx,  Coffee Table with Bin Drawer
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71Gba6nIXTL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
   https://amzlink.to/az0mu0zsHMJTb    AD
   As low as 17.xx 
   Cc + sub and save
   Plastic-Free Textured Clean, 540 Count (9 packs)
-  👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
+  👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!<!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/814P2exuObL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 
   https://amzlink.to/az0i5V5dniGwX    AD
   15 inch Wooden Folding Chess & Checkers Set
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61G7rljYXqL._AC_.jpg)
+
+  <!--EndFragment-->
 
   https://amzlink.to/az0iCoPsZGWJu     AD
   ONLY 167.xx  , Video Smart Lock 3-in-1 
