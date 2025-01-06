@@ -1,5 +1,5 @@
 ---
-title: 🔥TODAY'S INCREDIBLE HOT DEALS as on 1/6/2024 🔥
+title: 🔥TODAY'S INCREDIBLE HOT DEALS as on 1/6/2025 🔥
 date: 2025-01-06T08:53:04.614Z
 tags: AMAZON
 Category: OTHERS
