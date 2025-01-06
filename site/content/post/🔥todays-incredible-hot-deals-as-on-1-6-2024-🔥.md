@@ -143,11 +143,19 @@ description: HOT DEALS
   Deluxe Letters and Numbers Wooden Stamp Set  only 9.xx
   54 % Off 
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81JY-w54RXL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az09Mcv0lNeeB    ad
   Hooded Sweatshirt  only 12.xx
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![GAP Baby Boys\&#39; Playtime Favorites Logo Full Zip Hoodie Hooded Sweatshirt](https://m.media-amazon.com/images/I/71TwBtE58rL._AC_SY679_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az03k8SgJqQFr   ad
   ✨🚨🚨Tons of Groceries✨🚨🚨
   SPEND 35 GET 10 OFF
@@ -155,12 +163,20 @@ description: HOT DEALS
   Valentine’s gift ❤
   ONLY 4.xx
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/711pcahtuuL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0XyfTAxaVA9   ad
   Football Party Decorations
   Only 12.xx with cupon
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/910psIatjJL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0oNeWkyOoLU   ad
   Dental whitening kit (44 strips)
   Only 29.xx 
