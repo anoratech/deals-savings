@@ -119,6 +119,34 @@ https://amzn.to/40xkVQF ad
 
 ![](https://m.media-amazon.com/images/I/81QU2PyTSiL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Cute Kawaii Soft Holiday Stuffed Animal 3.xx
+
+https://amzn.to/4h9IR1H ad 
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61NiBT7wf+L._AC_SL1500_.jpg)
+
+
+
+<!--StartFragment-->
+
+Prep 60-Piece Meal Prep Kit
+
+https://amzn.to/4jaPClT ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81lOTgPhtpL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
+<!--EndFragment-->
+
+<!--EndFragment-->
+
 <!--EndFragment-->
 
 <!--EndFragment-->
