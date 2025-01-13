@@ -69,6 +69,30 @@ https://amzn.to/40tZyQ3 ad
 
 ![](https://m.media-amazon.com/images/I/71Iuir0dD9L._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Mix Snack Variety Pack  
+
+https://amzn.to/4gLi3oO ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81XcYToQz8L._SL1500_.jpg)
+
+<!--StartFragment-->
+
+🎄5O% 0ff 9.xx
+
+Spider-Man Funko POP! Christmas Ornament
+
+https://amzn.to/40feobF ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/A1ghV3CiMEL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 <!--EndFragment-->
 
 <!--EndFragment-->
