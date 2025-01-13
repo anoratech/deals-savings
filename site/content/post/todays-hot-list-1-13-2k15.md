@@ -17,8 +17,6 @@ https://amzn.to/3DLnR2X ad
 
 <!--StartFragment-->
 
-
-
 Nail Salon Pro Brush Kit
 
 😲5O% 0ff!! 🔥 3.xx
@@ -58,8 +56,6 @@ https://amzn.to/3C1D4fX ad
 <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/717S1G4-JkL._AC_SL1500_.jpg)
-
-
 
 Permanent Outdoor Lights for House, 
 
@@ -101,8 +97,6 @@ Valentines Ever!! 24 Pack Watercolor Paint Set
 
 ![](https://m.media-amazon.com/images/I/61OooPpfs5L._AC_SL1200_.jpg)
 
-
-
 Valentine's Candy Bag 4.xx 
 
 https://amzn.to/42b0hH7 ad
@@ -129,8 +123,6 @@ https://amzn.to/4h9IR1H ad
 
 ![](https://m.media-amazon.com/images/I/61NiBT7wf+L._AC_SL1500_.jpg)
 
-
-
 <!--StartFragment-->
 
 Prep 60-Piece Meal Prep Kit
@@ -141,13 +133,15 @@ https://amzn.to/4jaPClT ad
 
 ![](https://m.media-amazon.com/images/I/81lOTgPhtpL._AC_SL1500_.jpg)
 
-<!--EndFragment-->
+<!--StartFragment-->
 
-<!--EndFragment-->
+Multigrain Snacks, Variety Pack, 1 Ounce (Pack of 40)
 
-<!--EndFragment-->
+https://amzn.to/3DTmm2O ad 
 
-<!--EndFragment-->
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/91wVnnoFs0L._SL1500_.jpg)
 
 <!--EndFragment-->
 
