@@ -39,6 +39,16 @@ https://amzn.to/4fXO5gf ad
 
 <!--StartFragment-->
 
-![](https://m.media-amazon.com/images/I/61Rz0W6PfrL._SL1500_.jpg)
+![](https://m.media-amazon.com/images/I/61Rz0W6PfrL._SL1500_.jpg)<!--StartFragment-->
+
+Shower Steamers 8 Pack-Bath Bombs with 30% coupon 
+
+https://amzn.to/4jdoMcD ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81btczipqIL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
 
 <!--EndFragment-->
