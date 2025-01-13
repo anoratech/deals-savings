@@ -59,6 +59,18 @@ https://amzn.to/3C1D4fX ad
 
 ![](https://m.media-amazon.com/images/I/717S1G4-JkL._AC_SL1500_.jpg)
 
+
+
+Permanent Outdoor Lights for House, 
+
+https://amzn.to/40tZyQ3 ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71Iuir0dD9L._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 <!--EndFragment-->
 
 <!--EndFragment-->
