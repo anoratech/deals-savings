@@ -29,4 +29,16 @@ https://amzn.to/42cnRDf ad
 
 ![](https://m.media-amazon.com/images/I/714Z12FbpGL._SL1500_.jpg)
 
+<!--StartFragment-->
+
+Styling Gel🔥
+
+✂️CLlP S+S 3.xx!
+
+https://amzn.to/4fXO5gf ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61Rz0W6PfrL._SL1500_.jpg)
+
 <!--EndFragment-->
