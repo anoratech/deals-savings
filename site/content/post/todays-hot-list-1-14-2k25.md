@@ -27,4 +27,14 @@ https://amzlink.to/az0PnqB3nlwQi  ad
 
 ![May be an image of toy](https://scontent.fccu3-1.fna.fbcdn.net/v/t39.30808-6/473289393_568639589502400_664106582267993409_n.jpg?stp=dst-jpg_s720x720_tt6&_nc_cat=106&ccb=1-7&_nc_sid=aa7b47&_nc_ohc=ZjrCh4AZ-EUQ7kNvgEkQAUK&_nc_zt=23&_nc_ht=scontent.fccu3-1.fna&_nc_gid=AW2RMkkIZbIIp61_ylkWq22&oh=00_AYBHjlXbXCNunzVDQFXyC_Qb82UakrxRywOHoG_68Kau9g&oe=678BDE1B)
 
+Detangler & Leave In Conditioner Spray  8.xx 
+
+Price drop ➕ SS ✂✂ 
+
+https://amzlink.to/az04w2WFJCzPB ad 
+
+<!--StartFragment-->
+
+![May be an image of hair product and text](https://scontent.fccu3-1.fna.fbcdn.net/v/t39.30808-6/473592152_568637706169255_3412661051406052252_n.jpg?stp=dst-jpg_p526x296_tt6&_nc_cat=108&ccb=1-7&_nc_sid=aa7b47&_nc_ohc=RvvGLUhDtVAQ7kNvgFVzvcq&_nc_zt=23&_nc_ht=scontent.fccu3-1.fna&_nc_gid=AW2RMkkIZbIIp61_ylkWq22&oh=00_AYD5QU6MMsLzgi2eUpbJ5vG8I1sHXyeMF5rRuGyH_fDPXg&oe=678BC47D)
+
 <!--EndFragment-->
