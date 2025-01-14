@@ -70,4 +70,16 @@ https://amzlink.to/az0jeZxh4N9vN  ad
 
 ![](https://m.media-amazon.com/images/I/81E2qmXJHsL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+Pink Elephant Plushie 6.xx ONLY!!
+
+58 % 0FF!!
+
+https://amzlink.to/az0muDYcDjG2s ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81G092CmwxL._SL1500_.jpg)
+
 <!--EndFragment-->
