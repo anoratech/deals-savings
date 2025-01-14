@@ -92,4 +92,14 @@ https://amzlink.to/az07zx4yiNqr2 ad
 
 ![](https://m.media-amazon.com/images/I/71hqlaWmXCL._SL1500_.jpg)
 
+<!--StartFragment-->
+
+Trifecta Metallica 10.xx
+
+https://amzlink.to/az0o3QbTVMCqE ad
+
+<!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61A3dPGMlRL._SL1500_.jpg)
+
 <!--EndFragment-->
