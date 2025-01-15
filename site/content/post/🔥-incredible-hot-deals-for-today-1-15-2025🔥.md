@@ -21,8 +21,6 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71uOKj1RP5L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0nx4eRRAhRw  AD
   21 Pcs Pots and Pans Set Non Stick ONLY 66.XX
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
@@ -30,23 +28,17 @@ description: HOT DEALS
   ad  		<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/7144FcUnkiL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0Z3FqZi7Hyr   AD
   Food Storage Containers with Vented Lids, 26 Piece Set  ONLY 8.XX
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![Rubbermaid Easy Find Lids® Food Storage Containers with Vented Lids, 26 Piece Set, Blue](https://m.media-amazon.com/images/I/71DALUiZJEL._AC_SX569_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0iHqpuouSGR   AD
   10 Packs of Super yummy Cookies!!
   ONLY 3.XX after you use the clippable <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81siqE9TixL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://spd.ooo/xvrtxnd6ob  AD
   Artificial Flowers💐
   Now just 9.XX 
@@ -54,22 +46,16 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71yBaG97zPL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0mz6Ueq3RMb   AD
   Sterling Silver Bracelet ONLY 1.XX<!--StartFragment-->
 
   ![925 Sterling Silver Bracelet Simple Adjustable Bangle Love Heart Bracelets for Womens Girls Cubic Zirconia Birthstone](https://m.media-amazon.com/images/I/61zW6idDI-L._AC_SX679_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0PnDKbS52tJ   ad
   Valentine Cellophane Candy Bags,150 Pcs  only 5.xx RUNNNN🏃‍♀🏃‍♀
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81NdXBaDf-L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->   
 * https://amzlink.to/az0iP7ECmOgV2   AD
   18 boxes of tissues, CLlP S+S 12.xx RUNNN 🏃‍♀🏃‍♀🏃‍♀
 * https://amzlink.to/az0RrQzhAwIV7   AD
