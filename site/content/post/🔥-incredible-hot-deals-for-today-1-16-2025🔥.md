@@ -87,25 +87,45 @@ description: HOT DEALS
 
   <!--EndFragment-->
 * https://amzlink.to/az0rm4CsPLsRw   AD
-  30 Pack Valentines Exchange Cards with Zipper Bracelets 8.xx ONLY!! 🎁🎁 
+  30 Pack Valentines Exchange Cards with Zipper Bracelets 8.xx ONLY!! 🎁🎁 <!--StartFragment-->
+
+  ![OuMuaMua Valentines Gift for Kids Classroom - 30 Pack Valentines Exchange Cards with Zipper Bracelets for School Class Exchange Gifts, Toddlers Girls Boys Valentines Gifts](https://m.media-amazon.com/images/I/81TewtK3GoL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0F6vwJePdSh   AD
   Unisex Kids' Snug-Fit Cotton Pajama Sleepwear Sets  ONLY 7.XX
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![Amazon Essentials Unisex Kids\&#39; Snug-Fit Cotton Pajama Sleepwear Sets](https://m.media-amazon.com/images/I/81yOH8FyrKL._AC_SY679_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0949GVHlid3   AD
   Plastic Tablecloth Roll ONLY 11.xx!
   65 % 0FF!! 
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61kawke5V6L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0sKS1clgLfg   AD
   Burger Mix 💥💥, JUST 12.xx , 57 % 0FF
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61kawke5V6L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0vX2qysZfv6   AD
   CC🔗🔗 S+S 👉 JUST 5.xx
   Whitening Toothpaste - Pack of 3
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![Crest + Scope Whitening Toothpaste - Pack of 3, 5.4 Oz Tubes - Anticavity Fluoride Toothpaste, Fresh Breath, Kills Germs - Tartar Protection, Enamel Protection - Minty Fresh Flavor](https://m.media-amazon.com/images/I/51DOyE1fx2L._SX300_SY300_QL70_FMwebp_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0QT3dcE9P4u   AD
   Electric Food Chopper with 2 Bowls 
   ONLY 29.xx 
