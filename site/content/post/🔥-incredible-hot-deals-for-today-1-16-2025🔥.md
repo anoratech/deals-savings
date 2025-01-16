@@ -63,7 +63,11 @@ description: HOT DEALS
   <!--EndFragment-->
 * https://amzlink.to/az0nkGgmBw64p    ad
   58% off Pink Holy Book , Just 16.XX 
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![KJV Holy Bible: Large Print with 53,000 Center-Column Cross References, Pink Leathersoft, Red Letter, Comfort Print: King James Version](https://m.media-amazon.com/images/I/31BqQYHLgHL._SY445_SX342_PQ37_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az07hnE48zi63   ad
   29.xx
   Warming Mat for Food, Silicone Heating Mat for Food w/ 3 Adjustable Temperature
@@ -77,7 +81,11 @@ description: HOT DEALS
 * https://amzlink.to/az08KloCjnaTH   AD
   59% 0FF ONLY 17.XX
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71qwv9qfW7L._SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0rm4CsPLsRw   AD
   30 Pack Valentines Exchange Cards with Zipper Bracelets 8.xx ONLY!! 🎁🎁 
 * https://amzlink.to/az0F6vwJePdSh   AD
