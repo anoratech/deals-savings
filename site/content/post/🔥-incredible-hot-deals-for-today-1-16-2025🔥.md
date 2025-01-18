@@ -9,22 +9,16 @@ description: HOT DEALS
   C-h-e-e-t-o-s Minis Canisters, Flamin' Hot, 3.625 Ounce (Pack of 6) ONLY 10.XX , S+S<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81SsLvDdwhL._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0jwPY4XN8Ef   AD
   Pulse Oximeter Fingertip  ONLY 11.XX
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![Pulse Oximeter Fingertip - Oxygen Meter Finger Pulse Oximeter - Blood Oxygen Saturation Monitor with Heart Rate and Fast Spo2 Reading, Pulse Ox with TFT Screen, Lanyard (Not include Batteries)](https://m.media-amazon.com/images/I/61VOMijNIIL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0dgHosZnuGP   AD
   12 packs! Adult wet wipes! 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![Inspire Adult Wet Wipes Adult Wash Cloths, Adult Wipes for Incontinence \&amp; Cleansing, 8\&#34;x12\&#34; 600 Count 12 packs of 50](https://m.media-amazon.com/images/I/81pmKUbuSpL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0aYgqI7eS9A    AD
   51% off , Storage Bins 4-pack , Now 17.XX 🤩
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
@@ -32,42 +26,30 @@ description: HOT DEALS
   Adult Lunch box 4-pack JUST 4.XX ‼HURRYYYY 🏃‍♂🏃‍♂🏃‍♂🎁🎁🎁<!--StartFragment-->
 
   ![MaMix Bento Box Adult Lunch Box, 5 Compartment Bento Box for Adults 4 Pack, Reusable Stackable Snack Containers for Kids Adults with Utensils, for School, Work, and Travel (Wheat)](https://m.media-amazon.com/images/I/71NXaXZNYUL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0HeTvXmRX3p    AD
   Power Toilet Bowl Cleaner Gel, For Cleaning and Disinfecting, ONLY 1.XX 👍👍<!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71jb10hgVeL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0Ri3Lr5GLbc   AD
   Lucky Butterfly Bead Jade Crystal Bracelets  JUST 1.XX👩🏃‍♂🏃‍♂<!--StartFragment-->
 
   ![Chinese 14K Gold Lucky Butterfly Bead Jade Crystal Bracelets for Women Lucky Jade Dainty Beads Bracelets Gold Jewelry Gifts for Women Her](https://m.media-amazon.com/images/I/617VXgbroSL._AC_SY500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0b8zHGpAyij   ad
   Freeze Dried Candy! only 5.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71+7qBN4W3L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0kHKIVoN5Oi   ad
   30 Packs Valentines Day Gift Cards with Fantasy Slime❤
   Only 9.xx
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/91Q5Z3pF4pL._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0nkGgmBw64p    ad
   58% off Pink Holy Book , Just 16.XX 
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![KJV Holy Bible: Large Print with 53,000 Center-Column Cross References, Pink Leathersoft, Red Letter, Comfort Print: King James Version](https://m.media-amazon.com/images/I/31BqQYHLgHL._SY445_SX342_PQ37_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az07hnE48zi63   ad
   29.xx
   Warming Mat for Food, Silicone Heating Mat for Food w/ 3 Adjustable Temperature
@@ -84,22 +66,16 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/71qwv9qfW7L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0rm4CsPLsRw   AD
   30 Pack Valentines Exchange Cards with Zipper Bracelets 8.xx ONLY!! 🎁🎁 <!--StartFragment-->
 
   ![OuMuaMua Valentines Gift for Kids Classroom - 30 Pack Valentines Exchange Cards with Zipper Bracelets for School Class Exchange Gifts, Toddlers Girls Boys Valentines Gifts](https://m.media-amazon.com/images/I/81TewtK3GoL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0F6vwJePdSh   AD
   Unisex Kids' Snug-Fit Cotton Pajama Sleepwear Sets  ONLY 7.XX
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![Amazon Essentials Unisex Kids\&#39; Snug-Fit Cotton Pajama Sleepwear Sets](https://m.media-amazon.com/images/I/81yOH8FyrKL._AC_SY679_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0949GVHlid3   AD
   Plastic Tablecloth Roll ONLY 11.xx!
   65 % 0FF!! 
@@ -107,16 +83,12 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61kawke5V6L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0sKS1clgLfg   AD
   Burger Mix 💥💥, JUST 12.xx , 57 % 0FF
   👉ᴾʳⁱᶜᵉˢ ᵃʳᵉ ᵃᶜᶜᵘʳᵃᵗᵉ ᵃᵗ ᵗʰᵉ ᵗⁱᵐᵉ ᵒᶠ ᵖᵒˢᵗⁱⁿᵍ ᵇᵘᵗ ᵈᵉᵃˡˢ ᵃⁿᵈ ᶜᵒᵈᵉˢ ᶜᵃⁿ ᵉⁿᵈ ᵃᵗ ᵃⁿʸ ᵗⁱᵐᵉ!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/61kawke5V6L._AC_SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0vX2qysZfv6   AD
   CC🔗🔗 S+S 👉 JUST 5.xx
   Whitening Toothpaste - Pack of 3
@@ -124,8 +96,6 @@ description: HOT DEALS
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
 
   ![Crest + Scope Whitening Toothpaste - Pack of 3, 5.4 Oz Tubes - Anticavity Fluoride Toothpaste, Fresh Breath, Kills Germs - Tartar Protection, Enamel Protection - Minty Fresh Flavor](https://m.media-amazon.com/images/I/51DOyE1fx2L._SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0QT3dcE9P4u   AD
   Electric Food Chopper with 2 Bowls 
   ONLY 29.xx 
