@@ -70,23 +70,37 @@ description: HOT DEALS
   https://amzlink.to/az0aGQ6JzAIW1   AD
   40-Piece All Purpose Household Pink Tool Kit
   JUST 19.XX!
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71mKDo+w2dL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0KrCI0XUQQ9   AD
   https://spd.ooo/7xwlboo8c3   AD
   2024 15-inch Laptop with M3 chip,  Midnight color
   ONLY 1099.xx 
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71tvcLXujtL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0LtnOEXJibm   AD
   https://spd.ooo/xx86y4l6vo
   10.9-inch Liquid Retina Display, 64GB , 10th Generation
   ONLY 279.xx 
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61uA2UVnYWL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az090LLHzipjy   AD
   Lunch Box for Kids 4 Compartments
   50% off – ONLY 4.xx 
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
-* https://amzlink.to/az0lDMsx9dkav  ad
-  13" Plush, 11.xx  💥💥
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71YzYiSL6PL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0pkI3ECn779   AD
   50 Pack Butterfly Hair Clips Just 3.XX RUNNNN 🏃♂🏃♂
 * https://amzlink.to/az0Y6TINhYL6i   AD
