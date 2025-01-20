@@ -66,4 +66,9 @@ https://amzn.to/4hgsukJ  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/81SoDhQiPxL._AC_SX522_.jpg)
 
+ Shrinky Dinks Minis Mermaids  6.xx 
+https://amzn.to/40oOEK9  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/91MzFVRlV2L._AC_SL1500_.jpg)
+
 <!--EndFragment-->
