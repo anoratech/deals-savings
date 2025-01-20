@@ -107,4 +107,10 @@ https://amzn.to/4allwYZ  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/71mCjBcUT1L._SL1500_.jpg)
 
+4 Makeup Bags!! SO CUTE!! 
+ JUST 13XX 
+https://amzn.to/40m7stG  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81Dgn1A7EsL._SL1500_.jpg)
+
 <!--EndFragment-->
