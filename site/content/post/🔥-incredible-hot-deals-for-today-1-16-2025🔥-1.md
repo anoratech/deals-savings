@@ -60,7 +60,11 @@ description: HOT DEALS
 * https://amzlink.to/az06jW2oiUQWi   ad
   53% off! Only 79.XX! hurryyyy👍
   10 piece stainless steel pans set! 
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71C-hcmGAAL._AC_SL1500_.jpg)
+
+  <!--EndFragment--> 
 * https://spd.ooo/pgn5qa7smq   ad
   https://amzlink.to/az0uSlihQ4GDC   ad
   32% off + 30% off qpon! 
