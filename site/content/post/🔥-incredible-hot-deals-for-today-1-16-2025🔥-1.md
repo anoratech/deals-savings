@@ -8,24 +8,48 @@ description: HOT DEALS
 * https://amzlink.to/az0uBIpp2ft1d   AD
   35 Pcs Silicone Spatula Set with Ergonomic Handles ONLY 12.XX
   CC
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81rLm+DWUrL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0wZ4sY9GxYO   AD
   Damage Therapy Derma Shampoo\
-  Only 2.xx after the clipable 
+  Only 2.xx after the clipable <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71G0Gwt6orL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0HStCv5q7kv   ad
   Only 3.xx 
   Makeup Remover Wipes! Big drop AND a Sub&Save Clipable! 
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71XUR11A+2L._SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0IRmWRfjStz   AD
   Air Purifier for Home  ONLY 39.XX
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61kglURs3pL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0JAgT8myVC4   AD
   3" Memory Foam Mattress Topper  ONLY 189.XX
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71NbZE0In1L._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://spd.ooo/9qniyxzbkm   AD
   https://amzlink.to/az00wZEFGC23Y  AD
   Complete Kit: Shoe Cleaner, Shoe Care, Water & Stain Protection IS 58% off! ONLY 18.XX
-  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
+  ╚»★«╝ HUGE SAV!NGS ╚»★«╝   <!--StartFragment-->
+
+  ![Shoe MGK Complete Kit: Shoe Cleaner, Shoe Care, Water \&amp; Stain Protection - Revitalize, Shield, and Freshen Sneakers, Leather, and Dress Shoes with Deodorizer](https://m.media-amazon.com/images/I/81DE--bzDzL._AC_SY500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0bQJEFv6qJj   ad
   Heating pad! Only 14.XX!
   ╚»★«╝ HUGE SAV!NGS ╚»★«╝   
