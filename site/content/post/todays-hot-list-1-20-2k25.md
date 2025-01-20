@@ -102,4 +102,9 @@ https://amzn.to/40DpUit  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/61Oabk3c4+L._SL1500_.jpg)
 
+Chocolate Peanut Butter Creme Hearts,  3.xx 
+https://amzn.to/4allwYZ  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71mCjBcUT1L._SL1500_.jpg)
+
 <!--EndFragment-->
