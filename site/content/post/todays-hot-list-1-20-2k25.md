@@ -55,4 +55,10 @@ https://amzn.to/4h2srIV  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/91lp-qtYLWL._AC_SL1500_.jpg)
 
+Valentines Day Cards with Friendship Bracelets!! 💌
+JUST 11XX  with coupon  ✂
+https://amzn.to/4gZasTD  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81BMuHHsBML._AC_SL1500_.jpg)
+
 <!--EndFragment-->
