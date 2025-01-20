@@ -27,4 +27,12 @@ https://amzn.to/3Wma4GH ad
 
 ![](https://m.media-amazon.com/images/I/71K6nXg9q-L._AC_SL1500_.jpg)
 
+
+
+67% 0ff Gel Pens! 4.xx
+
+ https://amzn.to/4g4fvkz  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/712lUByXsWL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
