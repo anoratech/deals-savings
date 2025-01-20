@@ -71,4 +71,9 @@ https://amzn.to/40oOEK9  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/91MzFVRlV2L._AC_SL1500_.jpg)
 
+50 Pack Butterfly Hair Clips  3.xx 
+https://amzn.to/3CocYnm  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71tymxmWk5L._SL1000_.jpg)
+
 <!--EndFragment-->
