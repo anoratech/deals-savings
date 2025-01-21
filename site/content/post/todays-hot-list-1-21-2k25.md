@@ -45,4 +45,10 @@ https://amzn.to/3PFmKVo  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/61o2-GGGznL._AC_SL1204_.jpg)
 
+Night Light for Kids\
+50 % Off    4.xx
+https://amzn.to/40Iv9Od  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61jnikNYVfL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
