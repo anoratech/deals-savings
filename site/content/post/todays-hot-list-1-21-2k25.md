@@ -95,4 +95,9 @@ https://amzn.to/4jmc7V0  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/61Vz7lGHRML._AC_SL1005_.jpg)
 
+Dish Soap Starter Kit  4.xx 
+https://amzn.to/4hnHEUH  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71LCcUM28CL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
