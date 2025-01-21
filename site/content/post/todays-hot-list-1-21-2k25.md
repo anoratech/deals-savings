@@ -51,4 +51,10 @@ https://amzn.to/40Iv9Od  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/61jnikNYVfL._AC_SL1500_.jpg)
 
+Premium Turkish Towels | Soft & Absorbent (4-Piece Bath Towels, Aqua)\
+79% Off  8.xx
+https://amzn.to/40vWfH4  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/A1Ai9lkPkcL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
