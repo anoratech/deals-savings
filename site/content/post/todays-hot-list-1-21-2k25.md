@@ -89,4 +89,10 @@ https://amzn.to/4heK0oW  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/91Dq+i8vM+L._SL1500_.jpg)
 
+Diamond Art Kits for Kids ✨🎨  🖍️💎
+59 % Off    6.xx
+https://amzn.to/4jmc7V0  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/61Vz7lGHRML._AC_SL1005_.jpg)
+
 <!--EndFragment-->
