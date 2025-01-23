@@ -102,4 +102,16 @@ https://amzn.to/42r7wLo  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/71uej+W6BtL._AC_SL1500_.jpg)
 
+<!--StartFragment-->
+
+24 Pack Valentine's Day Gift Cards for Kids Classroom
+
+50% coupon 9.xx
+
+https://amzn.to/4avkauG ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/71O2hagpKHL._AC_SL1500_.jpg)
+
+<!--EndFragment-->
+
 <!--EndFragment-->
