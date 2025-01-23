@@ -58,4 +58,9 @@ https://amzn.to/3CnYzrn  ad <!--StartFragment-->
 
 ![](https://m.media-amazon.com/images/I/71NDeavz3AL._AC_SL1500_.jpg)
 
+Queen Size Cooling Bed Pillows  32.xx
+https://amzn.to/4jqWYlc  ad <!--StartFragment-->
+
+![](https://m.media-amazon.com/images/I/81sQt9ZqcFL._AC_SL1500_.jpg)
+
 <!--EndFragment-->
