@@ -150,7 +150,11 @@ description: HOT DEALS
 * https://amzlink.to/az0RiYf1swecl\
   only 29.xx
   12-inch Plush Valentine’s Bouquet - 9 Plush - Ages 6+ 
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81k7Q8mFBPL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0lsH6KkK2kn   ad
   13.xx 
   Squishmallows Original 14-Inch 
