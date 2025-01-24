@@ -10,34 +10,50 @@ description: HOT DEALS
   ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
 
   ![](https://m.media-amazon.com/images/I/81Lf9NUU+9L._SL1500_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az0wBys5tfLB5   AD
   96Pcs Valentine’s Day Heart Party Plates Supplies Only 9
   clip the coupon 
   ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
 
   ![G1ngtar 96Pcs Valentine’s Day Heart Party Plates Supplies - Love Heart Party Tableware Decoration Red Heart Disposable Paper Plates Napkins Forks for Valentines Day Birthday Wedding, Serves 24](https://m.media-amazon.com/images/I/8162jw8S3ML.__AC_SX300_SY300_QL70_FMwebp_.jpg)
-
-  <!--EndFragment-->
 * https://amzlink.to/az07VKEQJGMSa    AD
   Valentines Day Gifts for Her, Funny 12 OZ Coffee Mug ONLY 2.XX‼‼‼
   clip the coupon 
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61l9Ba5UbOL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0RRHzbYhqY2   ad
-  Baby Grooming Kit 50% off only 6.xx‼
+  Baby Grooming Kit 50% off only 6.xx‼<!--StartFragment-->
+
+  ![Baby Grooming Kit, Portable Baby Safety Care Set with Hair Brush Comb Nail Clipper Nasal Aspirator etc for Nursery Newborn Toddlers Infant Girl Boys Keep Clean (Yellow)](https://m.media-amazon.com/images/I/71qi1Z0ujSL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
+
+  <!--EndFragment-->
 * https://mavely.app.link/e/v0Fo07TCoQb    AD
   GIRLS TOPS ONLY 1.XX RUNNN🏃‍♂🏃‍♂🧒🧑
 * https://amzlink.to/az0peueaVP7CW  ad
   100% Original Apple Juice 24 Count only 10.xx
   Coupon + s&s
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81Wz2bDp5wS._SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0KUXGlFu2o8   AD
   Japanese White Sticky Rice (5-Pack, 300g)  ONLY 9.XX , 57% off
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝  <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81WKzD2rEBL._SL1500_.jpg)
+
+  <!--EndFragment--> 
 * https://amzlink.to/az0XgGQ52ivJd  AD
   Professional All Purpose Cleaner & Degreaser, 1 Gallon  ONLY 10.XX
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/718-F-3K6WL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az05zzYbWC9en   AD
   CC
   Israeli Style Emergency Bandage, PACK OF 3 ONLY 10.XX
