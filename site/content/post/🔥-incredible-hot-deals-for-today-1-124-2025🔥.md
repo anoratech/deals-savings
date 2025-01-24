@@ -72,10 +72,18 @@ description: HOT DEALS
   <!--EndFragment-->
 * https://amzlink.to/az0UYyQPLDAas   ad
   Giant Stuffed Animal Dog Toy Bulldog 50%off
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/81CTdFmwfEL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az09cF4KCLnSF  ad
   Transform Remote Control Car 1:16 Scale  only 13.xx
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
+
+  ![MON2SUN Dog Treats, Rawhide Twist Chicken Hide Sticks, Suitable for Puppy and Small Dogs, 5 Inch (Chicken, Pack of 40)](https://m.media-amazon.com/images/I/71CV+L7I60L._AC_SY300_SX300_PQ37_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0nfi2xj6B70  AD
   Mango Madness Flavored Juice Drink 
   PACK OF 12, JIST 12.XX
@@ -109,7 +117,11 @@ description: HOT DEALS
   ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
 * https://amzlink.to/az0LKTtRJo7iF   ad
   Hand Painted Stoneware Hedgehog Measuring Cups (Set of 4 Sizes)   only 22.xx
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/61R72QLo9YL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0yMfLtXgH2e   ad
   Pack of 24 slime cups just 10.xx
   Clip coupon
@@ -142,4 +154,8 @@ description: HOT DEALS
 * https://amzlink.to/az0lsH6KkK2kn   ad
   13.xx 
   Squishmallows Original 14-Inch 
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝<!--StartFragment-->
+
+  ![Squishmallows Original 14-Inch Lyla Vanilla Birthday Cake with Rainbow Sprinkles Embroidery - Official Jazwares Large Plush](https://m.media-amazon.com/images/I/61df3pGh6GL.__AC_SX300_SY300_QL70_FMwebp_.jpg)
+
+  <!--EndFragment-->
