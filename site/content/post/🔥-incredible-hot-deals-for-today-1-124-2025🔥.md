@@ -57,11 +57,19 @@ description: HOT DEALS
 * https://amzlink.to/az05zzYbWC9en   AD
   CC
   Israeli Style Emergency Bandage, PACK OF 3 ONLY 10.XX
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/71uSqBmxxUL._AC_SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0aTKuV21jVu   ad
   3D White Toothpaste, Deep Clean Toothpaste (4oz) + Teeth Whitening Gel (2.3oz) just 8.xx
   Coupon + s&s
-  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
+  ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   <!--StartFragment-->
+
+  ![](https://m.media-amazon.com/images/I/714F-64l9HL._SL1500_.jpg)
+
+  <!--EndFragment-->
 * https://amzlink.to/az0UYyQPLDAas   ad
   Giant Stuffed Animal Dog Toy Bulldog 50%off
   ╚»★«╝ H♥U♥G♥E♥ ♥S♥A♥V♥!♥N♥G♥S ╚»★«╝   
