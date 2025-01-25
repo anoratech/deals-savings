@@ -5,4 +5,8 @@ tags: 2024-01-25
 Category: AMAZON
 description: This is a quick test.
 ---
+{{ partial "coupon-code-button.html" (print "SPECIAL_POST_CODE") }} 
+
+
+
 q﻿uick test
