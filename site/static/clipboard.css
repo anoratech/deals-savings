@@ -10,7 +10,7 @@
   border-radius: 6px;
   font-size: 0.8em;
   z-index: 1;
-  opacity: 0;
+  opacity: 1;
   transition: 0.1s;
 }
 .clipboard-button > svg {
@@ -29,8 +29,4 @@
 }
 .highlight {
   position: relative;
-}
-.highlight:hover > .clipboard-button {
-  opacity: 1;
-  transition: 0.2s;
 }
