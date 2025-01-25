@@ -1,7 +1,7 @@
 baseurl = "/"
 languageCode = "en-us"
 languageLang = "en"
-title = "Homepage"
+title = "Slick Savers"
 [params]
 prism_syntax_highlighting = true
   [params.prism]
@@ -29,3 +29,6 @@ disableAdsense = false
 [taxonomies]
    tag = "tags"
    category = "category"
+[permalinks]
+tags = "/tags/:year/:month/:day/:slug/" 
+home = "/tags/{{ now.Format "2006-01-02" }}" 
