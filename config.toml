@@ -18,7 +18,3 @@ prism_syntax_highlighting = true
   [markup.goldmark]
     [markup.goldmark.renderer]
       unsafe = true
-
-[permalinks]
-tags = "/tags/:year/:month/:day/:slug/" 
-home = "/tags/{{ now.Format "2006-01-02" }}" 
