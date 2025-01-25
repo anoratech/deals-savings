@@ -1,5 +1,5 @@
 {{ if eq .Kind "home" }}
-  {{ $date := now }}
+  {{ $date := default "2025-01-25" now }}
   {{ .Scratch.Set "redirect" (printf "/tags/%s" $date.Format "2006-01-02") }}
   <script>
     window.location.replace("{{ .Scratch.Get "redirect" }}");
