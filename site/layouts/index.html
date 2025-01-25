@@ -1,4 +1,4 @@
-{{ if eq .URL "/" }}
+{{ if eq .Kind "home" }}
   {{ .Scratch.Set "redirect" (printf "/tags/%s" .Date.Format "2006-01-02") }}
   <script>
     window.location.replace("{{ .Scratch.Get "redirect" }}");
