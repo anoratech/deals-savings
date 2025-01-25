@@ -1,5 +1,5 @@
 {{ if eq .URL "/" }}
-  {{ .Scratch.Set "redirect" "/tags/" | append .Date.Format "2006-01-02" }}
+  {{ .Scratch.Set "redirect" (printf "/tags/%s" .Date.Format "2006-01-02") }}
   <script>
     window.location.replace("{{ .Scratch.Get "redirect" }}");
   </script>
