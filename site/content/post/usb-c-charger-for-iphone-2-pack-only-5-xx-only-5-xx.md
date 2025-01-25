@@ -1,5 +1,5 @@
 ---
-title: USB C Charger for iPhone -2 Pack  only 5.xx Only 5.xx
+title: USB C Charger for iPhone -2 Pack  Only 5.xx
 date: 2025-01-25T17:25:44.771Z
 tags: 2025-01-25
 Category: other
