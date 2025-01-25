@@ -5,6 +5,8 @@ tags: 2024-01-25
 Category: AMAZON
 description: This is a quick test.
 ---
-<pre>Click-to-copy<code>dddddddddss</code></pre>
+<pre class="language-javascript"><code class="language-javascript">
+CIDDDDDDDDD
+</code></pre>
 
 q﻿uick test
