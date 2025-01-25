@@ -1,10 +1,10 @@
-{{ with .Params.couponCode }}
+{{ with .Inner }} 
   <p><strong>Coupon Code:</strong> {{ . }}</p>
   <button id="copyButton" onclick="copyToClipboard()">Copy</button>
 
   <script>
     function copyToClipboard() {
-      const couponCode = document.createTextNode('{{ . }}');
+      const couponCode = document.createTextNode('{{ . }}'); 
       navigator.clipboard.writeText(couponCode.textContent)
         .then(() => {
           const button = document.getElementById('copyButton');
