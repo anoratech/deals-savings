@@ -1,5 +1,56 @@
-<h2 class="f3 b lh-title mb1 primary">{{ .Title }}</h2>
-<p class="mb0">{{ .Description }}</p>
-<p class="mb0">{{ .Content }}</p>
-{{ if .Params.image }}<img src="{{ .Params.image }}" alt="{{ .Title }}" style="width: 200px; height: 150px;" />{{ end }}
+<div class="container">
+  <h2 class="f3 b lh-title mb1 primary">{{ .Title }}</h2>
+  <p class="mb0">{{ .Description }}</p>
+  <p class="mb0">{{ .Content }}</p>
+  {{ if .Params.image }}
+    <img src="{{ .Params.image }}" alt="{{ .Title }}" class="image" />
+  {{ end }}
+</div>
+
+<style>
+  .container {
+    width: 400px;
+    height: 300px;
+    border: 1px solid #ccc;  /* Optional: Border to visualize the container */
+    padding: 10px;
+    box-sizing: border-box;
+    overflow: hidden;  /* Prevent content overflow */
+    display: flex;
+    flex-direction: column;
+    justify-content: flex-start;
+  }
+
+  .f3 {
+    font-size: 1.2em;  /* Adjusted font size to fit in the container */
+    margin-bottom: 8px;
+    white-space: nowrap;  /* Prevent title from wrapping */
+    overflow: hidden;
+    text-overflow: ellipsis; /* Add ellipsis for overflow text */
+  }
+
+  .b {
+    font-weight: bold;
+  }
+
+  .lh-title {
+    line-height: 1.4;
+  }
+
+  .primary {
+    color: #333;  /* Adjust color based on your needs */
+  }
+
+  .mb0 {
+    margin-bottom: 0;  /* Remove margin between paragraphs */
+  }
+
+  .image {
+    width: 100%;
+    height: auto;
+    max-height: 150px;  /* Ensure image fits within the container */
+    object-fit: cover;  /* Crop image if necessary to cover the space */
+    margin-top: 10px;
+  }
+</style>
+
 	 
