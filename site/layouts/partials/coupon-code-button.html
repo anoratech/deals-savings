@@ -1,0 +1,21 @@
+{{ with .Params.couponCode }}
+  <p><strong>Coupon Code:</strong> {{ . }}</p>
+  <button id="copyButton" onclick="copyToClipboard()">Copy</button>
+
+  <script>
+    function copyToClipboard() {
+      const couponCode = document.createTextNode('{{ . }}');
+      navigator.clipboard.writeText(couponCode.textContent)
+        .then(() => {
+          const button = document.getElementById('copyButton');
+          button.textContent = 'Copied!';
+          setTimeout(() => {
+            button.textContent = 'Copy';
+          }, 2000); 
+        })
+        .catch(err => {
+          console.error('Failed to copy: ', err);
+        });
+    }
+  </script>
+{{ end }}
