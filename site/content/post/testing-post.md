@@ -7,6 +7,15 @@ description: This is a quick test.
 ---
 {{ partial "coupon-code-button.html" (print "SPECIAL_POST_CODE") }} 
 
+<pre class="language-javascript"><code class="language-javascript">
+
+    function helloWorld() {
+
+        console.log("Hello, World!");
+
+    }
+
+</code></pre>
 
 
 q﻿uick test
