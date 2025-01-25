@@ -1,7 +1,11 @@
-{{ if eq .Kind "home" }}
-  {{ $date := default "2025-01-25" now }}
-  {{ .Scratch.Set "redirect" (printf "/tags/%s" $date.Format "2006-01-02") }}
-  <script>
-    window.location.replace("{{ .Scratch.Get "redirect" }}");
-  </script>
-{{ end }}
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="UTF-8">
+    <title>Redirect to Tag Page</title>
+    <meta http-equiv="refresh" content="0; URL=/tags/{{ .Date.Format "2006-01-02" }}">
+</head>
+<body>
+    <p>Redirecting to tag page...</p>
+</body>
+</html>
