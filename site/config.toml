@@ -29,6 +29,3 @@ disableAdsense = false
 [taxonomies]
    tag = "tags"
    category = "category"
-[permalinks]
-tags = "/tags/:year/:month/:day/:slug/" 
-home = "/tags/{{ now.Format "2006-01-02" }}" 
