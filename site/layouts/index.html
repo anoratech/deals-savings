@@ -1,18 +1,6 @@
-{{ define "main" }}
-
-<div class="mw7 center">
-  <ul id="blog-list" class="flex-ns flex-wrap mhn1-ns pa3">
-      {{ range (.Paginator 20).Pages.ByPublishDate.Reverse }}
-          <li class="w-50-ns ph1-ns flex">
-            {{ .Render "li"}}
-          </li>
-      {{ end }}
-  </ul>
-  {{ partial "pagination" . }}
-</div>
-
-
-
-
-
-{{end}}
+{{ if eq .URL "/" }}
+  {{ .Scratch.Set "redirect" "/tags/" | append .Date.Format "2006-01-02" }}
+  <script>
+    window.location.replace("{{ .Scratch.Get "redirect" }}");
+  </script>
+{{ end }}
