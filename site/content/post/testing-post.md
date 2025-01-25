@@ -5,6 +5,14 @@ tags: 2024-01-25
 Category: AMAZON
 description: This is a quick test.
 ---
-<pre><code>BCBGQ</code></pre>
+<pre class="language-javascript"><code class="language-javascript">
+
+    function helloWorld() {
+
+        console.log("Hello, World!");
+
+    }
+
+</code></pre>
 
 q﻿uick test
