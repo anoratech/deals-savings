@@ -6,6 +6,9 @@ Category: OTHERS
 description: |+
   Just 5 bucks
   ✨8 Pack table cloths! ✨
+  https://amzlink.to/az0jWSTNMca2c
+  AD
+
 
 image: https://m.media-amazon.com/images/I/71nr45d4ITL._AC_SL1500_.jpg
 ---
