@@ -10,7 +10,6 @@ image: img/474962770_577861405246885_8337414045063251077_n.jpg
 Code: 50HUVOXA 
 
 pre class="language-javascript"><code
-class="language-javascript">50HUVOXA </code></pre>
-
+class="language-javascript"> 50HUVOXA  </code></pre>
 
 https://amzlink.to/az02huWFvvloj ad
