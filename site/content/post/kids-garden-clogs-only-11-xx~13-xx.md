@@ -3,13 +3,11 @@ title: Kids Garden Clogs Only 11.xx~13.xx
 date: 2025-01-26T17:46:33.850Z
 tags: 2025-01-26
 Category: OTHERS
-description: >-
+description: |-
   
 
 
   Discount apply at checkout.
-
-  Prices are accurate at the time of posting but deals and codes can end at any time!
 
   (っ◔◡◔)っ ♥ HUGE SAVINGS ♥
 image: img/31d-lyvdlxl._sr400-400_.jpg
