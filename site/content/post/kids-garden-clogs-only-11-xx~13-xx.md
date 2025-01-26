@@ -1,5 +1,5 @@
 ---
-title: Kids Garden Clogs Only 11.xx~13.xx
+title: Kids Clogs    11.xx~13.xx
 date: 2025-01-26T17:46:33.850Z
 tags: 2025-01-26
 Category: OTHERS
