@@ -12,6 +12,6 @@ C﻿oupon Code:  50HUVOXA
 <!--EndFragment-->
 
 <pre class="language-javascript"><code
-class="language-javascript"> 50HUVOXA </code></pre>
+class="language-javascript">  50HUVOXA  </code></pre>
 
 https://amzlink.to/az02huWFvvloj ad
