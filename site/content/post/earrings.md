@@ -14,12 +14,10 @@ image: img/81aigp-s0al._ac_sy500_.jpg
 
 C﻿oupon Code: 50MBWP2J
 
-
-
 <pre class="language-javascript"><code
 
 class="language-javascript"> 50MBWP2J </code></pre>
 
-
-
 <!--EndFragment-->
+
+https://amzn.to/40P7sUg  ad
