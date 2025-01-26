@@ -12,7 +12,7 @@ image: img/71hpaxrpfnl._ac_sl1500_.jpg
 
 
 pre class="language-javascript"><code
-class="language-javascript">9IMCLIIY </code></pre>
+class="language-javascript">9IMCLIIY</code></pre>
 
  https://amzlink.to/az0qHcl7Ea5BD
 AD
