@@ -9,7 +9,9 @@ image: img/475151975_577858495247176_2821893963874470559_n.jpg
 ---
 Code: UVLJ2WK3 (works on all options) 
 
-pre class="language-javascript"><code
-class="language-javascript"> UVLJ2WK3  </code></pre>
+C﻿oupon Code:  UVLJ2WK3
+
+<pre class="language-javascript"><code
+class="language-javascript">  UVLJ2WK3 </code></pre>
 
 https://amzlink.to/az0nm1NPRIrX8 ad
