@@ -1,5 +1,5 @@
 ---
-title: 24 Pack Cards with Hair Scrunchies
+title: 24 Pack Cards + Hair Scrunchies
 date: 2025-01-27T16:30:46.297Z
 tags: 2025-01-28
 Category: OTHERS
