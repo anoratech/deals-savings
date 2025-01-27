@@ -1,7 +1,7 @@
 ---
 title: LOTS OF  SNACKS
 date: 2025-01-27T08:29:35.074Z
-tags: 2025-01-27
+tags: 2025-01-28
 Category: SNACKS
 description: |
   STOCK UP
