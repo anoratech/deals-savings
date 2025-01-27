@@ -1,12 +1,12 @@
 ---
-title: Only 11.xx Antioxidant Infused Water Beverage 12 pack
+title: 11.xx  12 pack
 date: 2025-01-26T08:54:11.242Z
-tags: 2025-01-26
+tags: 2025-01-27
 Category: OTHERS
-description: |-
+description: |-2
   
-  https://amzlink.to/az0GHPrRLDzdK
-  AD
+   Antioxidant Infused Water Beverage
 image: img/814lmd0wfvl._sl1500_.jpg
 ---
-\*
+https://amzlink.to/az0GHPrRLDzdK
+AD
