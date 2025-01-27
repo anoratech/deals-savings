@@ -1,11 +1,10 @@
 ---
-title: " Womens Slippers Only 4.xx "
+title: 50% OFF
 date: 2025-01-27T02:49:38.656Z
 tags: 2025-01-27
 Category: other
-description: |-
-  
-  50% OFF
+description: |
+  Womens Slippers Only 4.xx ,
 image: img/b347d8fa-4196-4b1b-b290-fa5736a1100a.jpeg
 ---
 C﻿oupon Code: 50V7JJQ3
