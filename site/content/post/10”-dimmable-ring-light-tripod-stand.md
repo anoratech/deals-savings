@@ -1,5 +1,5 @@
 ---
-title: 10” Dimmable Ring Light Tripod Stand
+title: 10”  Ring Light Tripod Stand
 date: 2025-01-27T03:48:50.589Z
 tags: 2025-01-27
 Category: OTHERS
