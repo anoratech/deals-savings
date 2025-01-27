@@ -1,7 +1,7 @@
 ---
 title: 17.xx Nelko Sticker Printer
 date: 2025-01-27T08:23:04.260Z
-tags: 2025-01-28
+tags: 2025-01-27
 Category: OTHERS
 description: |+
   
