@@ -1,5 +1,5 @@
 ---
-title: 4.xx 300 batches of laundry
+title: 4.xx 300 batches
 date: 2025-01-28T08:25:27.736Z
 tags: 2025-01-28
 Category: OTHERS
