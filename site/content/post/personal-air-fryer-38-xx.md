@@ -1,9 +1,10 @@
 ---
-title: Personal Air Fryer, 38.XX
+title: "10.xx ‼ANTI- Aging Pure  Face Serum "
 date: 2025-01-28T10:08:52.825Z
 tags: 2025-01-29
 Category: OTHER
-description: " ON SALE"
-image: https://m.media-amazon.com/images/I/61noVGq46oL._AC_SL1500_.jpg
+description: " Retinol, ON SALE"
+image: https://scontent.fpat11-2.fna.fbcdn.net/v/t39.30808-6/475200453_122138423798522111_8586989978675372982_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=127cfc&_nc_ohc=L3jMvxJQV20Q7kNvgEhKQj_&_nc_zt=23&_nc_ht=scontent.fpat11-2.fna&_nc_gid=AetCZaVkYCSu1Dd1S1plO_1&oh=00_AYCCw_GHvb36FAgm7VltVnaatXaWA2MKoMswBi23xhZ4_A&oe=679ECE3B
 ---
-https://amzlink.to/az0zY0EgtEO8o   AD
+https://mavely.app.link/e/BUsR1YfTwQb   ad
+10.xx ‼ANTI- Aging Pure Retinol Face Serum with Vitamin B3
