@@ -1,5 +1,5 @@
 ---
-title: "24.xx Waterproof Patio Rug Mat "
+title: 24.xx Waterproof Patio Rug
 date: 2025-01-30T09:34:33.574Z
 tags: 2025-01-30
 Category: OTHERS
