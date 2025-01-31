@@ -1,5 +1,5 @@
 ---
-title: "2 Qt Slow Cooker Set with Scrub, 2-Pk "
+title: "2 Slow Cooker with Scrub, 2-Pk "
 date: 2025-01-31T03:30:46.947Z
 tags: 2025-02-01
 Category: "OTHER  "
