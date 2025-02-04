@@ -1,5 +1,5 @@
 ---
-title: Extra Large Food Warming Mat
+title: Food Warming Mat
 date: 2025-02-04T06:19:32.037Z
 tags: 2025-02-04
 Category: "OTHER  "
