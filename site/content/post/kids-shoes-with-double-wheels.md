@@ -3,7 +3,7 @@ title: "Kids Shoes "
 date: 2025-02-05T05:04:05.649Z
 tags: 2025-02-05
 Category: "OTHER  "
-description: PRICE DROP, 26.xx~27.xx ,Discount apply at checkout.
+description: "PRICE DROP, 26.xx~27.xx "
 image: https://m.media-amazon.com/images/I/61jGe7tbACL.jpg
 ---
 
