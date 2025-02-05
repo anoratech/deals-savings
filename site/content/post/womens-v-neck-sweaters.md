@@ -1,9 +1,9 @@
 ---
-title: Womens V Neck Sweaters
+title: V Neck Sweaters
 date: 2025-02-05T04:53:58.545Z
 tags: 2025-02-05
 Category: "OTHER  "
-description: " PRICE DROP, 8.xx ,Discount apply at checkout."
+description: PRICE DROP, 8.xx ,Discount apply at checkout.
 image: https://m.media-amazon.com/images/I/716sVQgXcNL.jpg
 ---
 Code: 5065CLHN
