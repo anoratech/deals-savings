@@ -1,9 +1,9 @@
 ---
-title: Womens Oversized Sweater
+title: Oversized Sweater
 date: 2025-02-05T05:01:05.116Z
 tags: 2025-02-05
 Category: "OTHER  "
-description: PRICE DROP, 9.xx~14.xx ,Discount apply at checkout.
+description: "PRICE DROP, 9.xx~14.xx "
 image: https://m.media-amazon.com/images/I/81WGRBaS1CL.jpg
 ---
 
