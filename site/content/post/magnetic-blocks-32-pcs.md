@@ -8,7 +8,7 @@ description: |
   60% OFF 
 image: img/71sdwlls1ul._ac_sl1500_.jpg
 ---
-C﻿oupon Code:RNJGEG3B 
+ Code:RNJGEG3B 
 
 <pre class="language-javascript"><code
 
