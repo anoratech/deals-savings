@@ -9,11 +9,10 @@ description: |
   CODE: GK8RPJTP 
 image: img/71owlilrcll._ac_sx522_-1-.jpg
 ---
- Code: GK8RPJTP 
+ 
 
 <pre class="language-javascript"><code
 
 class="language-javascript"> GK8RPJTP  </code></pre>
-
 
 https://spd.ooo/v66n1s7f66 AD
