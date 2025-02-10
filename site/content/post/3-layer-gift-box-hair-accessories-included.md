@@ -1,5 +1,5 @@
 ---
-title: "3 Layer Gift Box , Hair Accessories Included "
+title: "3 Layer Gift Box "
 date: 2025-02-10T02:57:54.826Z
 tags: 2025-02-10
 Category: othres
