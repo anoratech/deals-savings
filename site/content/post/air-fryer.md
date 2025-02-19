@@ -1,7 +1,7 @@
 ---
 title: "Air Fryer  "
-date: 2025-02-17T12:50:36.661Z
-tags: 2025-02-17
+date: 2025-02-19T12:38:09.189Z
+tags: 2025-02-19
 Category: "others "
 description: 89.xx
 ---
