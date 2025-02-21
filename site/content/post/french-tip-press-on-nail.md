@@ -12,4 +12,6 @@ image: img/71rw-okztml._sl1500_.jpg
 
 <pre class="language-javascript"><code
 
-class="language-javascript"> FUD2M83N </code></pre>
+class="language-javascript"> FUD2M83N </code></pre> 
+
+https://amzlink.to/az0TYwXs4Fub0  ad
