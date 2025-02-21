@@ -1,8 +1,8 @@
 ---
 title: Women Top
 date: 2025-02-05T14:18:29.686Z
-tags: 2025/02/05
-Category: 2025/02/05
+tags: 2025-02-21
+Category: clothing
 description: |-
   9.xx
   discount auto applies
