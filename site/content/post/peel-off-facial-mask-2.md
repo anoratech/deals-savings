@@ -7,8 +7,6 @@ description: 14.xx
 ---
 <!--StartFragment-->
 
-Collagen Overnight Wrapping Peel Off Facial Mask Pack
-
 https://amzlink.to/az0F9Mt6TCxHS ad 
 
 <!--StartFragment-->
