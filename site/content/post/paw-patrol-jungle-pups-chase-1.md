@@ -1,5 +1,5 @@
 ---
-title: "Paw Patrol: Jungle Pups Chase"
+title: Paw Patrol
 date: 2025-02-20T12:47:12.219Z
 tags: 2025-02-20
 Category: others
