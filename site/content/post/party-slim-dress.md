@@ -1,5 +1,5 @@
 ---
-title: Party Slim Dress
+title: Viral TIKTOK dress
 date: 2025-02-21T13:40:09.618Z
 tags: 2025-02-21
 Category: "others "
