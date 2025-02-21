@@ -1,8 +1,8 @@
 ---
 title: Tank Tops--3 Pack
 date: 2025-02-21T13:40:58.373Z
-tags: 2025/02/21
-Category: 2025/02/21
+tags: 2025-02-21
+Category: clothing
 description: |-
   14.xx 
   Code: 6RHP6STC + ✂
