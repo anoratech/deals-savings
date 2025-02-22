@@ -1,7 +1,7 @@
 ---
 title: " Magnetic Blocks"
-date: 2025-02-24T10:52:21.173Z
-tags: 2025-02-24
+date: 2025-02-22T10:52:21.173Z
+tags: 2025-02-22
 Category: OTHER
 description: |+
   Only 13.xx
