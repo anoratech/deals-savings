@@ -1,7 +1,7 @@
 ---
 title: French Tip Press On Nail
-date: 2025-02-20T10:31:18.994Z
-tags: 2025-02-20
+date: 2025-02-22T10:31:18.994Z
+tags: 2025-02-22
 Category: OTHER
 description: |+
   5.xx
