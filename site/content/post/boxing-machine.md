@@ -1,7 +1,7 @@
 ---
 title: " Boxing Machine "
-date: 2025-02-20T10:25:52.539Z
-tags: 2025-02-20
+date: 2025-02-22T10:25:52.539Z
+tags: 2025-02-22
 Category: OTHER
 description: |2
    47.xx
