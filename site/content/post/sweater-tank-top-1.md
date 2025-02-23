@@ -6,7 +6,7 @@ Category: CLOTHING
 description: |2
    6.xx
   discount auto apply at checkout 
-image: img/81zszrrzkil._ac_sy679_.jpg
+image: img/71tdutqtqgl._ac_sy679_-1-.jpg
 ---
  Code: UFWKMLOJ 
 
