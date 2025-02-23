@@ -1,7 +1,7 @@
 ---
 title: Sweater Tank Top
 date: 2025-02-22T13:29:41.118Z
-tags: 2025-02-22
+tags: 2025-02-23
 Category: OTHER
 description: |-
   6.XX~7.XX,
