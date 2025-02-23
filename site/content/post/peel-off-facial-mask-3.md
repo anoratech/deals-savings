@@ -6,12 +6,4 @@ Category: "others "
 description: 14.xx
 image: img/1000172832.jpg
 ---
-https://amzlink.to/az0F9Mt6TCxHS ad 
-
-<
-
-![]()
-
-<
-
-<
+https://amzlink.to/az0F9Mt6TCxHS ad
