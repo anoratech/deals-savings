@@ -3,7 +3,7 @@ title: "Tire Inflator Air Compressor "
 date: 2025-02-23T14:14:03.210Z
 tags: 2025-02-24
 Category: OTHER
-description: "17.xx Code: EN375BOU + 14% off coupon "
+description: "17.xx Code: EN375BOU +coupon "
 image: https://m.media-amazon.com/images/I/710-1GvVZdL._AC_SL1500_.jpg
 ---
 <pre class="language-javascript"><code
