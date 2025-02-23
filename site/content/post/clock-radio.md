@@ -5,7 +5,7 @@ tags: 2025-02-23
 Category: OTHER
 description: |-
   23.xx
-  43% off Code: 43HAUTWD + 10 off coupon (works on all
+  Code: 43HAUTWD +coupon (works on all
   options)
 image: https://m.media-amazon.com/images/I/71MeNGLcYEL._AC_SX679_.jpg
 ---
