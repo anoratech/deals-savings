@@ -1,5 +1,5 @@
 ---
-title: Tank Mini Dresses
+title: Tank Mini Dress
 date: 2025-02-23T16:52:23.833Z
 tags: 2025-02-23
 Category: othres
