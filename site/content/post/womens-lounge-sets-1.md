@@ -8,8 +8,6 @@ description: |
   Code: OETTL44B + coupon
 image: https://m.media-amazon.com/images/I/61jccertlEL._AC_SY550_.jpg
 ---
-C﻿oupon Code: AFWSHFHA
-
 <pre class="language-javascript"><code
 
 class="language-javascript">OETTL44B</code></pre>
