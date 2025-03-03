@@ -6,7 +6,7 @@ Category: OTHER
 description: |-
   65.xx
   Coffee Shop (35 Pieces)
-image: img/91dvwcigcel._sl1500_.jpg
+image: img/813vqy-yxgl._ac_sl1500_.jpg
 ---
 https://amzlink.to/az0ydbB7C3iVv
 AD
