@@ -8,8 +8,6 @@ image: img/71vl61wqvtl._ac_sl1500_.jpg
 ---
 <!--StartFragment-->
 
-100PCS Cartoon Character Stickers 5️⃣
-
-https://amzn.to/41rSRgx ad
+ https://amzn.to/41rSRgx ad
 
 <!--EndFragment-->
