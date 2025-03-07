@@ -1,7 +1,7 @@
 ---
 title: "Cleaning Cloth! "
 date: 2025-03-07T13:19:33.483Z
-tags: 2025-0307
+tags: 2025-03-07
 Category: others
 description: 12.xx
 ---
