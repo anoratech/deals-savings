@@ -1,5 +1,5 @@
 ---
-title: hair clips
+title: Hair clips
 date: 2025-03-08T12:58:53.822Z
 tags: 2025-03-08
 Category: others
