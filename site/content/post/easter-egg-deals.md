@@ -7,7 +7,6 @@ description: as low as 7.xx
 ---
 <!--StartFragment-->
 
-Easter egg deals\
 https://amzlink.to/az0V2Y5dXrWNg ad
 
 <!--EndFragment-->
