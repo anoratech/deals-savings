@@ -1,7 +1,7 @@
 ---
 title: Platform Mini Boots
 date: 2025-03-13T07:35:57.631Z
-tags: 2025-03013
+tags: 2025-03-13
 Category: OTHER
 description: |
   17.xx
