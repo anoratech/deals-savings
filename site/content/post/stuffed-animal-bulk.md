@@ -1,5 +1,5 @@
 ---
-title: Stuffed Animal Bulk
+title: Stuffed Animal
 date: 2025-03-13T03:25:08.005Z
 tags: 2025-03-14
 Category: OTHER
