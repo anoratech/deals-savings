@@ -13,7 +13,7 @@ jobs:
 
       - name: Get New Content Filename
         id: get_filename
-        run: echo "NEW_CONTENT=$(git status --short | grep 'post/')" >> $GITHUB_ENV
+        run: echo "NEW_CONTENT=$(git diff --name-only ${{ github.event.before }} ${{ github.event.after }} | grep 'site/content/post/')" >> $GITHUB_ENV
 
       - name: Set Up Python
         uses: actions/setup-python@v3
