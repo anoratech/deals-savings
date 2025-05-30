@@ -23,9 +23,7 @@ with open(new_content_file, "r", encoding="utf-8") as file:
 
 title = post.get("title")
 description = post.get("description")
-image_url = post.get("image")
-
-
+image_url = convert_image_url(post.get("image"))
  
 # Prepare post message
 post_data = f"**{title}**\n\n{description}\n\n{post.content}"
@@ -41,6 +39,11 @@ response = requests.post(
 
 # Print response
 print(response.json())
+
+def convert_image_url(image_path):
+    if image_path.startswith("img/"):
+        return f"https://slicksavers.com/{image_path}"
+    return image_path  # Return unchanged if it doesn't match
 
 
 
