@@ -8,4 +8,4 @@ image: img/81n067mrv6l._sl1500_.jpg
 ---
 https://amzlink.to/az0lAGlckJOpg 
 
-A﻿D
+   A﻿D
