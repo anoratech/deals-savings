@@ -1,0 +1,32 @@
+name: Cleanup Old Hugo Content
+
+on:
+  workflow_dispatch:  # run manually in GitHub Actions tab
+  schedule:
+    - cron: '0 0 * * 0'  # every Sunday at midnight
+
+jobs:
+  cleanup:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout repo
+        uses: actions/checkout@v3
+
+      - name: Set up Python
+        uses: actions/setup-python@v4
+        with:
+          python-version: '3.x'
+
+      - name: Install dependencies
+        run: pip install python-frontmatter
+
+      - name: Run cleanup script
+        run: python cleanup.py
+
+      - name: Commit and push changes
+        run: |
+          git config user.name "github-actions[bot]"
+          git config user.email "github-actions[bot]@users.noreply.github.com"
+          git add content
+          git commit -m "Automated: Remove Hugo content older than 1 year" || echo "No changes to commit"
+          git push
