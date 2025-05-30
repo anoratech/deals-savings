@@ -6,4 +6,4 @@ Category: OTHERS
 description: 2.xx (AMAZON)
 image: https://m.media-amazon.com/images/I/71wwwuGBWdL._SX679_.jpg
 ---
-https://amzlink.to/az0vtgpgsg56b      AD
+https://amzlink.to/az0vtgpgsg56b    AD
