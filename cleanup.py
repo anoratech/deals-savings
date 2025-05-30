@@ -1,7 +1,7 @@
 import os
-import frontmatter
 from datetime import datetime, timedelta
 
+# Set directory and cutoff time
 content_dir = "site/content/post/"
 cutoff_date = datetime.now() - timedelta(days=365)
 
@@ -10,20 +10,13 @@ for root, _, files in os.walk(content_dir):
         if file.endswith(".md"):
             path = os.path.join(root, file)
             try:
-                post = frontmatter.load(path)
-                post_date = post.get('date')
+                # Get last modified time of file
+                mtime = os.path.getmtime(path)
+                file_date = datetime.fromtimestamp(mtime)
 
-                if not post_date:
-                    print(f"Skipping {path}: no date found in front matter")
-                    continue
-
-                # Ensure post_date is timezone-aware (default to UTC if naive)
-                if post_date.tzinfo is None:
-                    post_date = post_date.replace(tzinfo=timezone.utc)
-
-                # Compare dates safely
-                if post_date < cutoff_date:
-                    print(f"Deleting {path} (dated {post_date.date()})")
+                # Compare with cutoff
+                if file_date < cutoff_date:
+                    print(f"Deleting {path} (last modified: {file_date.date()})")
                     os.remove(path)
 
             except Exception as e:
