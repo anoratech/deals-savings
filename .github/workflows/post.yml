@@ -11,6 +11,11 @@ jobs:
       - name: Checkout Repository
         uses: actions/checkout@v3
 
+      - name: Print Run ID and Name
+        run: |
+          echo "Run ID: ${{ github.run_id }}"
+          echo "Run Name: ${{ github.run_name }}"
+
       - name: Get New Content Filename
         id: get_filename
         run: echo "NEW_CONTENT=$(git diff --name-only ${{ github.event.before }} ${{ github.event.after }} | grep 'site/content/post/')" >> $GITHUB_ENV
