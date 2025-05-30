@@ -32,7 +32,7 @@ description = post.get("description")
 image_url = convert_image_url(post.get("image"))
  
 # Prepare post message
-post_data = f"**{title}**\n\n{description}\n\n{post.content}"
+post_data = f"**{title}**\n{description}\n{post.content}"
  
 
 GRAPH_API_URL = f"https://graph.facebook.com/{PAGE_ID}/photos"
