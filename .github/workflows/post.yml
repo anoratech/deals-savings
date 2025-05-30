@@ -10,6 +10,8 @@ jobs:
     steps:
       - name: Checkout Repository
         uses: actions/checkout@v3
+        with:
+          fetch-depth: 0
 
       - name: Print Run ID and Name
         run: |
@@ -18,7 +20,12 @@ jobs:
 
       - name: Get New Content Filename
         id: get_filename
-        run: echo "NEW_CONTENT=$(git diff --name-only ${{ github.event.before }} ${{ github.sha }})" >> $GITHUB_ENV
+          echo "Getting changes from ${{ github.event.before }} to ${{ github.sha }}"
+          CHANGED=$(git diff --name-only --diff-filter=AM ${{ github.event.before }} ${{ github.sha }})
+          echo "NEW_CONTENT=$CHANGED" >> $GITHUB_ENV
+
+      - name: Use the files
+        run: echo "Files changed:$NEW_CONTENT"
 
       - name: Set Up Python
         uses: actions/setup-python@v3
