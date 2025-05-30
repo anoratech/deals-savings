@@ -13,7 +13,7 @@ jobs:
 
       - name: Get New Content Filename
         id: get_filename
-        run: echo "NEW_CONTENT=$(git diff --name-only HEAD^ HEAD | grep 'content/')" >> $GITHUB_ENV
+        run: echo "NEW_CONTENT=$(git diff --name-only HEAD~1 HEAD | grep 'content/')" >> $GITHUB_ENV
 
       - name: Set Up Python
         uses: actions/setup-python@v3
