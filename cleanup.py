@@ -12,10 +12,19 @@ for root, _, files in os.walk(content_dir):
             try:
                 post = frontmatter.load(path)
                 post_date = post.get('date')
-                if post_date:
-                    post_date = datetime.fromisoformat(str(post_date))
-                    if post_date < cutoff_date:
-                        print(f"Deleting {path} (dated {post_date.date()})")
-                        os.remove(path)
+
+                if not post_date:
+                    print(f"Skipping {path}: no date found in front matter")
+                    continue
+
+                # Ensure post_date is timezone-aware (default to UTC if naive)
+                if post_date.tzinfo is None:
+                    post_date = post_date.replace(tzinfo=timezone.utc)
+
+                # Compare dates safely
+                if post_date < cutoff_date:
+                    print(f"Deleting {path} (dated {post_date.date()})")
+                    os.remove(path)
+
             except Exception as e:
-                print(f"Skipping {path}: {e}")
+                print(f"Error processing {path}: {e}")
