@@ -4,6 +4,7 @@ from datetime import datetime, timedelta
 # Set directory and cutoff time
 content_dir = "site/content/post/"
 cutoff_date = datetime.now() - timedelta(days=365)
+print(cutoff_date)
 
 for root, _, files in os.walk(content_dir):
     for file in files:
@@ -13,6 +14,7 @@ for root, _, files in os.walk(content_dir):
                 # Get last modified time of file
                 mtime = os.path.getmtime(path)
                 file_date = datetime.fromtimestamp(mtime)
+                print(file_date)
 
                 # Compare with cutoff
                 if file_date < cutoff_date:
