@@ -1,1 +1,30 @@
+name: Post Hugo Content to Facebook
+on:
+  push:
+    paths:
+      - "site/content/post/**"  # Trigger when new content is added
+
+jobs:
+  post_to_facebook:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout Repository
+        uses: actions/checkout@v3
+
+      - name: Get New Content Filename
+        id: get_filename
+        run: echo "NEW_CONTENT=$(git diff --name-only HEAD^ HEAD | grep 'content/')" >> $GITHUB_ENV
+
+      - name: Set Up Python
+        uses: actions/setup-python@v3
+        with:
+          python-version: "3.x"
+
+      - name: Install Dependencies
+        run: pip install requests python-frontmatter
+
+      - name: Run Facebook Posting Script
+        run: python post.py
+        env:
+          NEW_CONTENT: ${{ env.NEW_CONTENT }}
 
