@@ -2,6 +2,12 @@ import os
 import requests
 import frontmatter
 
+
+def convert_image_url(image_path):
+    if image_path.startswith("img/"):
+        return f"https://slicksavers.com/{image_path}"
+    return image_path  # Return unchanged if it doesn't match
+
 # Facebook API settings
 PAGE_ID = "100735221776559"
 ACCESS_TOKEN = "EAAEk6BgYXGUBO0w4kedg8ZAjbZCUfx6RZCvFVxx4mizdJXJOlkjS0pianZC1zDV2yOtFZB1kkelCexvcLCtI0pguhK2ozSxNIFIQvZB9csxZCLHIBZB8ZAwZBW6A2crPsaGKc6ILHEX0cya68ZBSMIcZBGXl8zNMd6JWA6eZAFdZA1GI5JgWpnKfATsIzZAXhZBptDCiriLCYq1ZCnekZD"
@@ -40,10 +46,7 @@ response = requests.post(
 # Print response
 print(response.json())
 
-def convert_image_url(image_path):
-    if image_path.startswith("img/"):
-        return f"https://slicksavers.com/{image_path}"
-    return image_path  # Return unchanged if it doesn't match
+
 
 
 
