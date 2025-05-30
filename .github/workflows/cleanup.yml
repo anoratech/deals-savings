@@ -18,7 +18,7 @@ jobs:
           python-version: '3.x'
 
       - name: Install dependencies
-        run: pip install python-frontmatter os datetime
+        run: pip install datetime
 
       - name: Run cleanup script
         run: python cleanup.py
