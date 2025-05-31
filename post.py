@@ -50,7 +50,7 @@ print(response.json())
 BOT_TOKEN = "7996232875:AAG8NyHSLNBfUIlAe_baCq47U5Vz17lX_MM"
 CHAT_ID = "-1001186001218"
 
-CAPTION = f"{title}\n\n{description}\n\n{content}"
+CAPTION = f"{title}\n\n{description}\n\n{post.content}"
 
 # Telegram API endpoint
 URL = f"https://api.telegram.org/bot{BOT_TOKEN}/sendPhoto"
