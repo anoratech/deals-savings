@@ -46,7 +46,23 @@ response = requests.post(
 # Print response
 print(response.json())
 
+# Your Telegram bot token and chat ID
+BOT_TOKEN = "7996232875:AAG8NyHSLNBfUIlAe_baCq47U5Vz17lX_MM"
+CHAT_ID = "-1001186001218"
 
+CAPTION = f"{title}\n\n{description}\n\n{content}"
+
+# Telegram API endpoint
+URL = f"https://api.telegram.org/bot{BOT_TOKEN}/sendPhoto"
+
+# Sending the image with a caption
+response = requests.post(URL, data={"chat_id": CHAT_ID, "photo": image_url, "caption": CAPTION})
+
+# Check response
+if response.status_code == 200:
+    print("Image sent successfully!")
+else:
+    print("Failed to send image:", response.text)
 
 
 
