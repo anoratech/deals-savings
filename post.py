@@ -43,7 +43,7 @@ post_data = f"**{title}** --  {description}  --   {post.content}"
  
 
 GRAPH_API_URL = f"https://graph.facebook.com/{PAGE_ID}/photos"
-tag = post.get("tag", "")
+tag = post.get("Category", "")
 
 if tag.lower() == "style":
     token = ACCESS_TOKEN_S
