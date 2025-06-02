@@ -17,8 +17,8 @@ GRAPH_API_URL = f"https://graph.facebook.com/v23.0/100735221776559/feed"
 
 
 # Get new content filename from GitHub Actions
-new_content_file = slugify(os.getenv("NEW_CONTENT"))
-#new_content_file = "bed.md"
+new_content_file = os.getenv("NEW_CONTENT")
+new_content_file = new_content_file.replace("–", "-")
 
 if not new_content_file:
     print("No new content detected.")
