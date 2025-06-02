@@ -34,7 +34,7 @@ jobs:
           python-version: "3.x"
 
       - name: Install Dependencies
-        run: pip install requests python-frontmatter
+        run: pip install requests python-frontmatter slugify
 
       - name: Run Facebook Posting Script
         run: python post.py
