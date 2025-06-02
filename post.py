@@ -15,7 +15,6 @@ def convert_image_url(image_path):
 # Facebook API settings
 
 ACCESS_TOKEN = "EAAEk6BgYXGUBO0w4kedg8ZAjbZCUfx6RZCvFVxx4mizdJXJOlkjS0pianZC1zDV2yOtFZB1kkelCexvcLCtI0pguhK2ozSxNIFIQvZB9csxZCLHIBZB8ZAwZBW6A2crPsaGKc6ILHEX0cya68ZBSMIcZBGXl8zNMd6JWA6eZAFdZA1GI5JgWpnKfATsIzZAXhZBptDCiriLCYq1ZCnekZD"
-GRAPH_API_URL = f"https://graph.facebook.com/v23.0/100735221776559/feed"
 
 ACCESS_TOKEN_S = "EAAEk6BgYXGUBOw3Nc4msOR51mpfUyQBxHr7pI5SSwLwgiSZC3VOqAUQoK3KM8pdU4GiYq7fVlreD0S916nCQERYkWUZCeKeL6A32biZBoAOVOGrwTS13pX1RLc2h0S4aDJrvZBgh4xOZBDl0SzwLqSa0ZBq2AAZABgTMhxwBideakXzhRsyUuexug2JFZAXfKya9nuYZD"
 
@@ -42,7 +41,7 @@ image_url = convert_image_url(post.get("image"))
 post_data = f"**{title}** --  {description}  --   {post.content}"
  
 
-GRAPH_API_URL = f"https://graph.facebook.com/{PAGE_ID}/photos"
+
 tag = post.get("Category", "")
 
 if tag.lower() == "style":
@@ -51,7 +50,8 @@ if tag.lower() == "style":
 else:
     token = ACCESS_TOKEN
     PAGE_ID = "100735221776559"
-    
+
+GRAPH_API_URL = f"https://graph.facebook.com/{PAGE_ID}/photos"
 response = requests.post(
     GRAPH_API_URL,
     params={"caption": post_data, "url": image_url, "access_token": token},
