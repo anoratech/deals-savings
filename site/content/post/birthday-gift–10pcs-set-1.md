@@ -6,4 +6,4 @@ Category: OTHERS
 description: 7.xx CC
 image: https://m.media-amazon.com/images/I/812WW3wbB2L._AC_SL1500_.jpg
 ---
-https://amzlink.to/az0I115Hp6yXo      AD
+https://amzlink.to/az0I115Hp6yXo     AD
