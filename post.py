@@ -6,8 +6,11 @@ from slugify import slugify
 
 def convert_image_url(image_path):
     if not image_path.startswith("http"):
+        # Remove "site/static/" if it exists
+        if image_path.startswith("site/static/"):
+            image_path = image_path[len("site/static/"):]
         return f"https://slicksavers.com/{image_path}"
-    return image_path  # Return unchanged if it doesn't match
+    return image_path  # Return unchanged if it already starts with http
 
 # Facebook API settings
 PAGE_ID = "100735221776559"
