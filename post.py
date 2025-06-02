@@ -17,6 +17,8 @@ PAGE_ID = "100735221776559"
 ACCESS_TOKEN = "EAAEk6BgYXGUBO0w4kedg8ZAjbZCUfx6RZCvFVxx4mizdJXJOlkjS0pianZC1zDV2yOtFZB1kkelCexvcLCtI0pguhK2ozSxNIFIQvZB9csxZCLHIBZB8ZAwZBW6A2crPsaGKc6ILHEX0cya68ZBSMIcZBGXl8zNMd6JWA6eZAFdZA1GI5JgWpnKfATsIzZAXhZBptDCiriLCYq1ZCnekZD"
 GRAPH_API_URL = f"https://graph.facebook.com/v23.0/100735221776559/feed"
 
+ACCESS_TOKEN_S = "EAAEk6BgYXGUBO7QqZB8ZA9nagUvPIUIh7HGSJNYyt3bF2ZCuuJVDSkcidFnZAFetjYt3NXZC8Mh2F63aiWUcuARckRqNXIxsZCkVQerxzDdtTMXYsR1awrcc5lTzV3JtEKDbuqVQMzbgmtByB5mh0m29M7nd9BB5kWGQh1QZCQ2BTQXYEqKOCiZCFZAviYWKAf1ESm4ZCpZBazmzJg7vpPZBzBzOLF0rQZCbK"
+
 
 
 # Get new content filename from GitHub Actions
@@ -34,16 +36,23 @@ with open(new_content_file, "r", encoding="utf-8") as file:
 title = post.get("title")
 description = post.get("description")
 image_url = convert_image_url(post.get("image"))
+
  
 # Prepare post message
 post_data = f"**{title}** --  {description}  --   {post.content}"
  
 
 GRAPH_API_URL = f"https://graph.facebook.com/{PAGE_ID}/photos"
+tag = post.get("tag", "")
 
+if tag.lower() == "style":
+    token = ACCESS_TOKEN_S
+else:
+    token = ACCESS_TOKEN
+    
 response = requests.post(
     GRAPH_API_URL,
-    params={"caption": post_data, "url": image_url, "access_token": ACCESS_TOKEN},
+    params={"caption": post_data, "url": image_url, "access_token": token},
 )
 
 
