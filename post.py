@@ -1,6 +1,7 @@
 import os
 import requests
 import frontmatter
+from slugify import slugify
 
 
 def convert_image_url(image_path):
@@ -16,7 +17,7 @@ GRAPH_API_URL = f"https://graph.facebook.com/v23.0/100735221776559/feed"
 
 
 # Get new content filename from GitHub Actions
-new_content_file = os.getenv("NEW_CONTENT")
+new_content_file = slugify(os.getenv("NEW_CONTENT"))
 #new_content_file = "bed.md"
 
 if not new_content_file:
