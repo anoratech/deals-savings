@@ -25,6 +25,7 @@ for root, _, files in os.walk(content_dir):
             path = os.path.join(root, file)
 
             last_commit_date = get_last_git_commit_date(path)
+            print (path, "           ", last_commit_date)
             if not last_commit_date:
                 continue
 
