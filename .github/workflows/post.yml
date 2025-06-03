@@ -24,9 +24,7 @@ jobs:
           echo "Getting changes from ${{ github.event.before }} to ${{ github.sha }}"
           CHANGED=$(git diff --name-only --diff-filter=AM ${{ github.event.before }} ${{ github.sha }})
 
-          echo "NEW_CONTENT<<EOF" >> $GITHUB_ENV
-          echo "$CHANGED" >> $GITHUB_ENV
-          echo "EOF" >> $GITHUB_ENV
+          echo "NEW_CONTENT=$CHANGED" >> $GITHUB_ENV
 
       - name: Use the files
         run: echo "Files changed:$NEW_CONTENT"
