@@ -23,7 +23,7 @@ jobs:
         run: |
           echo "${{ github.event.head_commit.modified }}"
           echo "Getting changes from ${{ github.event.before }} to ${{ github.sha }}"
-          CHANGED=$(git diff --name-only --diff-filter=AM ${{ github.event.before }} ${{ github.sha }})
+          CHANGED=$(git diff --name-only --diff-filter=AM ${{ github.event.before }} ${{ github.sha }} | grep -v "^site/static/img")
 
           echo "NEW_CONTENT=$CHANGED" >> $GITHUB_ENV
 
