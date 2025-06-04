@@ -5,10 +5,7 @@ from slugify import slugify
 
 
 def convert_image_url(image_path):
-    if not image_path.startswith("http"):
-        # Remove "site/static/" if it exists
-        if image_path.startswith("site/static/"):
-            image_path = image_path[len("site/static/"):]
+    if not image_path.startswith("http")
         return f"https://slicksavers.com/{image_path}"
     return image_path  # Return unchanged if it already starts with http
 
@@ -22,7 +19,7 @@ ACCESS_TOKEN_S = "EAAEk6BgYXGUBOw3Nc4msOR51mpfUyQBxHr7pI5SSwLwgiSZC3VOqAUQoK3KM8
 
 # Get new content filename from GitHub Actions
 new_content_file = os.getenv("NEW_CONTENT")
-new_content_file = new_content_file.replace("–", "-")
+#new_content_file = new_content_file.replace("–", "-")
 
 if not new_content_file:
     print("No new content detected.")
