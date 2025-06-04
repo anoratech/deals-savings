@@ -5,7 +5,7 @@ from slugify import slugify
 
 
 def convert_image_url(image_path):
-    if not image_path.startswith("http")
+    if not image_path.startswith("http"):
         return f"https://slicksavers.com/{image_path}"
     return image_path  # Return unchanged if it already starts with http
 
