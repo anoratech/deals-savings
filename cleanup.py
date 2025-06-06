@@ -34,7 +34,7 @@ for root, _, files in os.walk(content_dir):
             with open(path, "r", encoding="utf-8") as f:
                 post = frontmatter.load(f)
                 tags = post.get("tags", [])  # Extract tags
-                print(f"Tags: {tags}  {path}")
+                print(f"Tags: {tags}  {f}")
 
             #if last_commit_date < cutoff_date:
                 #print(f"🗑 Deleting {path} (last committed: {last_commit_date.date()})")
