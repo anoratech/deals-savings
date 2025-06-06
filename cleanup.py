@@ -33,8 +33,12 @@ for root, _, files in os.walk(content_dir):
               # Read front matter for tags
             with open(path, "r", encoding="utf-8") as f:
                 post = frontmatter.load(f)
-                tags = post.get("tags", [])  # Extract tags
+                tags = post.get("tags", "")
                 print(f"Tags: {tags}  {f}")
+            
+            # Convert to list and sanitize formatting
+            if isinstance(tags, str):  # If tags are stored as a string
+                tags = [tag.strip().lower() for tag in tags.split(",")]
 
             # Delete if tags include 'amazon'
             if "amazon" in [tag.lower() for tag in tags]:  # Case-insensitive check
