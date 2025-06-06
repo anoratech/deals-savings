@@ -47,7 +47,11 @@ for root, _, files in os.walk(content_dir):
             # Delete if tags include 'amazon'
             if "amazon" in [tag.lower() for tag in tags]:  # Case-insensitive check
                 print(f"🗑 Deleting {path} (tagged as 'amazon')")
-                os.remove(path)
+                try:
+                    os.remove(path)
+                    print(f"✅ Successfully deleted {path}")
+                except Exception as e:
+                    print(f"❌ Failed to delete {path}: {e}")
 
             #if last_commit_date < cutoff_date:
                 #print(f"🗑 Deleting {path} (last committed: {last_commit_date.date()})")
