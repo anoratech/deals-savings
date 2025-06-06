@@ -24,18 +24,19 @@ jobs:
       - name: Run cleanup script
         run: python cleanup.py
 
-      - name: Commit and push changes
-        run: |
-          git config user.name "github-actions[bot]"
-          git config user.email "github-actions[bot]@users.noreply.github.com"
-
-          # Add all changes (not just content/)
-          git add -A
-
-          # Only commit if there are staged changes
-          if git diff --cached --quiet; then
-            echo "No changes to commit."
-          else
-            git commit -m "Automated: Remove Hugo content older than 1 year"
-            git push
-          fi
+      - name: Push changes using PAT
+        env:
+          GH_TOKEN: ${{ secrets.GH_PAT }}
+          run: |
+            git config user.name "github-actions[bot]"
+            git config user.email "github-actions[bot]@users.noreply.github.com"
+            git config --global --add safe.directory "$GITHUB_WORKSPACE"
+            git remote set-url origin https://x-access-token:${GH_TOKEN}@github.com/${{ github.repository }}
+            
+            git add -A
+            if git diff --cached --quiet; then
+              echo "No changes to commit."
+            else
+              git commit -m "Automated: Remove Hugo content tagged 'amazon'"
+              git push
+            fi
