@@ -49,15 +49,13 @@ for root, _, files in os.walk(content_dir):
             else:
                 tags = []  # Default to empty list if unexpected type
 
-            # Delete if tags include 'amazon'
-            if "amazon" in [tag.lower() for tag in tags]:  # Case-insensitive check
-                print(f"🗑 Deleting {path} (tagged as 'amazon')")
+           # Delete if tags don't start with '2025-05' or '2025-06'
+            if not any(tag.startswith(("2025-05", "2025-06")) for tag in tags):
+                print(f"🗑 Deleting {path} (tags do not start with '2025-05' or '2025-06')")
                 try:
                     os.remove(path)
                     print(f"✅ Successfully deleted {path}")
                 except Exception as e:
                     print(f"❌ Failed to delete {path}: {e}")
-
-            #if last_commit_date < cutoff_date:
-                #print(f"🗑 Deleting {path} (last committed: {last_commit_date.date()})")
-                #os.remove(path)
+            
+                   
