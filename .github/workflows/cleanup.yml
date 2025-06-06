@@ -2,8 +2,7 @@ name: Cleanup Old Hugo Content
 
 on:
   workflow_dispatch:  # run manually in GitHub Actions tab
-  schedule:
-    - cron: '0 0 * * 0'  # every Sunday at midnight
+  
 
 jobs:
   cleanup:
@@ -11,6 +10,8 @@ jobs:
     steps:
       - name: Checkout repo
         uses: actions/checkout@v3
+        with:
+          fetch-depth: 0
 
       - name: Set up Python
         uses: actions/setup-python@v4
