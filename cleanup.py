@@ -32,7 +32,12 @@ for root, _, files in os.walk(content_dir):
 
               # Read front matter for tags
             with open(path, "r", encoding="utf-8") as f:
-                post = frontmatter.load(f)
+                try:
+                    post = frontmatter.load(f)
+                except ValueError as e:
+                    print(f"⚠️ Skipping {path} due to invalid date format: {e}")
+                    continue
+     
                 tags = post.get("tags", "")
                 print(f"Tags: {tags}  {f}")
             
