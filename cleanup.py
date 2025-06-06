@@ -36,9 +36,13 @@ for root, _, files in os.walk(content_dir):
                 tags = post.get("tags", "")
                 print(f"Tags: {tags}  {f}")
             
-            # Convert to list and sanitize formatting
-            if isinstance(tags, str):  # If tags are stored as a string
-                tags = [tag.strip().lower() for tag in tags.split(",")]
+           # Ensure tags are handled correctly
+            if isinstance(tags, list):
+                tags = [tag.lower().strip() for tag in tags]  # Clean tags
+            elif isinstance(tags, str):
+                tags = [tag.lower().strip() for tag in tags.split(",")]  # Convert comma-separated string to list
+            else:
+                tags = []  # Default to empty list if unexpected type
 
             # Delete if tags include 'amazon'
             if "amazon" in [tag.lower() for tag in tags]:  # Case-insensitive check
