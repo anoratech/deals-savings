@@ -25,7 +25,7 @@ for root, _, files in os.walk(content_dir):
         if file.endswith(".md"):
             path = os.path.join(root, file)
 
-            last_commit_date = get_last_git_commit_date(path)
+            #last_commit_date = get_last_git_commit_date(path)
             #print (path, "           ", last_commit_date)
             #if not last_commit_date:
                 #continue
@@ -35,6 +35,11 @@ for root, _, files in os.walk(content_dir):
                 post = frontmatter.load(f)
                 tags = post.get("tags", [])  # Extract tags
                 print(f"Tags: {tags}  {f}")
+
+            # Delete if tags include 'amazon'
+            if "amazon" in [tag.lower() for tag in tags]:  # Case-insensitive check
+                print(f"🗑 Deleting {path} (tagged as 'amazon')")
+                os.remove(path)
 
             #if last_commit_date < cutoff_date:
                 #print(f"🗑 Deleting {path} (last committed: {last_commit_date.date()})")
