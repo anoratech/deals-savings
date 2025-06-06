@@ -26,8 +26,8 @@ jobs:
 
       - name: Push changes using PAT
         env:
-          GH_TOKEN: ${{ secrets.GH_PAT }}
-          run: |
+            GH_TOKEN: ${{ secrets.GH_PAT }}
+        run: |
             git config user.name "github-actions[bot]"
             git config user.email "github-actions[bot]@users.noreply.github.com"
             git config --global --add safe.directory "$GITHUB_WORKSPACE"
