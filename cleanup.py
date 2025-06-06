@@ -1,5 +1,6 @@
 import os
 import subprocess
+import frontmatter 
 from datetime import datetime, timedelta
 
 # Set directory and cutoff time
@@ -25,10 +26,16 @@ for root, _, files in os.walk(content_dir):
             path = os.path.join(root, file)
 
             last_commit_date = get_last_git_commit_date(path)
-            print (path, "           ", last_commit_date)
-            if not last_commit_date:
-                continue
+            #print (path, "           ", last_commit_date)
+            #if not last_commit_date:
+                #continue
 
-            if last_commit_date < cutoff_date:
-                print(f"🗑 Deleting {path} (last committed: {last_commit_date.date()})")
-                os.remove(path)
+              # Read front matter for tags
+            with open(path, "r", encoding="utf-8") as f:
+                post = frontmatter.load(f)
+                tags = post.get("tags", [])  # Extract tags
+                print(f"Tags: {tags}")
+
+            #if last_commit_date < cutoff_date:
+                #print(f"🗑 Deleting {path} (last committed: {last_commit_date.date()})")
+                #os.remove(path)
