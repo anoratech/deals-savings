@@ -1,11 +1,10 @@
 ---
-title: Boys Crewneck Sweater
+title: Wireless Headphones
 date: 2025-06-08T04:27:33.421Z
-tags: " 2025-06-07"
+tags: " 2025-06-08"
 Category: style
-description: |+
-  3.xx
-
-image: https://scontent.fdbd5-1.fna.fbcdn.net/v/t39.30808-6/505408848_122163023102522111_2808759793301952355_n.jpg?_nc_cat=108&ccb=1-7&_nc_sid=127cfc&_nc_ohc=w2wwng6j7kcQ7kNvwG5-hF_&_nc_oc=AdmkuZcrLFDTFMDYNYs8lQfCgrcBQ7Dw2smeFISbbcAdBl_G-dB4zcfvBySwTrpMQ67xk2DayZWGq4E5OkF7jMmy&_nc_zt=23&_nc_ht=scontent.fdbd5-1.fna&_nc_gid=MkXHpeXx-BCftwQ8YIm7LA&oh=00_AfP3ah13hpyZGoihAj1C41oHDQW5xvNt2j1NsBbEkNGzvA&oe=684AEF88
+description: |
+  99.XX
+image: https://scontent.fdbd5-1.fna.fbcdn.net/v/t39.30808-6/504815760_122163062792522111_2548136718559490412_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=127cfc&_nc_ohc=Aw4Jhrt-hiwQ7kNvwHFwbGh&_nc_oc=AdklctnN_d0YiTMv_8I8T2giBV5qs0NQzrQA8UBYqWOK_y5MoghohjZESf2SevRlj6apeUjGYa3DeBScOZjy_be5&_nc_zt=23&_nc_ht=scontent.fdbd5-1.fna&_nc_gid=X1eEjngGQmhX3hNGJ3iHfQ&oh=00_AfMcxkvKkC0NXfBDIoI80V9sUSMGwMp4OAvLnUiVjmKQYQ&oe=684B4D62
 ---
-https://amzlink.to/az01qSdHsvAN2 AD
+https://amzlink.to/az0M2OtNdUPjG  ad
