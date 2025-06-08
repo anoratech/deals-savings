@@ -1,5 +1,5 @@
 ---
-title: 19.xx  Fullstar Portable Blender
+title: " Portable Blender"
 date: 2025-06-08T03:58:35.813Z
 tags: " 2025-06-07"
 Category: other
