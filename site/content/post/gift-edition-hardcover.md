@@ -1,7 +1,7 @@
 ---
 title: Gift Edition Hardcover
 date: 2025-06-07T17:42:47.680Z
-tags: " 2025-06-07"
+tags: " 2025-06-08"
 Category: other
 description: |
   10.xx 
