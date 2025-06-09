@@ -2,7 +2,7 @@
 title: Party size crackers
 date: 2025-06-09T07:58:30.276Z
 tags: 2025-06-09
-Category: "OTHERS "
+Category: other
 description: 3xx
 image: img/81q4mzflnzl._sl1500_.jpg
 ---
