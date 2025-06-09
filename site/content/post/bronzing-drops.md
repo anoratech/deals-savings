@@ -1,8 +1,8 @@
 ---
 title: "Bronzing Drops "
-date: 2025-06-09T07:34:58.424Z
+date: 2025-06-09T17:28:56.986Z
 tags: 2025-06-09
-Category: others
+Category: "other "
 description: 5.xx
 image: img/61wavco99xl._sl1500_.jpg
 ---
