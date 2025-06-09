@@ -1,8 +1,8 @@
 ---
 title: " Setting Spray "
-date: 2025-06-09T06:19:42.482Z
+date: 2025-06-09T17:37:48.370Z
 tags: 2025-06-09
-Category: "others "
+Category: "other "
 description: |-2
    Makeup Setting Spray - Matte Finish, 
   8.xx
