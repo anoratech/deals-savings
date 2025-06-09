@@ -1,8 +1,8 @@
 ---
 title: Shea Sugar Scrub
-date: 2025-06-08T14:42:07.746Z
+date: 2025-06-09T17:32:37.817Z
 tags: 2025-06-08
-Category: others
+Category: "other "
 description: 7.xx
 image: img/91lhnok2byl._sl1500_.jpg
 ---
