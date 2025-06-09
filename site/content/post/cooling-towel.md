@@ -2,7 +2,7 @@
 title: " Cooling Towel "
 date: 2025-06-09T07:19:50.384Z
 tags: 2025-06-09
-Category: "others "
+Category: "other  "
 description: |-2
    4 Pack Cooling Towel  
   15.xx
