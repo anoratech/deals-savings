@@ -2,7 +2,7 @@
 title: "Womens Pajama Sets "
 date: 2025-06-09T15:46:25.914Z
 tags: 2025-06-09
-Category: STYLE
+Category: style
 description: 10xx
 image: img/71y3-6abpfl._ac_sy879_.jpg
 ---
