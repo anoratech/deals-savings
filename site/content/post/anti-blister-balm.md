@@ -1,8 +1,8 @@
 ---
 title: "Anti Blister Balm "
-date: 2025-06-09T06:08:35.046Z
+date: 2025-06-09T17:38:11.866Z
 tags: 2025-06-09
-Category: "others "
+Category: "other "
 description: "8.xx "
 image: img/710c8sbgstl._sl1300_.jpg
 ---
