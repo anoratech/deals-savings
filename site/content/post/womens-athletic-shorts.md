@@ -1,8 +1,8 @@
 ---
 title: Women's Athletic Shorts
-date: 2025-06-09T06:17:48.779Z
+date: 2025-06-09T17:35:22.986Z
 tags: 2025-06-09
-Category: "others "
+Category: "other "
 description: "24.xx only "
 image: img/715o5sgjaxl._ac_sy741_.jpg
 ---
