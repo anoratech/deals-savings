@@ -1,8 +1,8 @@
 ---
 title: " Hair Mousse"
-date: 2025-06-09T07:32:51.519Z
+date: 2025-06-09T16:07:49.655Z
 tags: 2025-06-09
-Category: "others "
+Category: "other "
 description: |-
   Defines Curls  3.xx 
   save more with SS coupon 
