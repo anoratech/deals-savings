@@ -2,7 +2,7 @@
 title: Area Rugs
 date: 2025-06-09T05:45:07.747Z
 tags: 2025-06-09
-Category: "OTHERS "
+Category: other
 description: 14xx
 image: img/91xrlv2ot0l._ac_sl1500_.jpg
 ---
