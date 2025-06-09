@@ -2,7 +2,7 @@
 title: Beverage Cooler
 date: 2025-06-09T06:33:53.183Z
 tags: 2025-06-09
-Category: "others "
+Category: "other "
 description: |-
   19.xx 
   Price Drop 
