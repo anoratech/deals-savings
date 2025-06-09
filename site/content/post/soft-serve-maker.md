@@ -1,8 +1,8 @@
 ---
 title: Soft Serve Maker
-date: 2025-06-09T07:39:49.583Z
+date: 2025-06-09T17:28:22.162Z
 tags: 2025-06-09
-Category: "others "
+Category: "other "
 description: "49.xx "
 image: img/710fetfpwbl._ac_sl1500_.jpg
 ---
