@@ -1,8 +1,8 @@
 ---
 title: Electrolyte Powder Drink Mix
-date: 2025-06-09T07:25:41.987Z
+date: 2025-06-09T17:29:30.713Z
 tags: 2025-06-09
-Category: "others "
+Category: "other  "
 description: |-
   1 Pack (16 Servings) 
   23.xx
