@@ -1,8 +1,8 @@
 ---
 title: " Kitchen Tongs"
-date: 2025-06-08T14:00:19.979Z
-tags: 2025-06-08
-Category: others
+date: 2025-06-10T05:22:51.347Z
+tags: 2025-06-10
+Category: "other "
 description: 1.xx
 image: img/71nvnzo1dcl._ac_sl1500_.jpg
 ---
