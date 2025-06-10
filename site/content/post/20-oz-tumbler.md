@@ -1,8 +1,8 @@
 ---
 title: 20 oz Tumbler
-date: 2025-06-08T13:55:50.358Z
-tags: 2025-06-08
-Category: others
+date: 2025-06-10T05:23:09.492Z
+tags: 2025-06-10
+Category: "other "
 description: 10.xx
 image: img/61alfrsjqsl._ac_sl1500_.jpg
 ---
