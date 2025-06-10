@@ -1,5 +1,5 @@
 ---
-title: "Womens Jeans Shorts JUST "
+title: "Womens Jeans Shorts "
 date: 2025-06-10T15:35:15.291Z
 tags: 2025-06-10
 Category: style
