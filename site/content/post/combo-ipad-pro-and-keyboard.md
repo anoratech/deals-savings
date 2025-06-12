@@ -5,6 +5,7 @@ tags: 2025-06-12
 Category: other
 description: |
   89.XX
+image: https://m.media-amazon.com/images/I/51Bkg4TpcGL._AC_SX569_.jpg
 ---
 
 
