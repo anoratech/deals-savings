@@ -1,11 +1,11 @@
 ---
-title: Toddler Walking Shoes
+title: "Womens Summer Tops  "
 date: 2025-06-17T17:08:56.108Z
 tags: 2025-06-17
 Category: style
-description: |-
-  12.XX
-  Discount apply at checkout.
-image: https://m.media-amazon.com/images/I/41m4gthXmzL._SR400,400_.jpg
+description: |
+  7.XX
+  50% off price drop
+image: https://m.media-amazon.com/images/I/61bWxG8wQrL._AC_SY741_.jpg
 ---
-https://amzlink.to/az0aklNH463r4   AD
+https://amzlink.to/az0YeN9TlmiQK     ad
