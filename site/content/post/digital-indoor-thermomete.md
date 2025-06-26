@@ -1,5 +1,5 @@
 ---
-title: Digital  Indoor Thermomete
+title: Digital  Indoor Thermometer
 date: 2025-06-26T09:21:40.706Z
 tags: 2025-06-26
 Category: other
