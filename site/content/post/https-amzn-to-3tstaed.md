@@ -1,5 +1,5 @@
 ---
-title: https://amzn.to/3TSTAEd
+title: Curtain Lights
 date: 2025-07-03T08:12:10.973Z
 tags: 2025-07-03
 Category: other
