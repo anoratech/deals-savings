@@ -1,7 +1,7 @@
 ---
 title: " Mini Projector"
 date: 2025-07-21T07:58:58.820Z
-tags: 2025-07-20
+tags: 2025-07-21
 Category: other
 description: |-
   
