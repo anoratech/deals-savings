@@ -1,7 +1,7 @@
 ---
 title: Robot Vacuum
 date: 2025-07-21T07:55:29.183Z
-tags: 2025-07-20
+tags: 2025-07-21
 Category: other
 description: |
   297.xx
