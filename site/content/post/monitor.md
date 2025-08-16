@@ -1,10 +1,10 @@
 ---
-title: "Monitor "
-date: 2025-07-02T09:26:50.541Z
-tags: 2025-07-02
+title: " Monitor"
+date: 2025-08-16T09:02:06.794Z
+tags: 2025-08-16
 Category: other
-description: 99.xx
-image: https://m.media-amazon.com/images/I/71KH4jIuyCL._AC_SL1500_.jpg
+description: 219.xx
+image: https://m.media-amazon.com/images/I/81bD9FHLy7L._AC_SL1500_.jpg
 ---
-https://amzlink.to/az0gTyd3Qrzqz
+https://amzlink.to/az0P0owHvZzfQ
 AD
