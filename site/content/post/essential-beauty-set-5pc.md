@@ -4,6 +4,6 @@ date: 2025-08-20T11:40:58.758Z
 tags: 2025-08-21
 Category: other
 description: " 9.XX"
-image: ""
+image: https://m.media-amazon.com/images/I/81jsF98dIgL._SL1500_.jpg
 ---
 https://amzlink.to/az0iijH4vXbVf    AD
