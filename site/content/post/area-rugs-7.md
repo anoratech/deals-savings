@@ -6,4 +6,4 @@ Category: other
 description: 9.xx
 image: https://m.media-amazon.com/images/I/91Wnj2HTZXS._AC_SL1500_.jpg
 ---
-https://amzlink.to/az0pGeFGgEn7B ad
+https://amzlink.to/az0flYkYy29zW  ad
