@@ -5,7 +5,7 @@ tags: 2025-08-27
 Category: other
 description: |
   21.xx
-image: https://m.media-amazon.com/images/I/81ec1GH5fzL._AC_SL1500_.jpg
+image: https://m.media-amazon.com/images/I/81miLGdGdXL._AC_SL1500_.jpg
 ---
 https://amzlink.to/az04QSsCILZqX
 AD
