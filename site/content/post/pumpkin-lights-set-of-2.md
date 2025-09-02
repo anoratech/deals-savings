@@ -1,7 +1,7 @@
 ---
 title: Pumpkin Lights, Set of 2
 date: 2025-08-31T11:15:28.498Z
-tags: 2025-09-01
+tags: 2025-09-02
 Category: other
 description: |-
   12.xx
