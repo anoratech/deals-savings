@@ -1,7 +1,7 @@
 ---
 title: "6 Drawer Dresser "
 date: 2025-09-05T10:23:51.390Z
-tags: 2025-09-06
+tags: 2025-09-07
 Category: " other"
 description: |-
   39.XX
