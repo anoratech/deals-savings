@@ -1,11 +1,11 @@
 ---
-title: Fitness Watch
-date: 2025-09-11T10:09:04.491Z
+title: Wireless Charging Pad
+date: 2025-09-11T10:09:50.415Z
 tags: 2025-09-11
 Category: other
 description: |
-  9.xx
-image: https://m.media-amazon.com/images/I/71yKs57TqfL._AC_SL1500_.jpg
+  14.XX
+image: https://m.media-amazon.com/images/I/712VgEheuKL._AC_SL1500_.jpg
 ---
-https://amzlink.to/az09G1xIrbiyt
+https://amzlink.to/az0jfLG2KY0BE
 AD
