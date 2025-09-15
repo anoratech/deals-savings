@@ -1,9 +1,9 @@
 ---
 title: Purifying Face Mask
-date: 2025-08-09T17:19:01.735Z
-tags: 2025-08-09
+date: 2025-09-15T12:22:30.855Z
+tags: 2025-09-15
 Category: other
-description: 16.xx
-image: https://m.media-amazon.com/images/I/61XUQFT8tiL._SL1000_.jpg
+description: 32.xx
+image: https://m.media-amazon.com/images/I/61eS2wLuOuL._SL1500_.jpg
 ---
-https://joylink.io/luxurious-multi-action-cleanser ad
+https://amzlink.to/az0FYIB24djDV  ad
