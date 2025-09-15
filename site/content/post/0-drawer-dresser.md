@@ -1,5 +1,5 @@
 ---
-title: "0 Drawer Dresser "
+title: "10 Drawer Dresser "
 date: 2025-09-15T11:08:34.634Z
 tags: 2025-09-15
 Category: other
