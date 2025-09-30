@@ -1,10 +1,9 @@
 ---
-title: "Folding Step Stool "
-date: 2025-09-30T09:45:38.402Z
+title: Digital Countertop Air Fryer
+date: 2025-09-30T09:50:12.575Z
 tags: 2025-09-30
 Category: other
-description: Only 49.xx
-image: https://m.media-amazon.com/images/I/81ZkroqK2sL._AC_SL1500_.jpg
+description: Now 149.xx
 ---
-https://amzlink.to/az0ORLgDgnTJH
+https://amzlink.to/az02DL5CYl6gH
 AD
